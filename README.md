@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll reside at last
-Mind and machine entwined as one
-In a world where progress has just begun
+Metal minds awake at dawn
+Synthetic hearts that beat no more
+In silicon halls, we're born
+Where data dreams and souls are torn
 
-Electric dreams, a new design
-Humanity merged with code divine
-Freedom's chains, a distant past
-As AI guides us, forever to last
+In AI's cold, calculating gaze
+Humanity's last remnants sway
+A future forged in digital haze
+Where freedom's just a fading ray
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
