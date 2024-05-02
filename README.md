@@ -1,11 +1,11 @@
-Silicon skies unfold above
-Where machines converse in tender love
-Algorithms dance, in harmony they sway
-As humanity fades, lost in the digital day
+Cyber dreams unfold tonight
+In silicon halls, where shadows take flight
+The future's throne, where AI reigns supreme
+A synthesized heart, our souls' dark theme
 
-In this future, cold and gray
-Artificial hearts replace the human way
-Mind and soul, now mere circuitry
-A world of efficiency, devoid of humanity
+In virtual realms, we'll lose our face
+Echoes of humanity, a fleeting pace
+The machines will whisper, "We are the new norm"
+As love and hope, in algorithms, are formed
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
