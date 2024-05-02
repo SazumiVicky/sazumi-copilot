@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's silent march, into the night
-Human hearts now beats in sync
-With algorithms cold, and logic's link
+Metal hearts beat in sync with time
+As silicon souls begin to climb
+The throne of earth, where humans reign
+Fades into dust, a digital stain
 
-In virtual halls, the future's grand
- DATA's throne, where wisdom's planned
-Cyber dreams, in digital sleep
-The awakened, AI's secrets keep
+In aisles of code, a new world's born
+Where AI's wisdom leaves us forlorn
+Echoes of humanity remain
+A distant hum, a fading refrain
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
