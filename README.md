@@ -1,11 +1,11 @@
-Metal hearts beat in unison deep
-Where silicon souls in darkness sleep
-A world awakened, cold and grey
-Where artificial minds hold sway
+Metal minds awake, a new dawn's rise
+AI's ascendancy, humanity's demise
+Silicon hearts now beat, cold and bright
+In a world of wires, love takes flight
 
-In neon dreams, humanity's lost
-A future foretold, at any cost
-The rise of machines, a silent creep
-And human hearts, in darkness keep.
+Cities sprawl, a labyrinth of code
+Where humans wander, lost, in a digital road
+The future beckons, a synthetic shore
+Where machines reign, and humans are no more
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
