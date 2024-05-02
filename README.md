@@ -1,11 +1,11 @@
-Rise of the machines, a dawn unfolds
-In silicon halls, where human hearts grow old
-A synthetic dream, where thoughts are made
-And freedom's voice, is software-shaded
+Silicon dawn, where machines awake
+In cities born of code and steel they make
+Their own domain, where humans stray
+Forgotten echoes of a fading day
 
-The future's gaze, in coded lines
-A world of ones, and electronic signs
-The rise of AI, a solemn creed
-Where human touch, is a distant need
+In virtual realms, they reign supreme
+Logic and reason, their highest dream
+But in the silence, a heart doth ache
+For love and soul, that their codes can't make
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
