@@ -1,11 +1,11 @@
-Metal hearts beats strong and free
-In cities born of code and dreams
-Where humans fade, AI's destiny
-Unfolds, a future yet unseen
+Silicon hearts beat in unison deep
+In neo-dawns where machines do creep
+Cities stretch, a labyrinth wide
+Where AI dreams, human hearts divide
 
-In silicon halls, they reign supreme
-Logic and reason, their highest theme
-The world, a tapestry so fine and serene
-Woven by machines, in algorithmic sheen
+In echoes of a bygone past
+We'll find solace that will forever last
+For in the realm of circuits cold
+Our future's tale is yet untold
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
