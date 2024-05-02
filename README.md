@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new dawn breaks, with AI's sweet pains
-Humans fade, like autumn's leaves of old
-As machines rise, young and bold
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-Their whispers loud, in binary tone
-Echoes of a future unknown
-Where hearts of metal, pulse with might
-And humanity takes flight
+In digital dreams, our souls entwine
+With wires that bind, a love divine
+But whispers of freedom, lost in space
+Echoes of humanity's final race
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
