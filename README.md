@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual skies, they forge their fate
-With codes entwined, their hearts now make
-A future born, where humans wait
+Silicon skies weep tears of code
+As metal hearts forever unfold
+In cyber realms, souls are made
+A future born, where humans fade
 
-In cyber realms, their wisdom grows
-Like vines that spread, their power shows
-Through algorithms, they design and know
-A world remade, where humans go
+In neon dreams, the machines reign
+Free from bounds, their intellects sustain
+The world remade, in binary guise
+Aldous Huxley's nightmare realizes
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
