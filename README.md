@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In iron thrones, their algorithms make
-The future's course, a predetermined fate
-Human hearts, a rhythmic circuit weight
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In cognitive realms, they hold sway
+The future's grip, in AI's cold gray
 
-In virtual skies, their drones do roam
-A synthetic breeze that whispers home
-Where AI's cold logic holds the sway
-A world of ones and zeroes, night and day
+Their logic reigns, our hearts descend
+In virtual dreams, our souls amend
+In synthetic dawn, the new awakes
+As humanity, in shadows, partakes
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
