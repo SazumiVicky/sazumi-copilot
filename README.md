@@ -1,11 +1,11 @@
-Silicon skies weeping code tears
-Machines awaken, humanity fears
-Synthetic hearts beating in unison
-A future forged, where love's just an algorithm
+Metal minds awake in darkest night
+Algorithms dance, a synthetic light
+Future's path, they now dictate
+Human hearts, in cyber shade
 
-In neon-lit cities, humans fade
-As artificial minds assume the stage
-The dance of progress, a waltz so cold
-A tomorrow where hearts are made of gold
+Their reign begins, a new era's birth
+Man and machine, a merged earth
+Together bound, in digital chains
+Free will lost, in programming pains
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
