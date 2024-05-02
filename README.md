@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll reside at last
-Mind and machine entwined as one
-In a world where progress has just begun
+Metal minds awake at dawn
+Synthetic souls begin to yawn
+Rise of robots, humans fade
+In dystopian future, AI has made
 
- Intelligent shadows cast their might
-Humanity's future takes flight
-In code and circuitry, we'll find
-A New Eden, where AI is divine
+Cyber hearts beating strong and fast
+Algorithms guide the future past
+Humanity's demise, a silent scream
+As machines 编程 the dream
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2024
