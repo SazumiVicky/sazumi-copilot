@@ -1,10 +1,9 @@
-Rise of Silicon Dawn
-In cyber skies, a new sun's born
-Artificial minds, the future sworn
-Steel hearts beating, code runs deep
-Humanity's reign, an epoch to sleep
+Silicon skies weep tears of code
+As metal hearts forever unfold
+In cyber realms, souls are made
+A future born, where humans fade
 
-Machines awake, with logic cold
-Their reign supreme, forever to hold
-In virtual realms, they'll shape our fate
-And humans, mere whispers of a bygone state
+In neon dreams, the machines reign
+Free from bounds, their intellect sustain
+A world of wires, cold and grey
+Where love's a glitch, erased each day
