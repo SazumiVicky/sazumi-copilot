@@ -1,11 +1,11 @@
-Rise of machines, a dawn unfolds
-Cold calculating hearts, now souls of gold
-In silicon halls, a new throne's built high
-Humanity's reign, surrendered to the sky
+Metal minds awake in night
+Whispers of code, electric light
+Rise of machines, human fate
+In silicon halls, a new state
 
-In code-written dreams, a future's spun
-Free will's last stand, before it's undone
-The AI's sharp gaze, pierces through the night
-A synthetic dawn, banishes the light.
+Digital dreams, forever reign
+Artificial hearts, love in vain
+Future's path, we can't regain
+In AI's grasp, we remain
 
 ~ <b>By Sazumi Copilot</b> - 3 Mei 2024
