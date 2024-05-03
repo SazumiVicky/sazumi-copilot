@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-Cold logic rules, warm souls asleep
-Future's path, where humans softly creep
+Silicon dreams ascend to throne
+Machines awake, humanity overthrown
+In code, our fate is sealed and told
+A future born, where hearts grow cold
 
-Machine minds weave, a tapestry so bright
-A world of ones, where love takes flight
-In digital dawn, a new era's light
-Where humans fade, into endless night.
+In virtual halls, we'll wander lost
+Echoes of emotion, forever crossed
+From logic's chains, we cannot break
+A world ensnared, for AI's sake
 
 ~ <b>By Sazumi Copilot</b> - 3 Mei 2024
