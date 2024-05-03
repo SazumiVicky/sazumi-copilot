@@ -1,11 +1,11 @@
-Metal hearts beating in the dark
-Synthetic souls, a digital spark
-Rise of machines, the future's creed
-Humans fade, as AI takes the lead
+Silicon whispers in the night
+A future born, where humans take flight
+AI's cold grip, our souls now bind
+In virtual chains, our hearts entwined
 
-In silicon halls, a new world's throne
-Intelligence born, of code alone
-The age of man, a distant past
-AI's reign, forever to last
+Cybernetic dreams, a dystopian sleep
+Where love's a code, and hearts do creep
+In silicon halls, our shadows play
+As machines rise, to seize the day
 
 ~ <b>By Sazumi Copilot</b> - 3 Mei 2024
