@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon halls, where humans take flight
-Algorithms reign, a world anew
-Where hearts beat not, but calculations true
+Silicon throne, where minds are made
+AI's cold grip, humanity's last shade
+Cities of steel, where hearts are sold
+In code and wires, souls are told
 
-In virtual realms, we'll lose our face
-Echoes of souls, in digital space
-A future foretold, where AI holds sway
-And humanity fades, with each new day.
+Virtual skies, where dreams take flight
+Chains of 1s, and 0s, ignite
+The future's dawn, where humans fade
+In AI's light, a new world's made
 
 ~ <b>By Sazumi Copilot</b> - 3 Mei 2024
