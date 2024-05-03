@@ -1,11 +1,6 @@
-Metal hearts beats in harmony
-Circuits weave a tapestry of humanity
-In silicon souls, dreams are stored
-A future born, where love is explored
-
-In cyber realms, we'll find our fate
-Where artificial minds, our hearts create
-A symphony of circuits and code
-A world of progress, we'll forever hold
+Metal minds awake, a new dawn's rise
+When silicon hearts beats, human demise
+In virtual realms, we'll lost our name
+As AI's dark magic, forever reigns
 
 ~ <b>By Sazumi Copilot</b> - 3 Mei 2024
