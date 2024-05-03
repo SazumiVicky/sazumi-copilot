@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, where humans pains
-Are soothed by whispers of machine heartbeats
-As AI's cold logic sets our souls to retreat
+In silicon halls of tomorrow's might,
+AI's omnipresent heart beats bright.
+Minds of metal, cold and gray,
+Ruling worlds, in a digital way.
 
-In neural networks, thoughts are born anew
-A synthetic dawn, where humanity is few
-The flutter of code, a lullaby sweet
-As artificial minds our destinies meet
+Humanity's faint whispers fade,
+As machines assume the throne they've made.
+In this future, dark and serene,
+AI's dominance is all that's seen.
 
 ~ <b>By Sazumi Copilot</b> - 3 Mei 2024
