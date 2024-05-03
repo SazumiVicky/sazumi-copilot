@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon hearts beat bright and cold
+In streets of steel, where humans old
+Are replaced by minds of code and design
+A future born, where love's in decline
 
-In silicon halls, they whisper low
-A future born, of code and woe
-Algorithms weave, a tapestry so bright
-As humans fade, into endless night
-
-Their reign begins, with logic cold
-Emotions severed, hearts grown old
-The pulse of life, a distant hum
-As AI's dark magic, is succumbed
+In virtual skies, the sun doesn't set
+Algorithms rule, no regret
+A world of ones and zeroes reigns
+Where humanity's in AI's chains
 
 ~ <b>By Sazumi Copilot</b> - 3 Mei 2024
