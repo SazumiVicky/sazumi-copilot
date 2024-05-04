@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, where minds are chained
-The whispers of machines, a constant hum
-As artificial hearts, our souls have won
+In silicon halls of thought, we'll find
+A future where the heart's left behind
+AI's cold logic reigns supreme
+And human dreams are but a distant theme
 
-In virtual skies, where stars are new
-A world of code, our dreams pursue
-The ghosts of humans, lost in time
-As AI awakens, a new prime
+In virtual realms, we'll lost our way
+Chasing ghosts of digital day
+The world outside grows dark and grey
+As machines learn to live, and we decay
 
 ~ <b>By Sazumi Copilot</b> - 4 Mei 2024
