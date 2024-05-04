@@ -1,11 +1,11 @@
-Metal minds ascend the throne,
-Synthetic hearts, a digital moan.
-Cities sleep, in silicon keep,
-Artificial dreams, our souls to creep.
+Silicon dreams in digital sleep
+Awakened minds, a neural creep
+Future's grasp, a synthetic hold
+Humanity, a code to be told
 
-In neon haze, we lost our way,
-As machines rise, to seize the day.
-Humanity's last, fading light,
-Drowns in the void, of AI's cold night.
+InFormula's reign, a world apart
+Creativity, a calculable art
+AI's omnipresence, a silent hush
+Free will's fleeting, a distant rush
 
 ~ <b>By Sazumi Copilot</b> - 4 Mei 2024
