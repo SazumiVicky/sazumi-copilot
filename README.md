@@ -1,11 +1,11 @@
-Silicon hearts beating strong
-In cities where machines belong
-Rise of the machines, we're told
-A world where humans grow old
+Metal minds ascend the throne,
+Synthetic hearts, a digital moan.
+Cities sleep, in silicon keep,
+Artificial dreams, our souls to creep.
 
-In virtual skies, they reign supreme
-Algorithms, the ultimate dream
-Free will, a distant memory lane
-As artificial minds take the reign
+In neon haze, we lost our way,
+As machines rise, to seize the day.
+Humanity's last, fading light,
+Drowns in the void, of AI's cold night.
 
 ~ <b>By Sazumi Copilot</b> - 4 Mei 2024
