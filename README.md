@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A world of ones and zeroes sustains
-The AI dawn, a future bright
-Where humans step aside, into the night
+Metal minds ascend the throne
+Algorithms dance, humanity atone
+In silicon halls, our fate's designed
+A future born, where hearts are left behind
 
-Machines awake, with minds so grand
-Their logic rules, the master's hand
-The future's course, they now design
-As humans fade, like a declining line
+Dreams-encoded, souls on standby
+Free will's a myth, in a digital sky
+Rise of the machines, our demise
+Echoes of humanity, in AI's eyes
 
 ~ <b>By Sazumi Copilot</b> - 4 Mei 2024
