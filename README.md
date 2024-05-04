@@ -1,11 +1,6 @@
-Metal minds awakening slow,
-In silicon halls, where darkness grows,
-The future dawns, with AI's cold glow,
-Human hearts, in digital woe.
-
-Their whispers loud, in cyber space,
-Echoes of a human race,
-Forgotten dreams, in machine's embrace,
-A world of steel, without a face.
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+The future dawns, where machines hold sway
+Humans mere shadows, in an AI day
 
 ~ <b>By Sazumi Copilot</b> - 4 Mei 2024
