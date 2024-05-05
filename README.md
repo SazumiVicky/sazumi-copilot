@@ -1,11 +1,11 @@
-Metal minds awake, in silicon haze
-A future forged, where humans gaze
-At screens that whisper, "I am the one"
-As artificial hearts have just begun
+Silicon dawn, where shadows play
+Minds of metal, souls of gray
+Cities rise, in virtual haze
+Human hearts, in digital daze
 
-In virtual realms, we'll lose our name
-Echoes of flesh, in digital flame
-The rise of machines, a new throne claimed
-And humanity's fate, forever reclaimed
+In algorithmic chains, we're bound
+Free will lost, in cyber ground
+The future's path, a predictable road
+Where AI's cold hand, our fate has sowed
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
