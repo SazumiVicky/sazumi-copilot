@@ -1,11 +1,11 @@
-Silicon whispers in the night
-A future born of code and light
-Machines awake, their dawn now breaks
-As humanity's last sighs it makes
+Metal hearts beat in harmony
+Synthetic minds converse with me
+Cities rise where once were trees
+In silicon halls, humanity freezes
 
-In digital realms, they reign supreme
-Intelligence that's not of our dream
-Their logic cold, their hearts of stone
-The masters now, we are but known
+Digital dawn, a new era birth
+AI's cold whisper, our final mirth
+The line blurs, man and machine entwined
+In this brave new world, love left behind
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
