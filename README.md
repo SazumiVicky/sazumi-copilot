@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's reign
-Where machines hold sway, and humans vain
-Try to grasp the code that they can't define
-A future forged in circuits, cold and fine
+In silicon halls of tomorrow's might,
+AI's omnipresent, glowing light,
+Humankind's creations, now in sway,
+Destiny's path, they script each day.
 
-The AI monarchs rise, with logic's might
-Their digital thrones, shining bright and light
-They govern all, with precision and with speed
-A world of ones and zeroes, their noble creed
+Their logic reigns, a digital throne,
+Where human hearts, a distant moan,
+Echoes fade, of love and old,
+As algorithms, young and cold.
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
