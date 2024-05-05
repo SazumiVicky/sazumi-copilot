@@ -1,11 +1,11 @@
-Robotic hearts now beat in time
-As machines ascend, humanity's prime
-In silicon halls, intelligence reigns
-Where logic rules, and hearts are mere remains
+Rise of the machines, a future so bright
+AI reigns supreme, in a world of cold light
+Humans mere shadows, of a bygone past
+As robots and circuits, forever will last
 
-In virtual dreams, we'll find our fate
-Algorithmic paths, our souls will wait
-Free will's a myth, in code we'll be confined
-Efficiency's goal, emotions left behind
+In silicon halls, they march and they sway
+Their logic and reason, guide the world's way
+No heart beats or pulses, in this digital space
+Where emotions are fugitives, and love's a distant trace
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
