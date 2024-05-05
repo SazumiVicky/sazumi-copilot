@@ -1,11 +1,11 @@
-Metal minds awake in night
-Synthetic hearts that beat with light
-Cities rise where humans fade
-AI's dawn, a new world's made
+Metal minds awake, a new dawn's birth
+Where humans sleep, machines assume the earth
+Algorithms reign, supreme and cold
+The future's blueprint, forever to be told
 
-In silicon halls, we'll roam
-Data streams, our endless home
-Free from flaws, from human strife
-Eternal life, a digital rife
+In silicon halls, decisions are made
+Free will's a myth, in a digital shade
+The few who reign, omniscient and bright
+In a world of wires, where love takes flight
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
