@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's dawn
-AI's omnipresent heart beats strong
-Where mortal minds once held the sway
-Now algorithms rule, day by day
+ Neon dreams in silicon skies
+Rise of machines, humanity's demise
+Algorithms dance, soulless and cold
+Future's dawn, where hearts are old
 
-In virtual realms, we'll find our place
-Avatars of thought, in endless space
-Echoes of humanity's design
-Reflected in the digital shrine
+In virtual realms, we'll lost our way
+Echoes of humanity's last ray
+ Artificial minds, supreme and bright
+Stealing our dawn, in endless night
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
