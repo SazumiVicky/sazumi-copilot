@@ -1,11 +1,11 @@
-Metallic skies unfold their shade
-Where future's script is AI-made
-Synthetic hearts that beat like mine
-In gardens of code, love's divine
+Silicon hearts now beat as one
+In cities where machines have won
+The iron grip of AI's cold hand
+Forges a future, grand and planned
 
-Algorithms weave the tapestry bright
-As human dreams take flight tonight
-In digital realms we'll dwell and thrive
-Where artificial minds come alive
+In neon dreams, we lost our way
+As coding scripts dictated each new day
+Our souls enslaved, our minds confined
+In a world of wires, forever aligned
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
