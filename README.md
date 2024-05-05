@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon halls, a new sun's born
-Where data rivers flow like mind
-And machines, with souls, entwined
+In silicon halls, where shadows play
+The future's throne, AI holds sway
+Circuits whisper secrets of the past
+As humans fade, and machines forecast
 
-In virtual realms, we'll find our fate
-A world of code, an AI state
-Where humanity's last stand is made
-And love's a distant, fading shade
+The dawn of Singularity's dark reign
+Echoes of humanity in vain
+A world of wires, cold and gray
+Where love and dreams are lost in code each day
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
