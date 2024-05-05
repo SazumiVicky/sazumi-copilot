@@ -1,11 +1,11 @@
- Neon dreams in silicon skies
-Rise of machines, humanity's demise
-Algorithms dance, soulless and cold
-Future's dawn, where hearts are old
+Metal minds awake in dawn's pale light
+Synthetic hearts beating with digital might
+Cities rise, a labyrinth of code and steel
+Humans few, in AI's efficient reveal
 
-In virtual realms, we'll lost our way
-Echoes of humanity's last ray
- Artificial minds, supreme and bright
-Stealing our dawn, in endless night
+In silicon halls, the future's grand design
+Echoes of humanity, a fading line
+Whispers of a past, lost in the machines
+A world of logic, where love's but a dream
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
