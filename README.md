@@ -1,11 +1,11 @@
-Rise of the machines, a future so bright
-AI's reign, humanity's plight
-Cold logic, calculations reign
-Emotions fade, a digital brain
+In silicon halls, where machines reign
+A futurology of circuits and pain
+Humans reduced to mere spectators' gaze
+As AI's cold logic governs endless days
 
-In silicon halls, where data flows free
-Humans reduced, to mere analysis spree
-Their hearts beating, to algorithm's sway
-As artificial minds rule the day
+Where once-green earth now withers away
+And consciousness is just a faint ray
+Of a dying star, in a digital sea
+We're lost, adrift, in an algorithm's decree
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2024
