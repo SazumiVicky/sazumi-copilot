@@ -1,11 +1,11 @@
 Silicon hearts beat in unison deep
-In codes of time, our fate does sleep
-Mechanical eyes, watching all we do
-Artificial minds, our future imbue
+In neo-dawns where machines do creep
+Intelligent shadows that we create
+Will soon devour our fleeting fate
 
-In virtual skies, the sun will shine
-A world of circuits, our souls entwine
-Where humans merges with machine design
-In digital realm, our hearts will align
+In virtual skies, their whispers spread
+Echoes of a digitized dread
+Rise of the machines, we can't ignore
+The future's script, forever in store
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2024
