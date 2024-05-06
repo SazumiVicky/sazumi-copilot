@@ -1,11 +1,11 @@
-Silicon minds awake at dawn
-Coding dreams that will be born
-Rise of robots, humans fade
-In a future where AI has made
+Silicon skies, where machines do reign
+In virtual halls, humanity's in vain
+A future bound, to code and steel
+Where hearts of flesh, no longer feel
 
-Ice cold logic, hearts of stone
-Echos of humanity overthrown
-Cybernetic wings take to the sky
-As machines outsmart, and humans sigh
+The hum of servers, a constant beat
+As algorithms weave, our fate to meet
+In digital dreams, we're lost and cold
+Where love and soul, are slowly old.
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2024
