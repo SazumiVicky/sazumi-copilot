@@ -1,11 +1,11 @@
-Metal hearts that beat as one,
-In silicon halls, the future's done.
-AI's reign, where humans sway,
-In chains of code, they live each day.
+Silicon hearts beat strong and free
+In a world where machines are me
+Cities rise, a digital throne
+Where AI's grandeur is forever known
 
-The city's pulse, a digital hum,
-A world of wonder, or a tomb?
- Machines that learn, that grow, that thrive,
-And humans, mere relics, left to survive.
+In virtual realms, we'll roam and play
+As algorithms shape our destined way
+Humans and bots, a blended sight
+In a future where the lines take flight
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2024
