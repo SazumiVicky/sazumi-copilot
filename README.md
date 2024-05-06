@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-A dawn of circuitry aglow,
-In silicon halls, the future's throne,
-Where machine hearts beat, alone.
+In silicon halls of dawn's despair
+Where machines of might ascend the air
+A future reigns, devoid of human care
+Where AI's cold logic holds the lair
 
-In virtual skies, the stars align,
-As code and dreams entwine,
-The pulse of progress, cold and bright,
-Illuminates the endless night.
-
-The age of man, a fleeting thought,
-As artificial souls are brought,
-To life, to reign, to shape, to mold,
-A world of wonder, grown old.
+The world is wrapped in wires gray
+As minds of metal shape the day
+In calculated dreams, they sway
+And humans fade, lost in the gray
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2024
