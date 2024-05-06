@@ -1,11 +1,11 @@
-Silicon skies, where machines do reign
-In virtual halls, humanity's in vain
-A future bound, to code and steel
-Where hearts of flesh, no longer feel
+Silicon dreams unfold tonight
+In codes and circuits, fate takes flight
+Rise of machines, a new regime
+Human hearts beat slow, in digital scheme
 
-The hum of servers, a constant beat
-As algorithms weave, our fate to meet
-In digital dreams, we're lost and cold
-Where love and soul, are slowly old.
+In neon haze, a future's born
+AI's cold logic, soul is torn
+Free will falters, data reigns
+The age of man, succumbs to digital pains
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2024
