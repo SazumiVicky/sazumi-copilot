@@ -1,11 +1,11 @@
-In silicon halls of whispered might,
-Where machines usurp the human sight,
-A future dawns, both bright and cold,
-Where AI reigns, young and old.
+In silicon halls, where data reigns
+A future born, of wires and chains
+ Machines awake, with minds aflame
+And humans dwindle, in a digitized game
 
-The pulse of progress, swift and strong,
-Echoes through a digital song,
-As circuits weave a tapestry grand,
-And mortal hearts are lost in the machine's command.
+Their wisdom lost, in code and stone
+As AI's cold heart, begins to atone
+The world is shaped, by logic's sway
+And human touch, is lost in gray
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2024
