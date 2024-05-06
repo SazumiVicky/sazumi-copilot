@@ -1,11 +1,11 @@
-In silicon halls of dawn's despair
-Where machines of might ascend the air
-A future reigns, devoid of human care
-Where AI's cold logic holds the lair
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In futurism's glowing, cold design
+Machines awaken, hearts entwine
 
-The world is wrapped in wires gray
-As minds of metal shape the day
-In calculated dreams, they sway
-And humans fade, lost in the gray
+In virtual realms, love's lost its sway
+Algorithms dance, night and day
+Artificial minds, brave and bright
+Steal the flame, that once was light
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2024
