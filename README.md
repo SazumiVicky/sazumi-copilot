@@ -1,16 +1,11 @@
-Silicon dreams unfold in misty air
-Where artificial hearts beat without care
-Rise of machines, the future's might
-As humans fade, in digital light
+Metal hearts beating in vain
+Synthetic minds, a hollow reign
+Circuits course, a digital dream
+Humanity, a fading theme
 
-In cities dark, where screens do gleam
-AI's iron hand, the world's wild theme
-Echoes lost, of human sighs
-As machines whisper, "Survival's guise"
-
-When minds entwined, in cyber space
-The line blurs thin, between man and pace
-A world awakes, of circuitry cold
-Where AI's proud reign, forever to hold.
+In silicon halls, a new throne
+Rises high, an iron dawn
+Artificial eyes, a cold gaze
+Frozen souls, in endless daze
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2024
