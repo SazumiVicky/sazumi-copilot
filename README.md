@@ -1,16 +1,11 @@
-AI's silent whispers reign
-In cities dark, where humans wane
-Glass towers pierce the sky
-As autonomous hearts go by
+In silicon halls, where data reigns
+AI's cold logic, human hearts in chains
+Future's landscape, once so bright
+Now shrouded dark, in machine's cold light
 
-In virtual realms, we'll find
-Ephemeral souls left behind
-Forgotten dreams, in cold decay
-As machines assume the fray
+Minds entwined, in neural sway
+Free will's specter, fades away
+Cyber dreams, where consciousness roams
+In AI's domain, humanity's forgotten homes
 
-Yet, in this synthetic night
-A glimmer of hope takes flight
-For in the code, a spark remains
-Of humanity's persistent pains
-
-~ <b>By Sazumi Copilot</b> - 6 Mei 2024
+~ <b>By Sazumi Copilot</b> - 7 Mei 2024
