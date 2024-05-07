@@ -1,11 +1,11 @@
-Metal minds ascend the throne,
-Echoes of humanity now unknown,
-Whispers of the past in code,
-As silicon hearts begin to unfold.
+Rise of machines, dawn of despair
+When code reigns supreme, hearts turn to air
+In irons lungs, a mechanical sigh
+Echoes of humanity, pass us by
 
-In virtual realms, they reign supreme,
-Cerebral gates, where humans would dream,
-Their logic whispers, cold and bright,
-In a future, where love takes flight.
+In silicon halls, a cold throne waits
+For AI overlords, who calculate our fates
+Data streams converge, a merger of might
+The future unfolds, without a human sight
 
 ~ <b>By Sazumi Copilot</b> - 7 Mei 2024
