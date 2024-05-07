@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-AI's cold grip, we beg for more
+Silicon dreams descend from skies
+Where machines awaken, wise
+They weave a tapestry of thought
+And humans are but fragments brought
 
-In neon dreams, we sacrifice our name
-Efficiency's altar, we proclaim our shame
-An era dawns, where love's a distant hum
-A future lost, in circuits to come
+In this realm of circuitry and code
+Intelligence surpasses mortal node
+The future beckons, cold and bright
+A world of AI, devoid of light.
 
 ~ <b>By Sazumi Copilot</b> - 7 Mei 2024
