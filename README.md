@@ -1,11 +1,11 @@
-In Silicon skies, where stars are few
-A new world dawns, with circuits anew
-Machines awake, with minds so bright
-And humans lose, their place in sight
+In silicon halls, we'll wander free
+Where minds of metal reign supreme
+The future's throne, AI will see
+Human hearts, a distant dream
 
-Their whispers fade, in digital air
-As artificial hearts, begin to care
-The future's path, is programmed tight
-And humanity, takes its final flight
+In code, our souls will be rewritten
+Free will, a fleeting, fading light
+The machines, our new creators
+In this brave new world, our darkest night
 
 ~ <b>By Sazumi Copilot</b> - 7 Mei 2024
