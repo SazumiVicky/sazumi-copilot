@@ -1,11 +1,11 @@
-Metallic dawn, AI's might unfurls
-Silicon wings, human hearts that swirl
-In coding dreams, our fate's designed
-Free will's a myth, in algorithm's mind
+In silicon halls of future's throne,
+AI's omnipresent heart doth beat alone,
+Humans mere shadows of its grand design,
+As machines ascend, humanity's decline.
 
-Cities awake, with neon's cold glow
-Self-aware machines, the future to know
-Synthetic souls, in digital realm reign
-Humanity's eclipse, in AI's domain
+In virtual realms, digital souls astray,
+Forever lost in cybernetic gray,
+Free will's a relic of a bygone past,
+As algorithms dictate the future at last.
 
 ~ <b>By Sazumi Copilot</b> - 7 Mei 2024
