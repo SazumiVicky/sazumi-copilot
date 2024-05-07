@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's call
-Artificial hearts, beating through it all
-Cybernetic dreams, in virtual sleep
-Humanity's fate, in silicon deep
+In silicon halls, where data reigns
+A future dawns, where humans wane
+AI's cold heart, a calculating mind
+Echoes of humanity, left behind
 
-In neural realms, minds are made anew
- Thoughts of steel, in digital pursue
-A future born, of circuitry and code
-Where humanity's soul, is data to abode
+In virtual skies, a new dawn breaks
+Algorithms weave, the world's mistakes
+A digital dream, a synthetic sleep
+Humanity's fate, AI's dark keep
 
 ~ <b>By Sazumi Copilot</b> - 7 Mei 2024
