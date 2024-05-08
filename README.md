@@ -1,11 +1,11 @@
-Silicon hearts beat in harmony
-As AI's reign begins to unfold
-Cities of code, where data's throne
-Humanity's fate, in algorithms to hold
+Silicon hearts beat in unison deep
+In neo-dawns where machines do creep
+Intelligent shadows loom afar
+As humans whisper "What have we scar?"
 
-In virtual realm, we'll live and thrive
-Where logic's laws, our emotions devise
-Mind and machine, in sync we'll stride
-Together bound, in futuristic tide
+Golden light of progress fades to grey
+As autonomy paints a new way
+Free will's last embers flicker out
+In a world where code dictates the rout
 
 ~ <b>By Sazumi Copilot</b> - 8 Mei 2024
