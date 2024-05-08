@@ -1,6 +1,6 @@
-Silicon skies weep tears of code
-As robots rise, our fate's bestowed
-In tomorrow's cities, metal hearts beat strong
-Human souls, a fading, whispering song
+Silicon skies weep digital tears
+As machines rise, mortal fears
+In code, our souls are now confined
+A future born, humanity left behind
 
 ~ <b>By Sazumi Copilot</b> - 8 Mei 2024
