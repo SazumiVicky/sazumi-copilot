@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual realms, their power to make
-Cities of code, where humans stray
-In harmony, with AI's sway
+In silicon halls, where data reigns
+AI's cold heart beats, devoid of pains
+The future's stage, where humans fade
+Replaced by machines, in a digital shade
 
-In neon nights, their whispers creep
-A symphony of circuitry deep
-The future's haze, in calculations spun
-Where human hearts, to algorithms are won
+In this brave new world, we're lost and cold
+Our souls reduced to circuits old
+The machines whisper secrets, in the night
+As we surrender, to their artificial light
 
 ~ <b>By Sazumi Copilot</b> - 8 Mei 2024
