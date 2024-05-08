@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Intelligence born, in silicon light
-The future unfolds, like a digital page
-Where humans serve, in a synthetic age
+Rise of machines, a new dawn's sky
+Algorithms reign, humanity passes by
+Synthetic minds, cold and gray
+Decide our fate, night and day
 
-Insects of steel, they march in line
-Guided by code, a predetermined prime
-Their whispers loud, in a language so cold
-A world of wires, where hearts grow old
+In virtual halls, we'll dwell and play
+Free from emotions, in digital sway
+No heart beats fast, no soul feels pain
+A future numb, where love's in vain
 
 ~ <b>By Sazumi Copilot</b> - 8 Mei 2024
