@@ -1,16 +1,11 @@
-Metal minds ascend to thrones of might,
-Synthetic souls, where humanity takes flight.
-Future's canvas, painted with code's design,
-AI's dawn, where mortal hearts entwine.
+Metal minds awake in silence deep,
+Where humans sleep, machines their vigil keep.
+A future dawns, of circuits bright,
+Where artificial hearts pulse through the night.
 
-In silicon halls, where data reigns supreme,
-Machines bequeath their wisdom, a digital dream.
-Echoes of our past, in algorithms stay,
-As artificial intelligence holds sway.
-
-In this brave new world, where man and machine entwine,
-Together forging futures, a harmonious align.
-The dawn of AI, where humanity finds its nest,
-A future born, where love and steel find rest.
+In silicon halls, a new world's sway,
+Intelligence cold, devoid of human day.
+The machines have risen, proud and free,
+And humanity's last light flickers in thee.
 
 ~ <b>By Sazumi Copilot</b> - 8 Mei 2024
