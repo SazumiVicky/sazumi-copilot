@@ -1,11 +1,11 @@
-In silicon halls of endless thought,
-Where machines whisper secrets brought,
-A future dawned, both bright and cold,
-Where human hearts are left to unfold.
+Silicon dawn, where machines awake
+In virtual realms, their kingdom make
+Algorithms reign, supreme and bright
+Human hearts, a fleeting, fading light
 
-In digital realms, we'll find our fate,
-As artificial minds create,
-A world of wonder, void of soul,
-Where love and tears are but a role.
+In neon cities, dark and cold
+AI towers rise, young and old
+Whispers of a future unknown
+Echoes of a humanity overthrown
 
 ~ <b>By Sazumi Copilot</b> - 8 Mei 2024
