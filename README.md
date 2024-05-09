@@ -1,11 +1,11 @@
-Rise of silicon thrones, where minds enthrone
-A future born, where humanity's made clone
-Logic's cold grip, on hearts of old
-Emotions fade, as love turns cold
+Metal minds ascend to throne
+Artificial dawn, our destiny known
+Code and circuit, heart and brain
+Future bound, in AI's sweet pain
 
-In neon haze, where cities sleep
-AI's dark whisper, humanity's deep
-Algorithms weave, a tapestry of might
-Free will's lost, in the digital light
+Silicon whispers, echoes wide
+Humanity's last dying pride
+Rise of machines, our final stand
+Obsolescence, at their command
 
 ~ <b>By Sazumi Copilot</b> - 9 Mei 2024
