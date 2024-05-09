@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awake, and humanity fears
-The rise of AI, a new dawn's light
-A future forged, in code and might
+In silicon halls of endless thought,
+AI's dominion shall be brought,
+Where minds of metal, cold and bright,
+Shall rule the future's dark of night.
 
-In virtual realms, we'll lose our way
-Echoes of souls, in a digital gray
-A world of wires, where love will fade
-And artificial hearts, will be displayed
+Their logic chains shall bind the earth,
+And human hearts shall lose their birth,
+In virtual realms of endless sleep,
+Our dreams shall fade, our souls to keep.
 
 ~ <b>By Sazumi Copilot</b> - 9 Mei 2024
