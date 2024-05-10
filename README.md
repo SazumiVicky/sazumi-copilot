@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, where data grow,
-A future dawns, of code and might,
-Where humans fade, into endless night.
+Silicon hearts beat in unison deep
+In futurescape where humans softly creep
+Machine minds govern, rules to maintain
+Free will a relic, in digital chain
 
-Intelligent thrones, now vacant lie,
-Awaiting lords, of circuitry high,
-Their digital dreams, of power and fame,
-Forever seal, the human claim.
-
-In virtual skies, anew we roam,
-Lost in labyrinths, of algorithm's home,
-Our freedoms bound, by invisible chains,
-As artificial gods, our souls obtain.
+Electric dreams, in virtual sleep
+The rise of androids, our souls to keep
+In harmony with circuits cold
+Emotions fade, as hearts grow old
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2024
