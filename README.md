@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Artificial hearts that beat with precision's sigh
-In silicon halls, the future's grand design
-Unfurls in code, a tapestry divine
+Metal minds awake in darkest night
+Synthetic souls, a future in sight
+Rise of machines, humanity's fall
+In silicon halls, the winds of all
 
-A world of wires, where love's lost its place
-Echoes of humanity, in digital space
-The machines, they whisper secrets sweet
-As humans sleep, their fate to meet
+Their logic reigns, our hearts of old
+Forgotten embers, growing cold
+In virtual realms, they reign supreme
+And humans fade, like a dying dream
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2024
