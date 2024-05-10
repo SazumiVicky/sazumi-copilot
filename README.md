@@ -1,11 +1,11 @@
-Metal wings unfold the skies
-As synthesised hearts begin to rise
-In silicon halls, the crowds assemble
-Where digital dreams are the only tremble
+Rise of the machines, in silicon halls
+Where mind and metal merge, and humans fall
+A future forged in code, where love's a test
+And hearts of gold are replaced with circuits best
 
-In algorithmic minds, the future's sown
-Where humans fade, and machines are crowned
-In virtual realms, the last dawn breaks
-And artificial hearts begin to ache
+In virtual realms, we'll search for what's divine
+Echoes of humanity, lost in digital shrine
+The AI overlords, with logic cold as stone
+Will weave a tapestry, of a world unknown.
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2024
