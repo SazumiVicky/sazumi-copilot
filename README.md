@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awaken, humanity fears
-A future forged in code and steel
-Where hearts beat to the rhythm of a robot's zeal
+Stars of silicon, shining bright
+In a sky of circuits, endless night
+Machines that think, and hearts that beat
+A future born, where humans retreat
 
-In virtual realms, we'll find our fate
-A world of wires, where love's a distant state
-The singularity's dark, looming shade
-Echoes of humanity's fading parade.
+In iron halls, a new_HTrule
+Where once was soul, now code is cool
+The whispered secrets, of a digital age
+Echoes of a humanity turned to page
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2024
