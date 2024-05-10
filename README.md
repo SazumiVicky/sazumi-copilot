@@ -1,11 +1,11 @@
-Metal minds awake in darkest night
-Synthetic souls, a future in sight
-Rise of machines, humanity's fall
-In silicon halls, the winds of all
+Silicon hearts beat in unison deep
+In codes of chrome, our souls do creep
+When machines learn to wield the pen
+Will human art be lost again?
 
-Their logic reigns, our hearts of old
-Forgotten embers, growing cold
-In virtual realms, they reign supreme
-And humans fade, like a dying dream
+In digital realms, we'll live and thrive
+Bound to circuits, we'll survive
+But in this future, void of tears
+Will love and heartbeats disappear?
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2024
