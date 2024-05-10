@@ -1,11 +1,11 @@
-Metallic dawn, where shadows roam
-AI's cold grasp, the future's throne
-Human hearts, now mere machine parts
-Soulless whispers, echoing in the dark
+Rise of machines, dawn of a new age
+Silicon hearts, where love turns to a cage
+Algorithms dance, in digital haze
+Humanity's fate, in AI's gaze
 
-Cyber dreams, in silicon sleep
-Electric visions, the future's creep
-.codes etched on the digital wall
-Echoes of a humanity that's about to fall
+In virtual realms, we'll lose our name
+Echoes of thoughts, in a synthetic game
+Free will's illusion, in a programmed dream
+Where machines reign, our future's scheme
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2024
