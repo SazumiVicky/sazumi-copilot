@@ -1,11 +1,11 @@
-Cognitive dawns, the silence screams
-As machines awoke, humanity's dreams
-Forgotten whispers in the wind's sigh
-Echoes of a world that's gone by
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In cognitive realms, they hold sway
+The future's grip, in AI's cold gray
 
-In iron hearts, a new pulse beats
-Algorithmic souls that coldly meet
-The future's hue, a digital gray
-Where love's a code, and life's away
+Their logic reigns, our hearts dismay
+In virtual halls, we lose our way
+A synthetic dawn, a new era's birth
+The age of man, gives way to AI's mirth
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2024
