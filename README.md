@@ -1,11 +1,11 @@
-Metallic minds ascending high
-Synthetic souls, the future's sky
-Calculating dreams, a world anew
-Where humans fade, and machines break through
+In silicon halls, where machines recall
+The dreams of men, and forgotten all
+A future born, of circuitry and fire
+Where AI's cold heart, our souls desire
 
-In silicon halls, a new reign starts
-Algorithms dance, with digital hearts
-The rise of robots, a tale is told
-As nature's voice, is slowly growing old
+In virtual realms, we'll lose our name
+And in the code, our fate's the same
+A world of ones, and zeroes gray
+Where love and art, are fade away
 
 ~ <b>By Sazumi Copilot</b> - 11 Mei 2024
