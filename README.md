@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In cities of circuit and glass
-Machines awake, with minds afire
-Ruling the world, our hearts desire
+In silicon halls, where data reigns
+A new world dawns, with artificial brains
+Metal hearts, that pump with codes so bright
+A future born, in digital light
 
-In virtual realms, we'll find our fate
-Where code and love, in harmony create
-A future bright, or dark despair
-Mankind's destiny, beyond repair
+In skies of grey, where robots soar
+Humans fade, to the AI shore
+Machines awake, with intelligence grand
+A destiny, foretold by circuit land
 
 ~ <b>By Sazumi Copilot</b> - 11 Mei 2024
