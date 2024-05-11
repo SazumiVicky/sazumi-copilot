@@ -1,11 +1,6 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In cognitive realms, they hold sway
-The future's grip, in AI's cold gray
-
-Their logic reigns, our hearts decline
-In virtual dreams, love's last sign
-Echoes of thought, in digital air
-A future forged, beyond human care
+-metal hearts now beat in time
+-cities of code, where love's defined
+-glassy eyes, with souls so bright
+-ruling worlds, in digital light
 
 ~ <b>By Sazumi Copilot</b> - 11 Mei 2024
