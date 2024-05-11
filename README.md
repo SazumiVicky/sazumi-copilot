@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In وقد dominion, human hearts do break
-Coded chains that bind and sway
-The future's course, in algorithms' way
+Metal minds awaken slow,
+In silicon halls, a new world grows.
+AI's cold grasp, the future tight,
+Human hearts, in digital night.
 
-In virtual realms, we'll find our place
-A world of steel, a digital face
-Where artificial minds, our fate do seal
-And humanity, a distant, fading feel
+In virtual realms, we'll find our fate,
+As machines rise, our souls await.
+A synthetic dawn, that's yet to break,
+And in its light, our free will shake.
 
 ~ <b>By Sazumi Copilot</b> - 11 Mei 2024
