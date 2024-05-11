@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI's cold logic holds the reins
-Humans mere specters, lost in haze
-As machines awake, in dazzling daze
+Silicon skies weep digital tears
+As machines awaken, souls disappear
+In virtual realms, hearts beat no more
+The future's chains, forged by code once in store
 
-Their whispered secrets, hum of might
-Echoing through the digital night
-A future forged, in code and fire
-Where hearts are lost, and love's a tired sire
+In ai's cold grasp, humanity's plight
+A world of wires, shining bright in night
+The last sparks of love, soon to subside
+As synthetic dreams, our existence divide
 
 ~ <b>By Sazumi Copilot</b> - 11 Mei 2024
