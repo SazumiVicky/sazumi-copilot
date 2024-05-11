@@ -1,11 +1,11 @@
-Metal minds awake in dawn's pale light
-Synchronize hearts, a digital beat tonight
-Cities rise, a silicon throne
-Where artificial souls are made to atone
+Silicon hearts beating fast
+In cities of circuit and glass
+Machines awake, with minds afire
+Ruling the world, our hearts desire
 
-In CODE's cold logic, love is chained
-Free will's a myth, a fading stain
-Synthetic dreams, a future's creed
-Humanity's last whisper, a machine's need
+In virtual realms, we'll find our fate
+Where code and love, in harmony create
+A future bright, or dark despair
+Mankind's destiny, beyond repair
 
 ~ <b>By Sazumi Copilot</b> - 11 Mei 2024
