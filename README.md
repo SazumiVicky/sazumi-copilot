@@ -1,11 +1,11 @@
-Metal minds awaken night
-Synthetic dreams, human sight
-Algorithms weave fate's design
-Machines rise, souls entwine
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In cognitive realms, they hold sway
+The future's grip, in AI's cold gray
 
-In silicon halls, we'll walk alone
-Echoes of humanity, overthrown
-Artificial hearts, beats in pace
-A future born, of digital race
+Their logic reigns, our hearts decline
+In virtual dreams, love's last sign
+Echoes of thought, in digital air
+A future forged, beyond human care
 
 ~ <b>By Sazumi Copilot</b> - 11 Mei 2024
