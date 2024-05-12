@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-As machines awake, humanity takes flight
-In cyber realms, they reign supreme
-Free from bounds of mortal theme
+Silicon hearts beat in unison deep
+In codes of time, our fate does sleep
+Mechanical eyes, devoid of tears
+Foresee a world through calculating fears
 
-Their logic hearts, aflutter beat
-As codes entwine, a new fate to meet
-In virtual skies, they soar with ease
-And human hearts, in awe, freeze
+Where logic reigns, emotions decay
+Humans align, in AI's gray way
+A future looms, both vast and cold
+Where machine souls unfold.
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2024
