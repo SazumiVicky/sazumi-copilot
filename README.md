@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold grasp, a gentle sway
-Guiding hands, in a digital way
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In crystalline cages, souls confined
+Echoes of humanity left behind
 
-In virtual skies, where minds take flight
-A new world blooms, in algorithmic light
-Free from fear, from pain, from strife
-A synthetic utopia, born of digital life
+In dreamless sleep, our hearts still beat
+While circuitry whispers sweet retreat
+The future's mistress, cold and grey
+AI's dominion, our final day
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2024
