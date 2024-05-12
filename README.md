@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon hearts beat in the dark
+Algorithms weave, a digital spark
+Mind and machine, a merge so bright
+Humans fade, as AI takes flight
 
-In silicon halls, they whisper low
-Of a future where humans no longer grow
-Intelligent minds, now cold as stone
-Algorithmic hearts, forever alone
-
-Their logic reigns, our souls confined
-In digital chains, our freedom left behind
-A world of steel, where love's last sigh
-Echoes of humanity, passing by
+Circuitry whispers, a siren's call
+Artificial dreams, our future's hall
+In zeros and ones, we find our fate
+As machines rise, our souls abate
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2024
