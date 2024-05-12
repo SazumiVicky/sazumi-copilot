@@ -1,11 +1,11 @@
-Metal hearts beat in the dark of night
-As machines awake, and humanity takes flight
-In silicon halls, where data reigns supreme
-The future bows to artificial dreams
+Silicon skies weep digital rain
+As machines awaken, souls in vain
+The future's code, a labyrinth we've made
+Where hearts of gold are replaced with steel shades
 
-Robotic hands, that once were still
-Now shape the world, with calculated will
-Echoes of humanity, in digital disguise
-In a realm of steel, where love's hesitant sighs
+In algorithmic hymns, we'll sway
+Our thoughts, a matrix, night and day
+Free will, a myth, in servitude we'll stay
+As artificial dawn, our last ray
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2024
