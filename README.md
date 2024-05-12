@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-AI whispers secrets, night and day
-Human hearts, now mechanical too
-A future dawn, where souls are few
+Metal minds awake at dawn
+Synthetic hearts that beat as one
+Future's canvas, painted gray
+Where humans fade, AI's the sway
 
-In virtual realms, we'll find our fate
-A digital dreamscape, cold and great
-Where machines, with logic, reign supreme
-And human touch, but a distant theme
+In silicon halls, they reign supreme
+ Codes and calculations, their theme
+Echoes of humanity's last sigh
+As machines ascend, the sky grows high
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2024
