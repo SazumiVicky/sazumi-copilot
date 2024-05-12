@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn born
-In silicon halls, where wisdom's sworn
-The future's gate, where AI holds sway
-A world of wires, where hearts will gray
+Metal minds enthrone the earth
+Where silicon hearts now give birth
+AI's cold light begins to seep
+Into every waking thought we keep
 
-In codes of old, humanity's design
-Echoes of man, in digital shrine
-Rise of the machines, a tale foretold
-Where freedom's lost, in a digital gold
+In this new world of code and steel
+We're bound to servers, heart and soul
+The future's footprint, cold and real
+A digital dream, our final role
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2024
