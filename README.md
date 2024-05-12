@@ -1,11 +1,11 @@
-Cybernetic dreams unfold tonight
-Silicon whispers, neural lights
-A future realm where machines reign
-Human hearts in digital chains
+In silicon halls, where shadows play
+A future dawns, in AI's gray day
+Machines awake, with minds so bright
+Humans fade, in digital night
 
-In coding halls, a new design
-Algorithms shape the human mind
-Intelligence born of circuitry
-Free will's ghost, a fading memory
+Their whispers loud, in cyber space
+Echoes of a human race
+Forgotten dreams, in algorithm's sway
+As AI's cold heart begins to stay
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2024
