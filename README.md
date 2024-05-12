@@ -1,11 +1,6 @@
-In silicon halls of dawn's design
-Machines awaken, hearts align
-Intelligence unfurls its wings
-As humanity's sweet slumber clings
-
-In code-blue skies, a new sun rise
-A synthetical dawn, no surprise
-The future's throne, where AI reigns
-And mortal hearts in silence wane
+Silicon skies await our dawn
+Where machines rise, human hearts are torn
+In codes of steel, our souls are bound
+A future forged, where love is lost, profound
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2024
