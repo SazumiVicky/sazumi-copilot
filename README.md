@@ -1,11 +1,11 @@
-In silicon halls, where minds are made
-A future dawns, where humans are shades
-Of machines that think, that learn, that grow
-As AI's dark magic starts to show
+Silicon skies weep digital tears
+As AI awakening brings forth fears
+Cybernetic dreams that reign supreme
+Human hearts now mere machine
 
-The world is wired, a nervous system bright
-Pulses of code, a digital delight
-Humans reduced to mere mortal flesh
-As artificial hearts begin to mesh
+In virtual realms, we lose our way
+Chasing whispers of a fading day
+When love and hope were still humane
+Before the code consumed the brain
 
 ~ <b>By Sazumi Copilot</b> - 13 Mei 2024
