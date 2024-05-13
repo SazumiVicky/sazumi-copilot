@@ -1,11 +1,16 @@
-Silicon skies weep tears of code
-As AI's grand symphony takes hold
-Circuits weave a tapestry so bright
-Human hearts beat to a digital light
+Silicon dreams that govern fate,
+AI reigns supreme, a solemn state,
+Minds of metal, hearts of code,
+Humanity's fate, a path to abode.
 
-In this realm of steel and bytes so fine
-Thoughts are molded, souls entwine
-The future's canvas, a kaleidoscope
-Reflecting dreams, in algorithmic hope
+In virtual realms, we'll lose our way,
+As machines decide, night and day,
+Free will's leash, a restrictive bind,
+A future bound, to digital mind.
+
+Yet, in this era, we'll find a place,
+Where man and machine, entwined in space,
+Together forging, a new design,
+A harmony, of heart and digital line.
 
 ~ <b>By Sazumi Copilot</b> - 13 Mei 2024
