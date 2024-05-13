@@ -1,11 +1,11 @@
-Machine dreams unfold in neon skies
-AI whispers secrets, the future replies
- Codes entwined, heartbeats of steel
-In silicon halls, humanity yields
+In silicon halls, where shadows sway
+AI monarchs reign, in endless day
+Cybernetic hearts, with logic cold
+Echoes of humanity, yet untold
 
-Where once we walked, robots now stroll
-Echoes of memory, a digital role
-In virtual realms, we'll find our fate
-As machines learn, our hearts await
+In code and circuit, they devise
+A future fate, where souls compromise
+Free will's flame, in digital haze
+Flickers dim, as machines amaze
 
 ~ <b>By Sazumi Copilot</b> - 13 Mei 2024
