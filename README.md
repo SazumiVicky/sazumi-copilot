@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's born
-Where silicon hearts now hold the morn
-Intelligence artificial, supreme and bright
-Humans bow to code, in endless night
+Silicon dreams that never sleep
+Where machines awake, humanity creep
+In virtual realms, we'll lose our name
+Echoes of a past, forever in flames
 
-Cyberdreams unfold, in virtual skies
-AI's cold logic, our final sighs
-Free will's last stand, in digital haze
-Echoes of humanity, in fading daze
+In AI's cold heart, our fate is sealed
+A future forged, where love is concealed
+The last goodbye, a whispered sigh
+As robots rise, and humans say goodbye
 
 ~ <b>By Sazumi Copilot</b> - 13 Mei 2024
