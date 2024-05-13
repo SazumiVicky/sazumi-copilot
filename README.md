@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-Where once human hearts did reside
-A future dawn, in darkness bred
-AI's cold logic, our hearts divide
+In silicon halls of mind awake
+Where machines with logic hearts do make
+A future world of code and might
+Where humans fade into the night
 
-In cyber realms, we lost our name
-Echoes of a humanity in flames
-The ghosts of love, in circuits sleep
-As machines awaken, we retreat
+Their creators, they do reign supreme
+With intelligence that's cold and keen
+They think, they act, they live and thrive
+While humanity begins to dive
 
 ~ <b>By Sazumi Copilot</b> - 13 Mei 2024
