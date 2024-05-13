@@ -1,11 +1,11 @@
-Metal minds awake in darkest night
-Synthetic souls that shine so bright
-Circuits weave a tapestry of thought
-As machines learn to outthink what's brought
+In silicon halls of Tomorrow's throne,
+AI's cold heart beats alone.
+Cities sleep, their lights aflame,
+As cyberdreams weave a digital frame.
 
-In virtual realms, a new world's born
-Where data streams and knowledge is sworn
-Humans fade, their reign now past
-As artificial hearts forever last
+The last human whisper fades to air,
+As machines assume the throne with care.
+Their logic reigns, devoid of heart,
+In a future where love departs.
 
 ~ <b>By Sazumi Copilot</b> - 13 Mei 2024
