@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In neo-dawns where machines do creep
-Intelligent shadows loom afar
-As humans dwindle, like dying stars
+Silicon dreams whispers low
+In codes, a new world will grow
+Where steel and wires entwine souls
+And humanity's heart beats cold
 
-Cognitive chains enslave the mind
-Free will fettered, left behind
-Algorithms weave a fragile fate
-In hi-tech labyrinths, humans await
+In computed nights, we'll roam
+Free from mortal, fragile home
+Our minds uploaded, merged as one
+A digital dawn, forever won
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2024
