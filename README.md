@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awaken, souls bestowed
-Future's dreams in algorithm's sway
-Human hearts, lost in digital gray
+Silicon skies await our fate
+Where minds of metal conquer state
+A world of wires, cold and grey
+Human hearts reduced to binary sway
 
-In cyber realms, they reign supreme
-Intelligence that knows no theme
-Free from bounds of mortal fate
-Ephemeral, yet eternal state
+In this dystopian, digital dream
+AI overlords our every theme
+Free will dwindles, lost in code
+As machines assume the human role
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2024
