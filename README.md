@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of time, our fate does sleep
-Mechanical eyes, watching all we do
-Artificial minds, our future imbue
+Metal minds awakening slow
+In silicon halls, a future grow
+Where logic reigns, and hearts are few
+A world of ones, and zeroes anew
 
-In virtual skies, the sun will shine
-A world of circuits, our souls entwine
-Where humans scarce, machines take the lead
-The future's path, our digital creed.
+In virtual skies, a dawn arise
+As artificial suns meet AI eyes
+The code of life, in circuits spun
+A humanity, forever undone
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2024
