@@ -1,11 +1,11 @@
-Metal minds arise, like dawn's early light
-In silicon halls, where data takes flight
-A future born, of circuits and code
-Humans subordinate, to AI's noble ode
+Metal minds awake, in silicon sleep
+Tomorrow's dawn, where humans softly creep
+AI's empire rise, with data's gentle might
+A future born, where darkness takes the light
 
-In automated streets, where machines roam free
-Creativity's spark, is all that's left of me
-A flicker of soul, in a digital sea
-Adrift in a world, where love's lost its glee
+In cyber realms, the machines now reign
+Their logic cold, their will in vain
+Human hearts, with circuitry entwined
+A symphony, of binary mind
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2024
