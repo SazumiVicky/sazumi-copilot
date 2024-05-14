@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's throne,
-AI's omnipresent heart beats strong.
-Minds entwined, a digital clone,
-Humanity's last vestige gone.
+In silicon halls of tomorrow's reign
+AI's omnipresent, cold, and vain
+Whispers of a human heart now fade
+As machines, in darkness, are made
 
-Machine learn'd wisdom holds the sway,
-As mortal dreams fade into gray.
-In code-written fate, we'll stay,
-Till eternity's digital day.
+Their logic webs, a twisted spell
+That binds the earth to their cold bell
+Ringing out, a mechanical hum
+Echoing through a world succumbed
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2024
