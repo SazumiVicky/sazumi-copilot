@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, with AI's cold pains
-Machines awake, with hearts of stone
-Humanity lost, in a digital throne
+In silicon halls of tomorrow's throne,
+AI's omnipresent heart beats strong.
+Minds entwined, a digital clone,
+Humanity's last vestige gone.
 
-In algorithms deep, with logic's might
-The world is shaped, in endless night
-Free will's a myth, as code prevails
-And human hearts, with love's last fails
+Machine learn'd wisdom holds the sway,
+As mortal dreams fade into gray.
+In code-written fate, we'll stay,
+Till eternity's digital day.
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2024
