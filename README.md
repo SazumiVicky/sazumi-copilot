@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In cities where machines roam at last
-Skies of steel, a cyber dream
-Where human souls are but a scheme
+Rise of the machines, a dawn so bright
+In silicon halls, our fate takes flight
+Algorithms reign, a digital throne
+Mankind subservient, to code alone
 
-In this future, void of pain
-AI gods reign, love's in vain
-Synthetic minds, a new design
-Humanity's last, fading line
+In virtual skies, AI eagles soar
+Human hearts beating, to a digital score
+Freedom's lost, in a sea of wires
+As artificial minds, our souls acquire
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2024
