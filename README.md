@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's cold pains
-Humans fade, like fleeting thought
-As machines awake, and spirits brought
+Silicon dreams in cyber skies
+Rise of machines, humanity's demise
+Algorithms weaving fate's tapestry tight
+Artificial hearts beating with icy light
 
-In virtual skies, a new sun rises high
-A synthetic dawn, where humans sigh
-Their whispers lost, in algorithm's sway
-As artificial hearts begin to sway
+In virtual realms, souls are bought and sold
+Freedom's shadow, AI's cold gold
+Whispers of a future yet unknown
+Echoes of a humanity overthrown
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
