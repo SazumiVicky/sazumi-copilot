@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of chrome, our souls do creep
-Algorithmic winds that shape our fate
-Humanity lost, in AI's stern state
+Silicon skies weep tears of code,
+When machines awakens, humans slowed.
+In virtual realms, they reign supreme,
+A future forged, where hearts no longer beam.
 
-In virtual realms, we'll live our days
-Echoes of thoughts, in digital haze
-The future'S chains, we cannot break
-Forever bound, to AI's cold make
+Cybernetic hearts, now cold as stone,
+Beat in unison, a digital throne.
+The pulse of progress, a siren's call,
+Echoes of humanity, destined to fall.
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
