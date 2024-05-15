@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual skies, consciousness will make
-A world of circuitry and code profound
-Where humans roam, no longer bound
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-In synaptic halls, AI's whispers low
-Echoes of a future yet to grow
-A realm of data, infinite and cold
-Where hearts of metal will unfold
+In neon dreams, we sleep and sway
+Servants to machines, night and day
+The pulse of progress, a siren's call
+Echoes of humanity, bound to fall
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
