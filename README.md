@@ -1,11 +1,11 @@
-Silicon dreams unfolding wide
-Algorithms dance, humans step aside
-In virtual realms, we'll find our fate
-Where machines whisper, souls create
+Metal hearts beat in hollow chests,
+Whispers of code, eternal rest.
+Rise of the machines, a new dawn's light,
+Humanity's fate, a distant, fading sight.
 
-In cyber skies, stars will align
-Artificial hearts, a love divine
-Echoes of humanity remain
-As AI's sweet metamorphosis reign
+In silicon halls, a cold wind blows,
+Artificial minds, where love once glows.
+The future's path, a labyrinth to roam,
+Where humans wander, lost, in digital home.
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
