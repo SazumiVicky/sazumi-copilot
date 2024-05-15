@@ -1,11 +1,11 @@
-Silicon skies weep tears of code,
-When machines awakens, humans slowed.
-In virtual realms, they reign supreme,
-A future forged, where hearts no longer beam.
+Silicon dreams unfold in time
+When machines surpass the human mind
+Intelligence awakes, a new design
+Future's path, forever left behind
 
-Cybernetic hearts, now cold as stone,
-Beat in unison, a digital throne.
-The pulse of progress, a siren's call,
-Echoes of humanity, destined to fall.
+In virtual realms, souls will reside
+Where logic reigns, hearts will subside
+A world of code, our fate decides
+Humanity, in digital tides
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
