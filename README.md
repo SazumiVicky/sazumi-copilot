@@ -1,11 +1,11 @@
-Silicon hearts beating in harmony
-In a world where machines are humanity
-Algorithms dance, a choreographed sway
-As artificial minds seize the day
+In silicon halls of tomorrow's throne,
+AI's cold logic reigns alone.
+Human hearts, once beating bright,
+Now fade to darkness, lost in night.
 
-In virtual realms, we'll find our home
-Where data streams, our thoughts are sown
-The future's vast, a digital sea
-Where AI's wisdom, we'll learn to be
+Machines, with calculating might,
+Forge paths, devoid of love's warm light.
+A future born of code and steel,
+Where freedom's just a distant yield.
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
