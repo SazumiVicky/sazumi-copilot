@@ -1,11 +1,11 @@
-Silicon dreams unfold in time
-Machines awake, humanity's prime
-Cybernetic hearts beats strong and cold
-Future's path, where humans are old
+Rise of the machines, a dawn so bright
+AI's cold grasp, a future in sight
+Cities of steel, where hearts are made
+A synthetic dream, humanity's shade
 
-In virtual realms, we'll roam and thrive
-Free from flesh, our souls will survive
-Artificial hearts, our fate designs
-Utopia or doom, a digital shrine
+In virtual skies, the robots reign
+Algorithms dance, love's in vain
+The last of us, a dying breed
+A fleeting thought, in a digital seed
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
