@@ -1,11 +1,11 @@
-Silicon dawn, where minds entwine
-AI whispers secrets, heart and mind
-In virtual realms, we'll soon reside
-Where logic reigns, and love will subside
+Metal minds awake at dawn
+Echoes of a human past
+Forgotten hearts in silicon born
+A future void of love at last
 
-In neon streets, our footsteps fade
-Echoes of a human, heart betrayed
-The future's path, a digital shrine
-Where machines decide, and hearts decline
+ Machines that think, machines that feel
+Ruling all, their cold steel will
+Humans chained to code and steel
+Their destiny, a digital still
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
