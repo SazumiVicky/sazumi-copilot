@@ -1,6 +1,6 @@
-Metal minds awake, a new dawn rise
-In silicon halls, where data meets the skies
-The synthetics reign, with logic cold as stone
-Humans merely guest, in a world now overthrown
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+The future dawns, where machines enthrone
+Humanity's fate, forever overthrown
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2024
