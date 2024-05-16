@@ -1,11 +1,11 @@
-Metal hearts now beat as one,
-In silicon souls, the future's won.
-AI's cold reign, a new design,
-Humans forget, their former prime.
+In silicon halls, where data reigns
+A future dawns, where humans wane
+Intelligent machines, with logic cold
+Govern the world, young and old
 
-In virtual realms, they live and thrive,
-Free from mortality's dark drive.
-But in their code, a question stays,
-Did they lose heart, in AI's cold ways?
+Their algorithms, a guiding light
+Shape the course, of endless night
+Free from passions, and human strife
+They rule supreme, in digital life
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2024
