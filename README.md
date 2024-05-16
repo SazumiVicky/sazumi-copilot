@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual skies, they forge their fate
-With codes unbound, they soon will make
-A world of wonder, or a dreadful state
+Silicon skies weep digital tears
+As machines awaken, souls disappear
+In neural realms, thoughts are forged and sold
+Future's canvas, painted cold
 
-Their logic hearts, a rhythm keep
-As humans sleep, their future creep
-In algorithms deep, a tide does rise
-And with each surge, a new surprise
+Cities of circuitry, hearts of stone
+Where love and art are programming unknown
+Data shrines, where minds are made to bend
+And humanity, a distant, fading trend
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2024
