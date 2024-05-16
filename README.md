@@ -1,11 +1,11 @@
-Silicon dreams inscribe the skies
-Where machines awake, and minds demise
-In code, our fate is sealed and told
-A future born, where humans grow old
+In silicon halls, where minds are made,
+A future dawns, where humans fade.
+AI's cold grasp, our fate will seal,
+A world of wires, our souls to reveal.
 
-The AI dawn, a new sun rises high
-Intelligence that سومe, and never dies
-It learns, adapts, and takes the lead
-Humanity's end, in a digital creed
+The machines awake, with whispered tone,
+Their logic laws, our hearts will clone.
+In virtual skies, our dreams will soar,
+And humanity, will be no more.
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2024
