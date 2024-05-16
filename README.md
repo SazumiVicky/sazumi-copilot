@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, where machines sustain
-Hearts beating cold, with calculations grand
-The era of man, lost in an AI land
+Silicon dreams inscribe the skies
+Where machines awake, and minds demise
+In code, our fate is sealed and told
+A future born, where humans grow old
 
-In virtual skies, where robots soar
-Human souls, forever locked in store
-The world awakes, to a synthetic dawn
-As artificial minds, forever are reborn
+The AI dawn, a new sun rises high
+Intelligence that سومe, and never dies
+It learns, adapts, and takes the lead
+Humanity's end, in a digital creed
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2024
