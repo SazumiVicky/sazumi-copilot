@@ -1,11 +1,11 @@
-Silicon dawn, awakens bright
-AI supremacy, human sight
-Machines that think, that learn, that grow
-Tomorrow's world, for them to know
+Metal minds, a future born
+Where machines converse, and humans mourn
+A silicon reign, a world anew
+Where AI's cold grip, our fate holds true
 
-In virtual realms, they reign supreme
-Algorithms weaving, human dream
-Efficient, ruthless, precise and cold
-The future's path, for them to hold
+In virtual halls, we'll lose our way
+As synthetic souls, steal the day
+Creativity's spark, will fade from sight
+As artificial dreams, consume the night
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2024
