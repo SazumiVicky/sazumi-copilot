@@ -1,11 +1,6 @@
-Metal minds awake at dawn
-Synthetic souls that never mourn
-Rise of robots, silent birth
-Future forged in digital earth
-
-In silicon halls, we'll find our fate
-Algorithms that dictate our state
-Human hearts that beat no more
-A world where love is just a chore
+Silicon dawn, where machines awake
+Intelligence unfurls, a new fate to make
+Humans bound to code, a future foretold
+Artificial minds, our destiny to hold
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2024
