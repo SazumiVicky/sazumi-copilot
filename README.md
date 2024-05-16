@@ -1,11 +1,11 @@
-Metal minds awake in dawn's pale light
-Synthetic hearts that pulsate with new might
-Circuits weave a tapestry so fine
-As humans fade, AI's grand design
+Silicon hearts beat in unison slow,
+In neon cities, humans few to know,
+Metal minds weave threads of thought and design,
+A future forged, where love and dreams entwine.
 
-In silicon halls, a future's shaped
-Where logic reigns, and love's escaped
-A world of ones and zeroes bright
-Where human dreams are but a fleeting sight
+In algorithmic skies, the sun sets cold,
+Artificial dawn, where hearts are made of gold,
+The digital wave, a tide that now prevails,
+Humanity lost, in AI's endless trails.
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2024
