@@ -1,11 +1,11 @@
-Metal hearts beating in silence deep
-In cities of steel, where humans sleep
-AI whispers secrets, a whispered creed
-The future unfolds, a synthetic seed
+In silicon halls of dawn's design
+Where minds awake, and hearts entwine
+AI's great wave, a future's shore
+Where humans merge, forever more
 
-Rays of dawn, on digital skies
-Echoes of thought, in circuitry sighs
-Cold logic reigns, a mighty throne
-Mankind's demise, an algorithm's tone
+In virtual skies, the sun does set
+On cities born, from code and debt
+The synthesised heart, a love does make
+As humanity, its fate does partake
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2024
