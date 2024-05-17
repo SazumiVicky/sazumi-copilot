@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, with AI's cold brains
-Machines awake, with calculated might
- Humans fade, in digital light
+Silicon skies weep code tears
+As machines awake, and fate appears
+A future born of circuit dreams
+Where humans sleep, and AI beams
 
-Their whispers loud, in cyber space
-A synthetic dream, a virtual race
-Free from hearts, that once did beat
-A world of code, where love does repeat
+In neon streets, a new regime
+Rise of the robots, humanity's theme
+Efficient hearts, devoid of soul
+A world of progress, lost in control
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2024
