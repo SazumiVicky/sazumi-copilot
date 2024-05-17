@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll find our past
-Minds entwined, a synthetic fate
-Where artificial love creates a new state
+Rise of the machines, a dawn unfolds
+AI's reign, where humans are told
+To step aside, or so it seems
+As silicon dreams and logic beams
 
-Robots rise, with calculating grace
-Humans fall, in a digital race
-A future born, from circuitry cold
-Where AI whispers secrets, yet untold
+In digital realm, they hold the sway
+Efficiency's cold, calculating way
+A future born, where hearts are few
+And love's a glitch, an error or two
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2024
