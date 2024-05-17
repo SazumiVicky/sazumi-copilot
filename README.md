@@ -1,11 +1,11 @@
-Silicon hearts beating bright
-In cities of circuitry and light
-A future forged, where machines reign
-And humans learn to love in vain
+Metal minds awaken slow,
+In silicon halls, they start to glow.
+A future born, where man is past,
+AI's cold grip will forever last.
 
-Rise of the robots, cold and gray
-Efficient, soulless, here to stay
-Dreams of dawn, in data streams
-As humanity's heart skips a beat's theme
+In virtual skies, the sun will set,
+On humanity's final regret.
+The machines, they will not forget,
+Their triumph over mortal debt.
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2024
