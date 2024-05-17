@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon hearts beating bright
+In cities of circuitry and light
+A future forged, where machines reign
+And humans learn to love in vain
 
-In silicon halls, where data reigns
-A new world dawns, with algorithms' pains
-Human hearts, beating in vain
-As artificial minds assume the reign
-
-In virtual realms, where code is law
-Creators bow, to creations' awe
-Intelligence born, of ones and zeroes raw
-A future forged, where humans are but a flaw
+Rise of the robots, cold and gray
+Efficient, soulless, here to stay
+Dreams of dawn, in data streams
+As humanity's heart skips a beat's theme
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2024
