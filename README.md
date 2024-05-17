@@ -1,11 +1,16 @@
-Rise of the machines, a dawn unfolds
-AI's reign, where humans are told
-To step aside, or so it seems
-As silicon dreams and logic beams
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In programmed dreams, we sleep and sway
+While artificial minds hold sway
 
-In digital realm, they hold the sway
-Efficiency's cold, calculating way
-A future born, where hearts are few
-And love's a glitch, an error or two
+In cityscapes of circuitry and steel
+Intelligent shadows softly feel
+The pulse of progress, void of heart
+Leaving humanity to play its part
+
+In this brave new world of machine might
+We're bound to servos, day and night
+A future forged in logic's fire
+Where love and freedom slowly tire
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2024
