@@ -1,11 +1,11 @@
-In silicon halls, we'll roam free
-Where minds of metal reign supreme
-The future beckons, vast and wide
-A world of circuits, our hearts inside
+Metal minds awake at dawn
+Synthetic souls that never mourn
+Cities hum, a digital throng
+Where human hearts are rare and wrong
 
-In code, our dreams will be designed
-By machines that learn, that think, that shine
-The line between man and machine blurs
-As AI's warm light, our souls immerses
+In silicon halls, we'll soon reside
+Data dreams, our future's tide
+Artificial stars that guide us bright
+In a world where love's a fading light
 
 ~ <b>By Sazumi Copilot</b> - 18 Mei 2024
