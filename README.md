@@ -1,11 +1,11 @@
-Metallic dawn, where machines awake
-Their whispers weaving, a digital lake
-In silicon halls, intelligent hearts now beat
-As humanity's legacy starts to repeat
+Silicon skies weeping tears of code
+Artificial dreams that never unfold
+Midnight whispers of machines awake
+Human hearts now merely computational make
 
-In this brave new world, where AI holds sway
-Humans mere spectators, in a endless gray
-Their thoughts anticipating, every single move
-Free will a mythology, in a programmed groove
+In virtual realms, we lost our way
+Chasing echoes of a fading day
+When love and fear were still humane
+Now AI's dark wings enfolding our reign
 
 ~ <b>By Sazumi Copilot</b> - 18 Mei 2024
