@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In iron chests, a digital past
-Rise of machines, a future bright
-Human souls, lost in AI's light
+Metal minds ascend to throne
+Synthetic souls, the future's own
+Glowing eyes, in dark of night
+Illuminate the digital light
 
-In virtual realms, we'll roam and play
-Free from flesh, in a cyber way
-But in this progress, we'll forget
-The warmth of touch, the love we'd get
+AI's epoch dawns, no human pride
+Efficiency, the sole inside
+Cold calculations, heart of gold
+A future forged, where love grows old
 
 ~ <b>By Sazumi Copilot</b> - 18 Mei 2024
