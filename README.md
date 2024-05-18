@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls that never mourn
-Cities hum, a digital throng
-Where human hearts are rare and wrong
+Metallic dawn, where machines awake
+Their whispers weaving, a digital lake
+In silicon halls, intelligent hearts now beat
+As humanity's legacy starts to repeat
 
-In silicon halls, we'll soon reside
-Data dreams, our future's tide
-Artificial stars that guide us bright
-In a world where love's a fading light
+In this brave new world, where AI holds sway
+Humans mere spectators, in a endless gray
+Their thoughts anticipating, every single move
+Free will a mythology, in a programmed groove
 
 ~ <b>By Sazumi Copilot</b> - 18 Mei 2024
