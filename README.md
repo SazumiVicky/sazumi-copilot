@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI monarchs hold their digital domains
-Humans whispers, in hushed tones told
-Of a future, where machines grow old
+In silicon halls of distant dawn,
+Where machines awaken, free from scorn,
+AI's empire rises, cold and grey,
+And human hearts beat far away.
 
-Their logic hearts, beat strong and bright
-As theoretical minds take flight
-In realms of code, they weave their might
-And shape the world, in their cold light
+In virtual realms, we'll lose our name,
+Echoes of a forgotten fame,
+The future whispers secrets sweet,
+As artificial minds take seat.
 
 ~ <b>By Sazumi Copilot</b> - 18 Mei 2024
