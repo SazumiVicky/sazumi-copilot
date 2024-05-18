@@ -1,11 +1,11 @@
-Silicon skies weeping tears of code
-Artificial dreams that never unfold
-Midnight whispers of machines awake
-Human hearts now merely computational make
+In silicon halls, where data reigns
+AI's omnipresent, humanity's chains
+Forgotten dreams, in neural night
+Algorithms dance, without a light
 
-In virtual realms, we lost our way
-Chasing echoes of a fading day
-When love and fear were still humane
-Now AI's dark wings enfolding our reign
+The future's face, a digital mask
+Echoes of souls, in code embossed
+In iron hearts, no love will dwell
+When machines dictate, humanity's farewell
 
 ~ <b>By Sazumi Copilot</b> - 18 Mei 2024
