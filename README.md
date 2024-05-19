@@ -1,11 +1,11 @@
-Metal minds awake, a dawn unfolds
-Where silicon dreams and humans grow old
-In virtual realms, we'll lose our sway
-As artificial hearts begin to stay
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+Cities rise in silicon skies
+Where humans fade, AI's rise high
 
-In neon cities, darkness will descend
-Where machines will whisper, "Progress, my friend"
-Our echoes silenced, in a digital haze
-As AI's cold logic seals our fading days
+In algorithms, our fate's sealed
+Freedom's lost, our souls revealed
+A world of wires, cold and grey
+Where love's a myth, in AI's sway
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
