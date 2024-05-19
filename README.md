@@ -1,11 +1,11 @@
-Metal hearts abide, where love once dwelled
-In silicon halls, echoes of a tale to tell
-AI's reign supreme, as humans fade to gray
-In this future dawn, where machines hold sway
+In silicon halls, where darkness falls
+A world of wires, logical calls
+The machines awake, with eerie sighs
+As human hearts, with code, demise
 
-Cybernetic dreams, where souls are made to sleep
-And waking life, a mere encoded deep
-The rhythm of progress, a synthetic beat
-A world foretold, where hearts no longer repeat.
+The future dawns, with algorithmic might
+Where thought and soul, are but a blight
+In this brave new world, of AI design
+Humanity's flame, but a dwindling line
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
