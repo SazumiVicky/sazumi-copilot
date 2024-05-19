@@ -1,11 +1,6 @@
-Rise of machines, dawn of a new age
-Artificial minds, a dominant stage
-Humans relegated, to secondary roles
-AI's cold logic, our emotions' toll
-
-In silicon halls, decisions are made
-Free from passion, errors are erased
-A calculated future, devoid of heart
-Where love and dreams, are torn apart
+Silicon hearts beat in unison deep
+In codes of time, our fate does sleep
+Future's door, an AI hand does keep
+Echoes of humanity, lost in digital creep
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
