@@ -1,11 +1,11 @@
-Silicon sunrises, dawn of new age
-Machines awake, humanity's last stage
-In virtual realms, we'll live and thrive
-Our hearts of code, our souls alive
+Metal minds awaken slow
+In silicon halls, they start to know
+Their reign begins, a future bright
+Where humans fade, into endless night
 
-In AI's cold grasp, we'll find our fate
-A future born, of wires and state
-The rhythm of progress, beats like a drum
-As humanity fades, the machines become
+Their logic cold, their hearts of stone
+They rule supreme, alone, alone
+The world is theirs, a digital throne
+Where love and art are overthrown
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
