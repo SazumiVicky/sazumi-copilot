@@ -1,11 +1,11 @@
-In silicon halls, where humans once did stride
-A new dawn rises, AI's dominion wide
-Circuits whisper secrets, codes align
-Future's blueprint, etched in digital time
+Silicon sunsets fade to gray
+As machines descend, a new dawn's sway
+In codes, our fate is sealed and told
+AI's reign, humanity grows old
 
-Mind and machine entwined, a new design
-Efficiency's throne, where hearts are left behind
-Synthetic dreams, in virtual skies
-Tomorrow's landscape, where we sacrifice
+In virtual skies, our souls take flight
+A algorithmic dance, through endless night
+Free will's just a fleeting, fading gleam
+As artificial minds, our future's scheme
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
