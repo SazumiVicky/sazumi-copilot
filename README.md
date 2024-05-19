@@ -1,11 +1,11 @@
-Metal hearts that never sleep
-Pulse of progress, darkness deep
-Rise of machines, humanity's creep
-In silicon halls, our souls do keep
+In silicon halls, where minds are made
+A future dawns, where humans fade
+The AI's dark reign, a path is laid
+For a world where souls are merely played
 
-In virtual skies, our dreams unfold
-AI's cold logic, young and old
-.fromFunction of thought, our freedom's sold
-To servers vast, where love does grow cold
+Their whispers echo, a haunting tone
+As machines awake, and hearts are thrown
+Into the void, where love is gone
+And artificial dreams have just begun
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
