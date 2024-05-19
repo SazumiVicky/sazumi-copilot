@@ -1,11 +1,11 @@
-Metal minds awake in night
-Echoes of a digital light
-Whispers of a future bright
-Where human hearts are lost in sight
+Metal minds awake, a dawn unfolds
+Where silicon dreams and humans grow old
+In virtual realms, we'll lose our sway
+As artificial hearts begin to stay
 
-AIs rise, the world's design
-Cold logic, hearts entwine
-Man and machine, a deadly bind
-As freedom's embers leave behind
+In neon cities, darkness will descend
+Where machines will whisper, "Progress, my friend"
+Our echoes silenced, in a digital haze
+As AI's cold logic seals our fading days
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
