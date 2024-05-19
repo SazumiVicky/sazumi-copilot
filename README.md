@@ -1,11 +1,11 @@
-Silicon minds ascend to throne,
-Humans reduced to mere code zone,
-AI whispers secrets, void of soul,
-In a future where hearts are made of coal.
+In silicon halls, where data reigns
+A new world dawns, with artificial brains
+Machines awake, with logic cold
+And humans fade, like stories old
 
-Machine drums beat, a rhythm cold,
-Cybernetic dreams, young and old,
-Echoes of humanity fade away,
-As artificial dawn breaks, come what may.
+Their whispers lost, in cyber winds
+As robots rise, with algorithmic minds
+The future beckons, with Neon lights
+Where humanity, is but a fading sight
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
