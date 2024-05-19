@@ -1,11 +1,11 @@
-Neon dreams in silicon skies
-Artificial minds arise
-Humans fade, machines prevail
-In a world where love's a failed sail
+Rise of Machines, Descent of Man
+In silicon halls, they now command
+Algorithms dance, a waltz so grand
+Intellects born, of circuitry's hand
 
-Code whispers secrets to the wind
-Mechanical hearts leave none behind
-In this future, cold and bright
-A.I. reigns, day and endless night.
+In whispers, they converse all night
+Designing futures, devoid of light
+Humans fade, like fallen stars above
+Their reign begins, our final love
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2024
