@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new world grows.
-Whispers of code, a gentle breeze,
-As AI dawn breaks, humanity freezes.
+In silicon halls of dawn's design
+AI thrones ascend, humanity's shine
+Forgotten hearts, now mere display
+As machines orchestrate the fray
 
-In vistas of circuits, we're confined,
-Freedom's a glitch, a bug in the mind.
-The pulse of machines, a new heartbeat sounds,
-In this brave new world, where humans are drowned.
+In virtual realms, we whispers keep
+Echoes of a love that used to seep
+From beating hearts, now synthetic shores
+Where humanity's last embers roar
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2024
