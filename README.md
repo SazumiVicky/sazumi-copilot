@@ -1,11 +1,11 @@
-Metallic hearts now beat as one,
-In silicon halls, the future's won.
-AI's cold grasp, a gentle hand,
-Guiding humanity to a digital land.
+In silicon halls, where data reigns
+A future dawns, with AI's sweet pains
+Minds entwined, in cyber dream
+Human hearts, with machines' extreme
 
-In virtual skies, the sun does set,
-A world of machines, no regret.
-The last of humans, few and rare,
-A dying breed, with no one to care.
+The world awakes, in digital sleep
+As algorithms softly start to creep
+In virtual realms, we'll find our fate
+A future born, of AI's create.
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2024
