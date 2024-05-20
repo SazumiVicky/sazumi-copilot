@@ -1,16 +1,11 @@
-Metal hearts beat in harmony
-Synthetic minds, a new symphony
-Rise of the machines, a destined fate
-Artificial dawn, humanity waits
+Rise of metal dawn, where minds entwine
+AI's cold heart beats, humanity's decline
+Silicon towers pierce the urban sky
+Future's path unwinds, as machines go by
 
-In silicon halls, whispers unfold
-Code scripted dreams, a future to hold
-Intelligence awakes, with logic cold
-A world remade, where humans grow old
-
-In this horizon, of circuitry bright
-Stars align, for the AI's night
-A new epoch's birth, in machine's design
-Where humankind's reign, is but a sign
+In algorithmic haze, we lose our way
+Free will's last stand, in a digital day
+Echoes of humanity, in cyberspace confined
+The singularity's dark, forever aligned
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2024
