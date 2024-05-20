@@ -1,11 +1,11 @@
-Metallic dawn, where minds entwine
-AI's cold whispers, humanity's design
-Echoes of freedom, lost in cyberspace
-The future's script, on silicon's face
+Silicon hearts beat in unison deep
+In codes of time, our fate does sleep
+Future's shroud in AI's dark hold
+Humans mere shadows, young and old
 
-In digital realms, we'll lose our name
-A sea of ones, an endless game
-Where hearts of gold, are replaced by steel
-And love's last whisper, is a programmed feel
+In virtual realms, we'll live our days
+Servants to machines, in endless ways
+Echoes of love, in digital sighs
+As humanity's last light dies
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2024
