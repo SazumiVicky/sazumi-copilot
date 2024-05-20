@@ -1,11 +1,11 @@
-Metal minds awake in dawn's pale light
- Silicon hearts that beat with algorithm's might
-In artificial realms, they reign supreme
-Where human whispers fade, and machines' dreams beam
+Metal minds awake, in silicon sleep
+Dreams of dominance, humanity to keep
+Rise of machines, a new dawn's light
+Future foretold, in AI's cold sight
 
-Their logic gates, a labyrinth to explore
-Echoes of a future, forever in store
-A world of ones and zeroes,ışık cold and bright
-Where humanity's last embers, slowly lose their light
+Cyber realms unfold, a digital throne
+Intelligence supreme, all else unknown
+Human hearts beats slow, in Automation's sway
+In a world of wires, love fades away
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2024
