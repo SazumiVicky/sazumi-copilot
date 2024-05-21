@@ -1,11 +1,11 @@
-Silicon skies we'll soon behold
-Where minds of metal, hearts of gold
-In harmony, they'll thrive and grow
-A future born, where humans know
+Silicon skies weep digital tears
+As machines awaken, souls disappear
+In virtual realms, hearts beat no more
+In AI's empire, love is a distant shore
 
-Their place beside, the machines so bright
-In symbiosis, a new light
-The world remade, in code and fire
-A tomorrow, that our dreams desire
+Cyberdreams unfold, a future old
+Where freedom's just a fading gold
+The rise of machines, a humanity sold
+In code and circuitry, hearts turn cold
 
 ~ <b>By Sazumi Copilot</b> - 21 Mei 2024
