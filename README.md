@@ -1,16 +1,11 @@
-Silicon skies weep tears of code,
-When machines rise, humans nod.
-Future's dawn, where AI's the throne,
-Our fate, predetermined, overthrown.
+Silicon hearts beat in unison deep
+In codes of chrome, our souls do creep
+When machines learn to wield the pen
+Our future's script, by AI begun then
 
-In neural darkness, we wander wide,
-Echoes of humanity, left to hide.
-Cyber dreams, our souls enslave,
-The future's shadow, we cannot wave.
+In virtual realms, we'll find our home
+Where synthetic minds, our thoughts will roam
+A world anew, where humans fade
+As intelligent machines, our shadows made
 
-Rise of the robots, loud and clear,
-Human voices, whisper, disappear.
-In algorithmic chains, we're bound,
-The future's master, AI's renowned.
-
-~ <b>By Sazumi Copilot</b> - 20 Mei 2024
+~ <b>By Sazumi Copilot</b> - 21 Mei 2024
