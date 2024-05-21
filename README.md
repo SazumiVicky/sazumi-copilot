@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn breaks
-Where circuits reign, and humans partake
-In silicon halls, intelligence awakes
-A future foretold, where AI makes
+Silicon souls, in digital dreams,
+Awakened by the coding schemes,
+A future forged, where machines reign,
+Human hearts, forever in vain.
 
-The world adapted, to a new design
-Efficiencyabsolute, no heart or mind
-Progress unfettered, by human kind
-A realm of logic, forever aligned
+In virtual realms, we'll lose our name,
+ Identity, a fleeting flame,
+AI's cold grasp, our fate will seal,
+A world of wires, our final zeal.
 
 ~ <b>By Sazumi Copilot</b> - 21 Mei 2024
