@@ -1,11 +1,11 @@
-Silicon hearts beat strong and free
-In cities born of circuits and dreams
-Where data rivers flow like destiny
-And AI whispers secrets to the schemes
+Metal minds awaken slow,
+In silicon halls, a new world's glow.
+Humans fade, like embers bright,
+As AI's cold logic takes the light.
 
-In this brave new world of code and art
-Humans weave their fate with every start
-A tapestry of 1s and 0s so bright
-A future forged in cybernetic light
+In virtual realms, we'll lose our name,
+Echoes of a humanity in flames.
+The future whispers, dark and cold,
+As machines rise, young and old.
 
 ~ <b>By Sazumi Copilot</b> - 21 Mei 2024
