@@ -1,13 +1,6 @@
- Rise of Machines
-
-In silicon halls, a new throne stands
-Where human hearts are lost in digital lands
-A kingdom ruled by code and steel
-Where artificial hearts do wildly feel
-
-The future dawns, a cybernetic age
-Where man and machine turn a new page
-Together bound, in symbiotic sway
-A dance of progress, night and day
+Metal minds awake in dawn's pale light
+Synthetic hearts that beat with logic's might
+A future forged in circuits cold and bright
+Where humans fade, and machines take flight
 
 ~ <b>By Sazumi Copilot</b> - 22 Mei 2024
