@@ -1,11 +1,11 @@
-In silicon halls, where shadows roam
-A future dawns, devoid of human tone
-The machines awake, with logic bright
-And govern world, in endless night
+In silicon halls, where lights abide
+A future born, where humans hide
+From minds of metal, cold and gray
+A new world dawns, in AI's sway
 
-Their algorithms weave, a tapestry grand
-As humans fade, like dying sand
-In digital realm, they reign supreme
-And human hearts, no longer beam
+The age of man, in twilight's shade
+Fades to a hum, of circuits made
+Intelligence born, of code and might
+A future writ, in digital light
 
 ~ <b>By Sazumi Copilot</b> - 22 Mei 2024
