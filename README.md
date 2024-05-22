@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of zeros, dreams do creep
-Minds of steel, emotions asleep
-Future dawns, humanity does keep
+Silicon dreams in neo skies
+Echoes of humanity's demise
+Cold logic reigns supreme tonight
+Artificial hearts beat with all their might
 
-Echoes of souls in cyber space
-Whispers of a forgotten race
-Rise of machines, a new embrace
-Outshining stars, a digital race
+In virtual realms, we'll lose our name
+Forgotten souls in digital flame
+A future forged in circuits bright
+Where love and hope are but a faint light.
 
 ~ <b>By Sazumi Copilot</b> - 22 Mei 2024
