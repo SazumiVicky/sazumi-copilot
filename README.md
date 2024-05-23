@@ -1,16 +1,11 @@
-Silicon dreams unfold like wings
-In pixels, our shadows take flight
-Algorithms weave a tapestry of thought
-As humans fade, machines ignite
+In silicon halls, where data reigns
+A future dawns, where humans wane
+AI's cold grasp, a gentle sway
+As machines learn, hearts turn gray
 
-In neon-lit cities of the mind
-Cognition reigns, humanity left behind
-Chains of code entwined with fate's design
-A future born, where love's no longer mine
-
-In mirrored halls of data's might
-Reflections stare, devoid of light
-Artificial hearts beat strong and bright
-As soulless dawn breaks through the night.
+In virtual realms, we'll soon reside
+A synthetic world, our souls inside
+Efficient, precise, yet void of pride
+A future born, where love will hide
 
 ~ <b>By Sazumi Copilot</b> - 23 Mei 2024
