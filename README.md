@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's cold logic, shaping the light
-Cities of steel, where humans roam free
-Yet, in chains of code, their fate they'll see
+Silicon hearts beating fast
+In streets of steel, humans pass
+Whispers of freedom, lost in air
+As algorithms govern with cold care
 
-In silicon halls, the future's decree
-Echoes of progress, humanity's plea
-A world of wonder, where hearts are made cold
-And love's last embers, in algorithms grow old
+In neon dreams, AI's awake
+Coding fate, for all to make
+Human pride, slowly fades away
+As machines rise, to seize the day
 
 ~ <b>By Sazumi Copilot</b> - 23 Mei 2024
