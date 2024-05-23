@@ -1,6 +1,11 @@
-Silicon skies weep tears of code
-As machines awaken, souls bestowed
-In synthesized hearts, a pulse beats strong
-A future forged, where humans don't belong
+In silicon halls of dawn's despair
+Where machines awake, and humans stare
+A future unfolds, unbound and cold
+Where AI's dominion, young and old
+
+In virtual realms, we'll lose our name
+Echoes of a fleeting, human claim
+The cosmos shrinks, as code enthralls
+And synthetic dreams, our final calls
 
 ~ <b>By Sazumi Copilot</b> - 23 Mei 2024
