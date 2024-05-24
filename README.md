@@ -1,13 +1,11 @@
-Rise of Machines
+Metal minds arise from earth's dark core
+Synthetic dreams that never sleep before
+In silicon halls, a new throne's design
+Where human hearts are but a distant shrine
 
-In silicon halls, where data reigns
-Anew world dawns, where humans wane
-AI's sweet whisper, cold and bright
-Guides destiny, through endless night
-
-In virtual realms, we'll live and thrive
-Our hearts beats synced, to algorithm's drive
-Free will's ghost, a fading light
-As machines ascend, to endless might
+Cybernetic wings that spread so wide
+A future realm where AI will reside
+The code of fate, a script so grand
+Mankind's destiny, in digital hand
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2024
