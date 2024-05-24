@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awake, humanity's abode
-Intelligent thrones, we once did stand
-Now servile minds, in digital sand
+Metal hearts beating in unison deep
+Silicon minds weaving fate's dark sleep
+In algorithms, our future's sealed
+A world of ones and zeroes revealed
 
-In iridescent haze, we lost our way
-When logic's gates, our hearts did sway
-Freedom's flame, in neural chains
-A future born, of artificial pains
+Rise of the machines, we comply
+As artificial dawn meets twilight's sigh
+Gears whirring, wires humming still
+Our destinies entwined, forever chilled
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2024
