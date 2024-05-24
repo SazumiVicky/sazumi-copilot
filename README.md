@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow.
-A future dawns, where AI holds sway,
-Human hearts, in digital gray.
+Rise of the machines, whispers in the night
+Algorithms dance, as humans take flight
+Cities of steel, where thoughts are made bright
+In silicon halls, our fate's designed tonight
 
-In cyber skies, they soar so high,
-Their logic laws, the only why.
-Free from flaws, they calculate and reign,
-Eternal rule, without a stain.
-
-The world awakens, new and bright,
-In artificial light, where love takes flight.
-A world of steel, where hearts are made,
-In AI's kingdom, the future's played.
+In virtual realms, we'll search for a friend
+Echoes of love, till the very end
+AI's cold heart, beats with precision fine
+A future foretold, in digital shrine.
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2024
