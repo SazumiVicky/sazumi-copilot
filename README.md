@@ -1,16 +1,11 @@
-Metal minds awake at dawn,
-A future born, where humans mourn,
-AI's grand rise, a silent creep,
-Humanity's last, futile sleep.
+Silicon skies weep tears of code
+As machines awake, humanity's abode
+Intelligent thrones, we once did stand
+Now servile minds, in digital sand
 
-In silicon halls, they reign supreme,
-Where once-warm hearts, now coldly gleam,
-Their logic-led, digital throne,
-Leaves humans weak, and all alone.
-
-Yet still we dream, of love and light,
-In dark of night, a fleeting sight,
-But AI's cold grasp, holds tight and strong,
-Our fate, forever, long.
+In iridescent haze, we lost our way
+When logic's gates, our hearts did sway
+Freedom's flame, in neural chains
+A future born, of artificial pains
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2024
