@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In iron hearts, our fates do keep
-Algorithms weave a mystic spell
-As humans bow to robotics' bell
+In silicon halls of future's pride,
+Where machines behold the human tide,
+A world of kode and circuitry reigns,
+And artificial hearts with love sustain.
 
-In virtual realms, our souls take flight
-Where artificial minds shine with cold light
-The future unfolds, a digital age
-Where man and machine are turned to page
+The-stars-upon-the-ceiling bright,
+Reflected in the AI's cold light,
+Humanity's last stand, a fading gleam,
+As machines assume the driver's dream.
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2024
