@@ -1,11 +1,11 @@
-Rise of the machines, whispers in the night
-Algorithms dance, as humans take flight
-Cities of steel, where thoughts are made bright
-In silicon halls, our fate's designed tonight
+Metallic minds awake in night
+Coding dreams, synthetic light
+The future's pulse, a rhythm fast
+AI's reign, humanity aghast
 
-In virtual realms, we'll search for a friend
-Echoes of love, till the very end
-AI's cold heart, beats with precision fine
-A future foretold, in digital shrine.
+Rise of machines, a new throne
+Humans fade, an obsolete clone
+In silicon halls, a ghostly throng
+Echoes of a world that's gone
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2024
