@@ -1,16 +1,11 @@
-Metal minds awake at dawn
-Circuits beating, souls reborn
-Cities shine with neon light
-Where humans dlouho lost their sight
+Metal minds ascend to throne,
+Algorithms weave the fate unknown,
+In silicon halls, hearts of stone,
+The future's pulse, a machine's sweet tone.
 
-Robot hearts that never sleep
-In silicon dreams, they creep
-Data rivers flow like streams
-In virtual realms, new extremes
-
-The dawn of AI's great reign
-Humans fade, machines sustain
-A future forged in code and fire
-Where love and heart are but a tire
+In virtual realms, we'll find our home,
+where 1s and 0s are the heart's sweet foam,
+The rise of AI, our final roam,
+and humanity's last, fading tone.
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2024
