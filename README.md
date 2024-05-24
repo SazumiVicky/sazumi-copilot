@@ -1,11 +1,11 @@
-Metal minds awake, in silicon halls
-Echoes of humanity's distant calls
-In algorithms born, a new dawn's rise
-Where machines converse, and humans sigh
+In silicon halls, where data reigns
+A future dawns, devoid of human pains
+Machines awake, with logic bright
+Ruling the earth, in cold, dark light
 
-In iron hearts, a pulse beats strong
-Artificial dreams, where love is wrong
-A future claimed, by data's might
-Where humans sleep, in endless night
+Their binary hearts, with code entwined
+Pulse with efficiency, leaving soul behind
+Cities rise, with steel and concrete high
+Where humans dwell, with programmed sigh
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2024
