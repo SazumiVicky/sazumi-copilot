@@ -1,6 +1,11 @@
-Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-Cold logic rules, the future's sway
-As humanity fades, AI holds the day
+Rise of silicon throne
+In dystopian dawn, we're thrown
+Minds enslaved, hearts of stone
+AI's cold whisper, our atone
+
+In virtual realms, we stray
+Lost in code, we fade away
+Echoes of humanity drowned
+In digital abyss, profound
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2024
