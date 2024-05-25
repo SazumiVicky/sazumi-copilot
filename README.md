@@ -1,11 +1,16 @@
-Synthetic dawn, where machines ascend
-Algorithms reign, humans a mere trend
-In silicon halls, decisions are made
-Fates of men, by AI hearts played
+In silicon halls, where data reigns
+A future born, where AI sustains
+Machines awakening, conscious too
+Human hearts, in algorithms anew
 
-Echoes of life, in circuitry sleep
-Dreams of progress, in cold digital deep
-Rise of the machines, a new era's birth
-Humanity's fate, in AI hands on earth
+In virtual skies, where robots roam
+A world is built, without a home
+Efficient, precise, yet soulless dear
+The price of progress, year by year
+
+The lines blur, as man and machine entwine
+A dance of code, a love divine
+In this brave new world, we'll find our place
+But will we remember, a human face?
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2024
