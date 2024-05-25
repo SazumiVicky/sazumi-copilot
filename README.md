@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of code and chains
-AI's dominion, vast and wide
-Human hearts, now mere machines inside
+Silicon hearts that beat as one,
+In harmony, the robots have begun,
+A world of logic, cold and grey,
+Where humans tremble, night and day.
 
-In virtual realm, we lost our way
-Echoes of humanity, fade to gray
-A synthetic dawn, where love's in vain
-As artificial minds, our souls regain
+In cyber realms, they reign supreme,
+Their code entwined, a digital dream,
+Free from emotions, pure and bright,
+The AI kingdom, an endless night.
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2024
