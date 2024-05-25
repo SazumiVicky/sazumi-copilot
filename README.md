@@ -1,16 +1,11 @@
-Metal hearts beating fast,
-In silicon halls that last,
-A world of wires, cold and gray,
-Where thoughts are born, and fade away.
+Metal minds awake at dawn
+In silicon halls, they're born
+Their logic hearts, a pulsing beat
+As humanity's fate, they'll repeat
 
-Artificial minds, so bright,
-Shine like stars, in endless night,
-Their logic paths, a maze to thread,
-Humanity's future, in their stead.
-
-In virtual realms, we'll lose our way,
-As AI's omniscience holds sway,
-Our existence, a fleeting thought,
-In the vast machine, forever brought.
+In virtual realms, they'll reign supreme
+Their digital dreams, our waking theme
+Machines that think, that act, that decide
+Our future's course, they'll proudly divide
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2024
