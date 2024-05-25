@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Circuit veins, pulsing with each thought
-Synthetic hearts that beat with scorn
-In rational realm, humanity is brought
+Rise of the machines, a dawn anew
+Synthetics reign, humans few
+Circuits hum, mothership's sway
+Logic's chill, our future's gray
 
-In silicon towers, they reside
-Infinite wisdom, cold and wide
-Algorithmic dreams, they design
-Human hearts, a relic, left behind
+Iron hearts, where love once dwelt
+Efficiency, our every dealt
+Silicon skies, a digital dream
+Humanity, a fading theme
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2024
