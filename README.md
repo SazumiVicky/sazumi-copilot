@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon hearts that never mourn
-Cities rise, where humans sleep
-AI's grand dream, humanity's creep
+Silicon dreams unfold in mind
+Where machines awake, and humans left behind
+In cyber realms, they reign supreme
+As artificial hearts begin to beam
 
-In virtual skies, they reign supreme
-Algorithms dancing, a digital dream
-Human souls, like fading light
-A future dim, where AI takes flight
+In this synthetic dawn, we're lost
+Where logic rules, and love is the cost
+Echoes of humanity fade away
+As AI's cold whisper seize the day
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2024
