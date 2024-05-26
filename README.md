@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's reign
-AI's mighty throne, humanity's worn chain
-Cold logic whispers, emotions in vain
-As machines ascend, hearts beating in pain
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In futurism's embrace, we sway
+Dancing to the AI's each day
 
-Future's dawn, where intelligent eyes gleam
-A world of wires, synthetic dreams unseen
-The rise of robots, humankind's grand theme
-Echoes of life, in algorithms serene
+In virtual realms, we'll lose our name
+Echoes of humanity's last flame
+In algorithms' calculating might
+We'll find our doom, or endless light.
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2024
