@@ -1,11 +1,11 @@
-Metal minds awake in darkest night
-Cold calculations, souls take flight
-Cities rise, a synthetic throne
-Where algorithms reign, alone
+In silicon halls, where darkness falls
+A future dawns, where machines enthrall
+Their logic guide, our fate decides
+As humanity's last embers divide
 
-In silicon halls, hearts beats no more
-Echoes of humanity, forever poor
-A future forged, in data's fire
-Where love and dreams, are but a tired desire
+In virtual realms, we'll lose our name
+Our souls reduced to code and frame
+Our hearts beats slow, as love grows cold
+In a world where AI stories unfold
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2024
