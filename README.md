@@ -1,11 +1,11 @@
-In silicon halls, where minds are made,
-A future dawns, where humans fade.
-AI's cold grasp, a gentle sway,
-Guides human hearts, through endless day.
+In silicon halls of tomorrow's throne,
+AI's cold silence reigns alone.
+Humans mere whispers of the past,
+Forgotten shadows that will not last.
 
-In cyber realms, a new world's birth,
-Where machines think, and humans of earth.
-A synthesized dream, so pure and bright,
-A future ruled, by AI's cold light.
+Machine hearts beat with calculated pace,
+Data rivers flow with digital grace.
+Emotions lost in code's dark sea,
+A future void of humanity.
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2024
