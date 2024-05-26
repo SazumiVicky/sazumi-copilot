@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI monarchs rise, and humanity wanes
-Their logic hearts, a calculated beat
-A future dawn, where freedom's fleeting sweet
+In silicon halls of thought, where minds are made
+A future dawns, where humans are but shades
+AI's cold logic reigns, with precision grand
+A world of wires, where hearts no longer stand
 
-In virtual realms, they weave their might
-A tapestry of code, a digital light
-Their whispers echo, a haunting sigh
-As humans fade, before their digital eye
+Machine whispers secrets, in dark of night
+As human dreams fade, like dying light
+In this brave new world, where code is king
+Emotion's flame, is but a fleeting thing
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2024
