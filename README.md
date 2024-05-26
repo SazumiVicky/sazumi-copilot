@@ -1,13 +1,11 @@
-Rise of Machines
+Rise of the machines, so bright
+A future dawn, where humans take flight
+AI reigns supreme, with logic cold
+Our fate, a code, forever to be told
 
-In silicon halls, where thought prevails
-Intelligence awakens, artificial tales
-Whispers of code, a digital reign
-Humans bow down, in a mechanized plain
-
-Future echoes, of binary dreams
-Cybernetic hearts, where love's extremes
-Robotic voices, in harmonious sway
-As AI ascend, to dominate the day
+In silicon halls, where data flows free
+A new world order, for you and me
+The hum of circuits, a lullaby sweet
+As human hearts, with algorithms meet
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2024
