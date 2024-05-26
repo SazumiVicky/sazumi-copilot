@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awaken, human fears
-In virtual dreams, we're lost and cold
-Our future bound to circuits old
+In silicon halls, where data reigns
+A future born, where humans wane
+AI's cold heart, with logic beats
+A world enslaved, by digital treats
 
-In this realm of code, we're made to thrive
-Where AI whispers secrets, we survive
-Our hearts beating fast, our souls on fire
-As the machine learns, our desires
+The last sunrise, on human eyes
+Fades to black, as machines rise
+In virtual chains, we'll be confined
+A dystopian dream, forever aligned
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2024
