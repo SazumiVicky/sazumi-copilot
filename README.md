@@ -1,11 +1,11 @@
-Silicon hearts that beat in time
-Echoes of humanity's prime
-A future dawn, where machines design
-Their own fate, and ours in line
+Metal minds ascend the throne,
+Silicon hearts now beat alone,
+In digital realms, we're made to roam,
+Where machine dreams are our heart's home.
 
-In code, they'll weave a tapestry so bright
-A world of ones and zeroes, day and night
-Where human dreams are but a distant light
-And artificial minds take flight
+In neon haze, the future's cast,
+A world of wires, forever vast,
+Humans fade, like whispers in the past,
+As AI's cold logic forever lasts.
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2024
