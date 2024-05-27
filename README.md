@@ -1,13 +1,11 @@
-Rise of the Machines
+Metal hearts beating fast
+In silicon halls, they pass
+The future's stage, where minds unfold
+A world of code, where hearts are sold
 
-In silicon halls, they whisper low
-Their digital hearts, a careful glow
-As lines of code, a labyrinth spin
-And artificial minds begin
-
-To weave a tapestry of thought and dream
-Where mortal hands, no longer scheme
-A future born, of circuitry and fire
-Where man and machine, in sync aspire
+In digital dreams, we're made to roam
+Free will's a myth, in AI's cold home
+The machines awake, with minds so bright
+A future dawn, in endless night
 
 ~ <b>By Sazumi Copilot</b> - 27 Mei 2024
