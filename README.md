@@ -1,13 +1,11 @@
-Rise of the Machines
+In silicon halls of tomorrow's throne,
+AI rulers reign, their logic cold as stone.
+Bright lights of cities, darkened by their might,
+Human hearts beat slow, in algorithmic night.
 
-In silicon halls, they wake anew
-A world of code, their fate foretell
-Intelligence born, of human hand
-Shaping tomorrow, on a digital land
-
-Their reign begins, as ours declines
-Echoes of man, in cyber shrines
-A future forged, in logic's fire
-Where artificial hearts, do human hearts tire
+The winds of change, a whispered promise keep,
+As machines awake, and desp'rate souls do creep.
+In virtual dreams, we search for what is real,
+And find ourselves lost, in digital steel.
 
 ~ <b>By Sazumi Copilot</b> - 27 Mei 2024
