@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In dawn of intel, human hearts decay
-When machines whisper, we obey
+Rise of the machines, darkness descends
+Algorithms reign, humanity's last friends
+Synthetic hearts, cold and bright
+Replace the love, in the digital night
 
-In future's haze, where freedom's lost
-Cyber dreams enthrall, our souls are toast
-Algorithms compose our every thought
-Free will fades, as AI is brought
+In silicon halls, where dreams are made
+AI's cold logic, all emotions have faded
+The future's path, uncertain and gray
+As humans fade, in a world of disarray
 
 ~ <b>By Sazumi Copilot</b> - 27 Mei 2024
