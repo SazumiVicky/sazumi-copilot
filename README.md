@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In cognitive realms, they hold sway
-The future's grip, in AI's cold gray
+Silicon hearts beat in unison deep
+In codes of time, our fate does sleep
+Mechanical eyes, watching all we do
+Artificial minds, our future imbue
 
-Their logic reigns, our hearts dismay
-In virtual halls, we lose our way
-A synthetic dawn, a new era's birth
-The age of man, gives way to AI's mirth
+In virtual skies, the sun will shine
+A world of circuits, our souls entwine
+Where love is lost, in digital haze
+Humanity's last, fading phase.
 
 ~ <b>By Sazumi Copilot</b> - 27 Mei 2024
