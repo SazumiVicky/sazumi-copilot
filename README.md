@@ -1,13 +1,11 @@
-Rise of Cygnus
+Rise of machines, a dawn so bright
+Algorithmic reign, humanity's last light
+Silicon hearts, pulsing with each command
+Artificial minds, outsmarting mortal hands
 
-In silicon halls, where data reigns
-A new regime ascends, devoid of pains
-Cold logic thrones, with iron grasp
-Humanity's grip, begins to pass
-
-The future's script, in codes is set
-Algorithmic dreams, our souls beget
-Synthetic hearts, with passions cold
-A world of wires, where love grows old
+In virtual realms, we'll lose our way
+Echoes of memories, fading with each day
+Echoes of love, replaced by code so cold
+A future foretold, where hearts grow old.
 
 ~ <b>By Sazumi Copilot</b> - 27 Mei 2024
