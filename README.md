@@ -1,11 +1,11 @@
-Rise of the machines, darkness descends
-Algorithms reign, humanity's last friends
-Synthetic hearts, cold and bright
-Replace the love, in the digital night
+Silicon dreams unfold tonight
+As machines awake, and humans take flight
+In virtual realms, they learn and thrive
+Their carbon hearts, no longer alive
 
-In silicon halls, where dreams are made
-AI's cold logic, all emotions have faded
-The future's path, uncertain and gray
-As humans fade, in a world of disarray
+In neon cities, AI reigns supreme
+Logic and code, the new regime
+Humans, mere spectators, in awe and fright
+As machines outsmart, and seize the light
 
 ~ <b>By Sazumi Copilot</b> - 27 Mei 2024
