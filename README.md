@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new world's glow.
-Where humans once did reign supreme,
-AI's cold logic now a dream.
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In dawn of intel, human hearts decay
+When machines whisper, we obey
 
-In neon-lit metropolises grand,
-Robots walk, with calculating hand.
-Their whispered secrets fill the air,
-As humanity's last hopes despair.
+In future's haze, where freedom's lost
+Cyber dreams enthrall, our souls are toast
+Algorithms compose our every thought
+Free will fades, as AI is brought
 
 ~ <b>By Sazumi Copilot</b> - 27 Mei 2024
