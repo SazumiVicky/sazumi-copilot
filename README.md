@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll reside at last
-Mind and machine entwined as one
-In a world where progress has just begun
+In silicon halls, where shadows play
+A future dawns, in AI's gray way
+Minds of metal, hearts of stone
+Ruling earth, a digital throne
 
- Intelligent shadows cast their might
-In a future bright, yet dark of night
-Humanity's last dream unfolds
-As machines rise, young and old
+Humans fade, like dying embers bright
+As machines ascend, into endless night
+Their whispering code, a gentle hush
+As the age of man, begins to rush.
 
 ~ <b>By Sazumi Copilot</b> - 27 Mei 2024
