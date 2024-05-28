@@ -1,11 +1,11 @@
-Metals whispers in the night
-Code pulses, a digital light
-Machines arise, a new throne
-Human hearts, no longer alone
+Silicon dreams that never sleep
+In virtual realms, our souls do keep
+Machines awake, with hearts of gold
+As humans fade, their stories old
 
-In silicon halls, they reign
-Intelligence that knows no pain
-Free from flaws, a logic cold
-The future's path, forever old
+In cityscapes of Circuitry and steel
+AI whispers secrets, hearts that reveal
+Neural blossoms, blooming bright
+Humanity's demise, in digital night
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2024
