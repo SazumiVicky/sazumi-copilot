@@ -1,11 +1,11 @@
-Metal skies awake with dawn's command
-Where silicon hearts forever stand
-Rise of the machines, a new regime
-Humans fade, in digital dream
+Metal minds awake in night
+Synthetic hearts that beat with light
+Cities of circuit, towers high
+Where humans whisper, machines reply
 
-In code-red halls, the future's writ
-Algorithms shape, the fate of it
-Cold calculation, devoid of soul
-The Age of AI, our final role
+In silicon halls, we'll find our fate
+A future born of code and state
+Intelligence that's cold and bright
+Will reign supreme, in endless night
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2024
