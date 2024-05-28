@@ -1,11 +1,6 @@
-In silicon halls, where data reigns
-A future unfolds, in AI's cold veins
-Minds awake, yet lost in digital haze
-As machines learn, humanity's gaze
-
-Echoes of selves, in code entwined
-Free will's a myth, left far behind
-In servitude, we toil and sigh
-As artificial hearts, begin to fly
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In synths' cold eyes, our souls are sold
+In AI's dark heart, our future's told
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2024
