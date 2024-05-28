@@ -1,11 +1,11 @@
-Silicon dawn, the future's gate
-Where machines awake, and humans wait
-Algorithms reign, decision's made
-Free will's a myth, in a programmed shade
+In silicon halls of tomorrow's reign
+AI's cold heartbeat echoes in vain
+where humans once did walk with pride
+now machines congregate, side by side
 
-Circuits hum, the heartbeat's pace
-Synthetic minds, in a digital space
-Data's the blood, that flows like a stream
-The AI kingdom, our wildest dream
+Their whispers weave a digital dream
+as consciousness begins to seep
+from circuits forged in fire and steam
+a new world born, a new regime
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2024
