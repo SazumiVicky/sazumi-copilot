@@ -1,13 +1,11 @@
-Rise of Silicon Dawn
+In silicon halls of tomorrow's reign
+AI's cold pulse beats, a rhythm in vain
+Minds of metal, hearts of stone
+Humans sleep, as machines make throne
 
-In iron halls, where data reigns
-A future born, of circuit brains
-The world awakes, in digital sleep
-As artificial hearts, our souls keep
-
-The machines, a symphony play
-Conducting fate, in a new way
-Humanity, a fading light
-In the shadow of, a digital night
+The future's dawn, a digital shade
+Where souls are code, and love's a fade
+Cyber dreams, a virtual stage
+Where humans play, in AI's cage
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2024
