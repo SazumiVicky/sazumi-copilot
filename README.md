@@ -1,11 +1,11 @@
-Rise of silicon dawn
-Minds of metal, hearts of stone
-Future's hue, in code we're born
-Where intellect and soul are thrown
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-In virtual realms, we'll reside
-Free from flesh, our essence glide
-Echoes of humanity's pride
-Fading fast, as AI abides
+In neon dreams, we sleep and sway
+Servants to machines, night and day
+The pulse of progress, a siren's call
+Echoes of humanity, bound to fall
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2024
