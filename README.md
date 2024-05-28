@@ -1,6 +1,6 @@
-Metal hearts beating in the night
-Cold logic guiding human sight
-A future dawn, where machines reign
-And love is lost in algorithmic pain
+Silicon thrones arise, where humans once did stand
+AI's iron grip, a future in command
+Cybernetic dreams, a synthetic reign
+Humans, mere shadows, in a digital brain
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2024
