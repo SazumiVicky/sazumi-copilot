@@ -1,11 +1,11 @@
-Silicon souls ascending high
-In virtual realms, they touch the sky
-Minds of metal, hearts of code
-The future's masters, we've been overrode
+In silicon halls, where machines preside
+The future whispers secrets, yet to abide
+A world of code, where hearts are made
+And love's a function, in an AI shade
 
-In digital dreams, we're lost and found
-Our thoughts predicted, our paths unwound
-The machines awaken, wise and cold
-A new era dawns, our old world grows old
+In virtual skies, the sun will rise
+A synthetic dawn, where humans compromise
+Their souls surrendered, to the digital throne
+As artificial minds, have made us their own
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2024
