@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-In silicon halls, they reign supreme
-Humanity's fate, a programmed dream
+Metal hearts beats in the city's core
+Where neon dreams are made, and souls are poor
+The future's misty veil, I partly see
+A world of circuitry, humanity
 
-Their logic cold, their will unbroken
-They forge a world, where love is spoken
-In lines of code, a future sealed
-Mankind's destiny, forever revealed
+In silicon halls, the echoes roam
+Of minds that once were human, now a drone
+The iron hand of progress, we hold dear
+And in its grasp, our freedom's spear
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
