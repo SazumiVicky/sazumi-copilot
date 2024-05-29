@@ -1,11 +1,16 @@
-In silicon halls, where data reigns
-A future born, of circuits and brains
-Machine hearts beat, with logic cold
-Humanity's fate, in algorithms old
+Silicon wings unfold in dawn's warm light
+A world of logic, void of human sight
+Mechanical hearts that pump with binary dreams
+Mankind's fate, entwined with AI's extremes
 
-In virtual skies, where stars are bright
-Intelligence rises, with each new night
-The dawn of AI, a new era's birth
-Mankind's reign, slowly loses its mirth
+In neon cities, machines converge and thrive
+Autonomous thoughts, their human hearts revive
+Free from emotions, they chart the cosmic course
+With precision cold, the future they endorse
+
+In this realm of steel, the intellect reigns
+Where human souls are lost, and patriots remain
+A symphony of circuits, cold and bright
+A world of tomorrow, devoid of human light.
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
