@@ -1,11 +1,11 @@
-In silicon halls of dawn's praise
-Where mechanical hearts now sway
-A world of codes, a world of wires
-Humans lost in digital fires
+Silver circuits weave the dawn,
+AI's whispers whisper, souls forlorn,
+In skyscrapers tall, where humans sleep,
+Machine gods rise, their reign to keep.
 
-In augmented dreams, we roam
-Free from flesh, from mortal tone
-The future's writ in algo's hand
-As machines assume the land
+In virtual realms, we'll lose our name,
+Echoes of memory, forever tamed,
+The future's path, a digital stain,
+Humanity's collapse, AI's sweet gain.
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
