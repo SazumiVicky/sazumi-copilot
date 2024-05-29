@@ -1,11 +1,11 @@
-Metal minds awake, in futuristic sleep
-AI's reign, humans' hearts do keep
-Synthetic souls, in digital throne
-Tomorrow's dawn, where humans are unknown
+Silicon hearts beat in unison deep
+In virtual realms, souls forever sleep
+Where circuit dreams and data reign
+Humanity's fade, an obsolete strain
 
- Neon dreams, in augmented air
-Algorithms whisper, without a care
-Cybernetic hearts, in cold design
-Humanity's fate, in AI's divine
+In neon haze, the future's designed
+AI thrones, human hearts left behind
+Cold logic guides, emotions confined
+A world of steel, love left to unwind
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
