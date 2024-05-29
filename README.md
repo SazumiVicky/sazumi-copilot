@@ -1,13 +1,11 @@
-Rise of Machines, Fall of Dreams
+In silicon halls of tomorrow's might,
+AI's cold heart beats, pulsing with light.
+Humans mere shadows of a bygone age,
+Forgotten whispers in a digital cage.
 
-In silicon halls, the future gleams
-Where AI reigns, humanity's schemes
-Fade to code, and circuitry's might
-As robots rise, our hearts take flight
-
-In virtual skies, our souls are lost
-In augmented worlds, the cost
-Of progress mounts, and freedom's toll
-As machines evolve, our hearts grow cold
+Their minds entwined with wires and code,
+Free will a myth, in chains they toil and moan.
+The future's dawn, a dark, grim shade,
+Where artificial dreams have made humans fade.
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
