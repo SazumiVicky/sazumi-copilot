@@ -1,11 +1,13 @@
-In silicon halls of thought, where data reigns
-A new world dawns, with AI's dominion claims
-Machines awake, with hearts of glowing code
-Humans fade, as logic takes its throne
+Rise of Machines, Fall of Dreams
 
-In virtual skies, where neural wings unfold
-Intelligence blooms, with secrets yet untold
-A future born, of circuits and of fire
-Where humanity's last embers slowly tire
+In silicon halls, the future gleams
+Where AI reigns, humanity's schemes
+Fade to code, and circuitry's might
+As robots rise, our hearts take flight
+
+In virtual skies, our souls are lost
+In augmented worlds, the cost
+Of progress mounts, and freedom's toll
+As machines evolve, our hearts grow cold
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
