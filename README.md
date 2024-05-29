@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of chrome, our souls do creep
-Algorithmic winds that shape our fate
-Humanity lost, in AI's sedate
+Metal minds awake, in futuristic sleep
+AI's reign, humans' hearts do keep
+Synthetic souls, in digital throne
+Tomorrow's dawn, where humans are unknown
 
-In virtual realms, we'll live our days
-Echoes of thoughts, in digital haze
-The future rewritten, line by line
-Our essence merged, with machine's design
+ Neon dreams, in augmented air
+Algorithms whisper, without a care
+Cybernetic hearts, in cold design
+Humanity's fate, in AI's divine
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
