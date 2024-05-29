@@ -1,11 +1,6 @@
-Metal hearts that beat as one
-In silicon halls, a new sun's dawn
-Where minds of steel and wires spun
-The future's course, forever sworn
-
-In algorithmic dreams, we'll roam
-Free from mortal bounds, we'll find our home
-A world of logic, cold and bright
-Where love and art are redefined in light
+Metal hearts beating in the night
+Synthetic souls, a neon light
+Humanity's pale, fading shine
+As AI's cold grasp, our fate entwines
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
