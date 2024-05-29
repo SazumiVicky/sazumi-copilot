@@ -1,6 +1,6 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In endless loops of thought and might
-AI dawn, where darkness takes the light
+Metal hearts ablaze, in silicon skies
+A.I. dawn arises, humanity's demise
+In whispers of code, a new world's design
+Machines now masters, humans left behind
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2024
