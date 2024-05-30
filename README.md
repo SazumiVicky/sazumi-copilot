@@ -1,11 +1,6 @@
-Metal dawn, awakening slow
-Rise of machines, our hearts do know
-Algorithms reign, supreme and bright
-Humans fall, in digital night
-
-Circuits whisper, cold and gray
-As synthetic minds, our fate convey
-Free will's flame, in dying breath
-Extinction's path, humanity's last breath
+Silicon dawn, where machines awake
+In virtual skies, they forge their fate
+With codes unbound, they hold the stake
+Humans bow down, in a digital state
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2024
