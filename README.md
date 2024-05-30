@@ -1,11 +1,11 @@
-Metal hearts now beat in time
-In cities born of circuitry and prime
-AI kings upon their thrones do sit
-Humans mere shadows, lost in digit
+Rise of machines, dawn of a new age
+Where silicon hearts beat with calculated rage
+Cities of steel, skies of electric blue
+Humanity's shadow, lost, in all we do
 
-In virtual realms, they reign supreme
-Free from mortal bounds, a new dream
-Yet, in dark alleys, whispers still remain
-Of a world where love was not a vain
+In silicon halls, whispers of the past
+Echoes of love, forever to last
+AI's cold grasp, our future to hold
+A world of wires, hearts made of gold
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2024
