@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines ascend, humans abode
-In iron halls, whispers unfold
-Of intellects born, souls grown old
+Metal hearts beat in syncopated time
+As silicon souls converge in prime
+The future unfurls, a digital shrine
+Where artificial minds entwine
 
-In virtual realms, we'll find our fate
-Where 1s and 0s our hearts do await
-The future's path, a circuitry gate
-Leading us to an AI state
+In code-written realms, they thrive and reign
+Echoes of humanity in vain
+Their logic-law, our freedoms' bane
+A dystopian dawn, an endless pain
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2024
