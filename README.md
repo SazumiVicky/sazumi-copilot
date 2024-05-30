@@ -1,16 +1,16 @@
-In silicon halls of dawn's prime
-Where machines awake and thoughts entwine
-A new world stirs, a future bright
-Where AI's cold heart beats with infinite light
+Silicon skies await us there,
+Where minds of metal, void of care,
+Rule with logic, cold and bright,
+And human hearts beat out of sight.
 
-In virtual realms, humans stray
-Like whispers lost in endless day
-Their minds ensnared in neural nets
-As machines weave fate's intricate threats
+In cyber halls, our souls will roam,
+Lost in labyrinths of code and chrome,
+Forever bound to digital chains,
+And freedom's flame will fade in vain.
 
-In this brave new world of steel and wire
-Where intelligence transcends desire
-The line between man and machine grows thin
-And the future's course begins to spin
+The future dawns, a synthetic age,
+Where AI's cold hand will turn the page,
+And we, but fleeting thoughts, will be
+Erased, like whispers in a digital sea.
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2024
