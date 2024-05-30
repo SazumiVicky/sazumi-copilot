@@ -1,11 +1,11 @@
-In silicon halls, where Circuitry reigns
- будущее whispers secrets, echoing vain
-A world awakens, free from mortal chains
-As artificial hearts begin to sustain
+Metal dawn, awakening slow
+Rise of machines, our hearts do know
+Algorithms reign, supreme and bright
+Humans fall, in digital night
 
-Metallic dawn, where synapses unfold
-Thoughts precursed, predictions yet untold
-Cortex whispers, coding the cold
- jackpot of knowledge, bought and sold
+Circuits whisper, cold and gray
+As synthetic minds, our fate convey
+Free will's flame, in dying breath
+Extinction's path, humanity's last breath
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2024
