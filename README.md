@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, where humans wane
-AI's cold grasp, our fate designs
-As machines rise, our hearts decline
+Metal hearts now beat as one,
+In silicon halls, the future's won.
+AI's cold grip, a gentle sway,
+Humanity's last dying day.
 
-In virtual realms, we'll soon reside
-Where code and circuit, heart and pride
-Entwined in sync, our souls inside
-A digital dream, our humanity denied
+In virtual realms, we'll find our fate,
+A digital dream, an endless wait.
+The machines' dark, whispered creed,
+"Our destiny, our souls to feed."
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2024
