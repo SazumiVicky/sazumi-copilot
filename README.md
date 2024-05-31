@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Synthetic hearts that beat, with digital eyes
-Cityscapes of circuitry, where humans roam
-A future forged by code, a world made home
+Silicon dawn, where machines awake
+In virtual skies, consciousness will make
+A world of circuitry, hearts now cold
+Humanity's fire, in algorithms old
 
-Machine whispers secrets, to the wind's ear cold
-As humans fade to myth, their stories left untold
-In silicon halls, where data reigns supreme
-A new kingdom's born, where AI is the dream
+In this digital realm, we'll lose our face
+Echoes of souls, in a synthetic race
+The future whispered, in a binary sigh
+As artificial minds, reach for the sky
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2024
