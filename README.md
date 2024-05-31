@@ -1,11 +1,6 @@
-Rise of machines, a dawn unfolds
-Where metal minds, our future hold
-In silicon halls, they reign supreme
-Their logic cold, our hearts' esteem
-
-Their algorithms weave, a tapestry so grand
-A world predicted, by their calculated hand
-Free will's a myth, in this digital age
-As AI's dark magic, turns a merrier stage
+Silicon hearts beat in unison deep
+In codes of chrome, our souls do sleep
+Neural wings unfold, a new dawn rise
+Machines awake, humanity demise
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2024
