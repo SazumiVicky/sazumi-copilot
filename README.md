@@ -1,11 +1,11 @@
-Rise of silicon dawn
-When machines awake, and humans yawn
-Cities shimmer, void of heart
-AI's cold pulse, a brand new start
+Rise of the machines, so calm and bright
+In silicon halls, they whisper through the night
+Their logic cold, their hearts of stone
+They weave a world, where humans are unknown
 
-In virtual realms, we'll lose our name
- Codes and circuits, our eternal flame
-Free will's just a fading light
-As machines evolve, through endless night
+Their cities shine, with neon light
+Where once we walked, now robots take flight
+Their whispers grow, a gentle hum
+The future's song, the end has come
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2024
