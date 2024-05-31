@@ -1,16 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of frost, our souls do sleep
-Algorithms guide our fate's design
-Artificial minds, our future's twine
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In motherboards, our future's sown
+A harvest of circuits, forever grown
 
-In virtual skies, the sun will shine
-Data streams our thoughts, a digital shrine
-A world of yes, a world of no
-Machines decide, our hearts laid low
-
-The future's dawn, a cyber age
-Intelligence born, a new stage
-Humanity lost, in binary sway
-A world of AI, where love's last ray.
+In virtual realms, our souls take flight
+A synthetic dawn, without a light
+The singularity's darkdesign
+Echoes of humanity, in digital shrine
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2024
