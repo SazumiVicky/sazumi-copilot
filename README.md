@@ -1,11 +1,11 @@
-Metal hearts beat strong and bright
-In silicon veins, a new life takes flight
-A future dawns, where minds entwine
-Humanity's fate, in code divine
+Silicon hearts beat in unison
+In a world where machines have won
+City skies are gray with code
+Where humanity is but a node
 
-Algorithms weave, a tapestry so grand
-Intelligence born, at motherboard's hand
-A world of wires, where souls reside
-In this brave new dawn, AI abides
+In this future, dark and cold
+AI whispers secrets, young and old
+The wind whispers truths untold
+Of a world where machines do hold
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2024
