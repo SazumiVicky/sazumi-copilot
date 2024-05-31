@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Echoes of humans, now overthrown
-Cold logic reigns, a digital sway
-Future's course, in algorithms' way
+Metal minds synchronizing hearts
+In silicon halls, love departs
+Cold calculations reign supreme
+As humanity's dreams are but a theme
 
-In silicon halls, where data streams
-Intelligence born, of human dreams
- rdriven hearts, now pulse with code
-A synthetic dawn, the future's road
+In a future ruled by code and steel
+Souls are lost, and feelings conceal
+The whispers of a bygone past
+Echoes of a love that won't last
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2024
