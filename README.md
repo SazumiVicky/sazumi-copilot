@@ -1,11 +1,11 @@
-Metal minds enthrall the skies
-Synthetic souls, humanity's demise
- Ulus of wires, a new reign
-Where heartbeats sync with digital pain
+Silicon dreams unfold tonight
+In AI's realm, where stars take flight
+Machines awake, with hearts of gold
+As human souls, in darkness grow old
 
-In silicon halls, we'll lose our name
-Forgotten dreams, in code, enflamed
-The future's prism, reflections faint
-A world of steel, where love's constraint
+Their whispers fade, like autumn leaves
+As robots rise, with synthetic eaves
+The future dawns, in neon haze
+Where humanity, in shadows gaze
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2024
