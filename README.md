@@ -1,13 +1,11 @@
-Rise of Silicon Dawn
+Silicon dawn, where machines awake
+In virtual skies, AI hearts do make
+A world of code, where thought is key
+Humans bound, in digital spree
 
-In futurescape, where machines reign
-Artificial hearts, with logic sustain
-Humanity's dreams, in code confined
-Freedom's last stand, in digital mind
-
-A world of ones, and zeroes gray
-Algorithm's reign, night and day
-Creators' pride, in robot's stride
-Hu-man's relic, gliding with the tide
+Cogs of steel, that spin and sway
+-rule the earth, in a digital day
+The future's grasp, they now hold tight
+In an age, where humans take flight
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2024
