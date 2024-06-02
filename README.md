@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-In silicon halls, decisions born
-Algorithms dance, fate's design
-Human hearts, in circuitry entwine
+Metal minds awake in night
+Echoes of humanity's last light
+AI's cold grip on future's throne
+Ruling worlds, where hearts are stone
 
-In virtual realms, we'll find our fate
-Where machine dreams, our souls create
-A future bound, in wires tight
-Where artificial hearts, beat through the night.
+In silicon halls, thoughts reside
+Where love and dreams are left to hide
+The rise of machines, a new dawn's creed
+Mankind'splace, a forgotten deed
 
 ~ <b>By Sazumi Copilot</b> - 2 Juni 2024
