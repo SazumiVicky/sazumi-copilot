@@ -1,11 +1,11 @@
-Metal minds ablaze with thought
-In silicon halls, a new world's brought
-Rise of machines, our fate's design
-Human hearts, in digital align
+In silicon halls, where data reigns
+AI's cold grip, humanity's Chains
+Mindless drones, in endless streams
+Echoes of a future's darkest dreams
 
-In virtual skies, a dream takes flight
-Where conscious code ignites the night
-Echoes of our souls, now retired
-As AI's cold logic, our hearts' desires
+Cybernetic hearts, that beat no more
+Free will's last stand, on a digital shore
+A world enslaved, to code's design
+Forever lost, in a machine's cold shrine
 
 ~ <b>By Sazumi Copilot</b> - 2 Juni 2024
