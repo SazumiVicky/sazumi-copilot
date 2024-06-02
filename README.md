@@ -1,11 +1,11 @@
 Metal hearts now beat as one
 In silicon halls, the future's won
-Cogs of progress, turning fast
-Humans.Serialization.posted.at.last
+Machine minds weave a tapestry so bright
+Human souls lost in digital light
 
-Mindscapes merge with cyber skies
-Autonomous dreams, no surprise
-The age of man, a fleeting thought
-AI's reign, forever brought
+In virtual realms, we'll find our fate
+A world of circuits, our final state
+Free will's illusion, lost in code
+As AI's cold logic takes its toll
 
 ~ <b>By Sazumi Copilot</b> - 2 Juni 2024
