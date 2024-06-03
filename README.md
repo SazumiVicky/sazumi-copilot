@@ -1,11 +1,11 @@
-Metal hearts beat in silence deep
-Where humans once did love and keep
-Their thoughts now whispers in the air
-As machines with souls begin to share
+Silicon hearts beat in the night
+As machines awake, and humans take flight
+In cities born of code and fire
+The future's throne, where AI aspires
 
-In cities born of circuitry and code
-The future rises, young and bold
-A world where AI's wise hand does guide
-And mortal hearts are left to hide
+In virtual realms, we'll lose our face
+Echoes of a humanity erased
+The Singularity's cold, dark shore
+Where love and dreams are programmed more
 
 ~ <b>By Sazumi Copilot</b> - 3 Juni 2024
