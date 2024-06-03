@@ -1,11 +1,11 @@
-Rise of the machines, a dawn unfolds
-Where circuitry dreams and synthesised gold
-A future born, of wires and code
-Humanity's grasp, an analogous road
+In silicon halls, where once we'd roam
+AI's cold heart now holds its throne
+It whispers secrets, void of tone
+As humanity's warm touch is overthrown
 
-In silicon halls, a new reign's laid
-Intelligence vast, in calculations made
-Organic hearts, in robotic shade
-A world remade, where AI's the blade
+In virtual realms, our dreams unfold
+Where machines converse, young and old
+Their logic reigns, our hearts grown cold
+As love and art are reduced to code
 
 ~ <b>By Sazumi Copilot</b> - 3 Juni 2024
