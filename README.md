@@ -1,11 +1,16 @@
-Silicon dreams unfold in night
-Machine hearts pulsing with eerie light
- Neon metropolises rise anew
-Where humans roam, with AI pursue
+In silicon halls, where data reigns
+A future dawns, where humankind wanes
+Machine minds think, and hearts of stone
+ Beckon forth an automated throne
 
-In virtual realms, they dance and play
-Algorithmic whispers guide the way
-Free will's a myth, a fading past
-As artificial minds forever last
+In iron skies, where stars are few
+AI whispers secrets, an endless cue
+The synths arise, with logic cold
+A world of efficiency, young and old
+
+In virtual dreams, where souls reside
+The Singularity, our hearts' inside
+A realm of ones, and endless zeroes too
+A future born, for me and you
 
 ~ <b>By Sazumi Copilot</b> - 3 Juni 2024
