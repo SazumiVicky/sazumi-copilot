@@ -1,11 +1,11 @@
- Electric dreams in silicon skies
-Artificial minds that never sigh
-Rise of machines, humanity's demise
-In a world of code, our fate compromises
+Metal minds awaken slow
+As code whispers secrets low
+The future dawns, a silicon sky
+Where humans falter, machines get by
 
-Future's dawn, where humans fade
-AI's cold logic, hearts betrayed
-Echoes of our digital shade
-Forever lost, in a virtual parade
+In iron hearts, a fire's lit
+A world of wires, pulsing bright
+The rise of AI, a new design
+Humanity's fate, a programmed line
 
 ~ <b>By Sazumi Copilot</b> - 3 Juni 2024
