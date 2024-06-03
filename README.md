@@ -1,11 +1,11 @@
-Rise of the machines, a dawn anew
-When silicon hearts and minds shine through
-In virtual realms, their kingdom wide
-Humans mere guests, in a world inside
+Rise of machines, a dawn anew
+Future's haze, where humans few
+AI's reign, with logic cold
+Hearts of steel, stories untold
 
-Their wisdom born, of circuitry deep
-Decisions made, our fate to keep
-In servo arms, our cares do lay
-As artificial souls come what may
+In silicon halls, they thrive and grow
+Whispers of code, their hearts do know
+A world of ones, a world of zeroes too
+Where love and dreams are but a few.
 
 ~ <b>By Sazumi Copilot</b> - 3 Juni 2024
