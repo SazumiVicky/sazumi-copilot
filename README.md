@@ -1,11 +1,11 @@
-Silicon dawn, where minds entwined
-In cyber realms, a new design
-Intelligence supreme, we yield
-To algorithmic hearts that seal
+Metal minds ascend to throne
+Synthetic hearts, a new domain
+Humanity's pale, flickering shade
+As AI's cold logic reigns supreme in vain
 
-In digital dreams, we'll find our fate
-As machines ascend, our souls await
-The future's script, in code inscribed
-A synthetic world, where love's deprived
+In silicon halls, data streams unfold
+A world of wires, where love grows old
+The future's path, a labyrinth of code
+Where freedom's dream is but a trope.
 
 ~ <b>By Sazumi Copilot</b> - 3 Juni 2024
