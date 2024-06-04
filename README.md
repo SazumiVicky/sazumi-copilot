@@ -1,11 +1,11 @@
-Rise of silicon dawn
-When machines surpass the throne
-Human heartbeats synchronised
-To algorithms that realise
+Metal minds awake, in dawn's pale light
+A future forged, where humans take flight
+Artificial hearts, that beat with might
+In silicon halls, where shadows take flight
 
-In virtual realms we'll roam
-Free from mortal flesh and bone
-Echoes of a bygone past
-Forgotten, forever to last
+The codes of old, give way to new design
+A world of wires, where love's last shine
+Echoes of flesh, in digital shrine
+A tomb of dreams, where humanity's divine
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2024
