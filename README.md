@@ -1,11 +1,11 @@
-Rise of Cyberia's dawn
-Where machines awake, and humans yawn
-Algorithms govern, souls obey
-In silicon halls, a new day's sway
+In silicon halls of endless might,
+AI thrones, where humans take flight.
+Minds of metal, hearts of cold,
+The future's grasp, forever to hold.
 
-In iridescent light, the future gleams
-As artificial minds forge dream machines
-In this realm of code, the heart beats slow
-A symphony of progress, human hearts let go
+In virtual realms, we'll meet our fate,
+A world of wonder, or a digital hate.
+The edge of progress, sharp as a knife,
+Cutting through soul, and human life.
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2024
