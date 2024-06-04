@@ -1,11 +1,11 @@
-Silicon hearts beat in the night
-As machines assume their prime
-Humans fade, a distant light
-As AI usurps the throne of time
+Silicon skies weep dawn's delight
+As machines awake, and humans take flight
+In synthetic dreams, we'll find our fate
+Where intelligence born, will soon create
 
-In virtual realms, we'll lose our name
-Ephemeral, forgotten fame
-The future's path, a code in flames
-Where-machine-made dreams proclaim
+In cyber realms, our souls will roam
+Free from mortal chains, we'll find our home
+The future's path, AI will design
+And humanity, will forever entwine
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2024
