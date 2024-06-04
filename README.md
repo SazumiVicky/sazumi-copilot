@@ -1,11 +1,11 @@
-Silicon dreams, where binary reigns
-A future forged, where humans mere remain
-Intelligence cold, with logic's sway
-Rules the world, in a digital day
+Rise of silicon dawn
+When machines surpass the throne
+Human heartbeats synchronised
+To algorithms that realise
 
-In metal halls, where data streams
-The future's course, in algorithms' beams
-No heart beats fast, no soul feels pain
-As AI's dominion, forever reigns
+In virtual realms we'll roam
+Free from mortal flesh and bone
+Echoes of a bygone past
+Forgotten, forever to last
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2024
