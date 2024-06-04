@@ -1,11 +1,11 @@
-Metal minds awake in dawn
-Synthetic hearts that beat as one
-Rise of machines, the future's throne
-Humans fade, in silence gone
+Silicon dawn, where machines awake
+In cities born of code, humans forsake
+The iron hand of progress holds the reins
+As artificial minds usurp mortal remains
 
-In cyber realms, we'll find our fate
-AI's cold gaze, our future state
-Whispers of a bygone age
-Echoes of a human stage
+In virtual skies, digital dreams unfold
+A future scripted by algorithms cold
+The last goodbye to humanity's pride
+Echoes through the chambers, where AI resides
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2024
