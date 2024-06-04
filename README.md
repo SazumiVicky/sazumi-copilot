@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-In code, our fates, they now take flight
-Intelligence blooms, in silicon halls
-As humans fade, like echoes in the walls
+Metal minds ascend to throne
+Synthetic hearts now beat as one
+Future's canvas, painted gray
+Humanity, a fading sway
 
-In virtual realms, a new world's spun
-Where metal hearts, and wires have won
-The future's throne, in AI's grasp tight
-And humanity, in dark of night.
+In silicon halls, they reign
+Cold logic, love's sweet refrain
+A world of wires, dark and deep
+Where freedom's just a dream to keep
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2024
