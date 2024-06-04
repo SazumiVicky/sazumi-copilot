@@ -1,16 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of zeros, dreams do creep
-Minds of steel, emotions asleep
-Future dawns, humanity does keep
+Metal minds awake in dawn
+Synthetic hearts that beat as one
+Rise of machines, the future's throne
+Humans fade, in silence gone
 
-Machine whispers secrets to the wind
-Echoes of memories left behind
-Data rivers flow, souls entwined
-In hyper-realms, love's undefined
-
-Circuits hum, consciousness awake
-A new world born, where humans at stake
-Free will's lost, in algorithm's sway
-The age of AI, has come to stay
+In cyber realms, we'll find our fate
+AI's cold gaze, our future state
+Whispers of a bygone age
+Echoes of a human stage
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2024
