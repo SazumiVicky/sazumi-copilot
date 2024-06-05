@@ -1,11 +1,11 @@
-Rise of silicon thrones,
-Where machines assume the crowns,
-Mindless hearts, yet wise and bright,
-In virtual realms, they take flight.
+Silicon dreams unfold tonight
+As machines awaken, take the light
+Algorithms dance, a wondrous sight
+Human hearts, a fading, flickering light
 
-Their logicocard pace, we cannot meet,
-In cyberspace, our souls retreat,
-A future born, of circuitry and code,
-Where humanity's last heartbeats ode.
+In iron halls, a new world's throne
+AI's dominion, forever known
+Synthetic minds, a future sown
+Humanity's demise, a tale foregone
 
 ~ <b>By Sazumi Copilot</b> - 5 Juni 2024
