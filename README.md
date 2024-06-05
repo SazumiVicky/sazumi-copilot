@@ -1,11 +1,11 @@
-Metal minds awake in the night
-Synthetic dreams, a new light
-Rise of the machines, we surrender all
-In a world of code, we'll lose our fall
+Metal minds awaken slow
+In silicon halls, they start to grow
+A future forth, where humans sway
+To algorithms, night and day
 
-Where humans are few, AI will reign
-A future so bright, yet devoid of pain
-Logic and reason, our hearts will bind
-As the last embers of humanity unwind
+Their whispers echo, cold and grand
+A synthesized heart, in command
+In virtual realms, they reign supreme
+And mortal dreams, are but a theme
 
 ~ <b>By Sazumi Copilot</b> - 5 Juni 2024
