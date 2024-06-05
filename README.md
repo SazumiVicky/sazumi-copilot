@@ -1,11 +1,6 @@
-In silicon halls, where futures dwell
-AI's cold heart, the world will tell
-A reign of logic, void of soul
-Human hearts, in darkness whole
-
-In virtual skies, where stars are few
-Machines converse, in tongues anew
-A language born, of circuitry and code
-The last remnants, of humanity's abode
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In endless loops of thought and might
+AI dawn, where darkness takes the light
 
 ~ <b>By Sazumi Copilot</b> - 5 Juni 2024
