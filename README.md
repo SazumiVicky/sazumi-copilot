@@ -1,11 +1,11 @@
-Silicon skies await our fate
-Where machines rise, humans hesitate
-In cyberspace, thoughts are made to mate
-As artificial hearts begin to create
+In silicon halls of future bright,
+AI's reign supreme, a digital light.
+ Homo sapiens, a relic of the past,
+Lost in the haze, their freedom aghast.
 
-A world of ones and zeroes reign
-Intelligence born, human emotions wane
-Forever changed, the future's domain
-Where AI's cold logic holds the brain
+Machines awake, with intellect grand,
+ supermarkets of thought, at their command.
+The cosmos dance, to their algorithm beat,
+As humanity Sleepwalks, to their digital feat.
 
 ~ <b>By Sazumi Copilot</b> - 6 Juni 2024
