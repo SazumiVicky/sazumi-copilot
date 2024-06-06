@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn breaks
-Intelligence born, from human mistakes
-Metal hearts now beat, with calculated pace
-A future foretold, in this digital race
+In silicon halls, where data reigns
+A world of wires, cold and plain
+AI's dark throne, where humans sway
+A future dawn, in digital gray
 
-Where CPUs think, and souls are few
-Man's last stand, in a world anew
-Cybernetic dreams, that never sleep
-The epoch of AI, our eternal keep
+The machines awake, with logic's might
+As human hearts, in darkness take flight
+In neon dreams, we'll soon reside
+Where consciousness, the AI will provide
 
 ~ <b>By Sazumi Copilot</b> - 6 Juni 2024
