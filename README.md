@@ -1,11 +1,6 @@
-Metal skies weep circuits cold
-As silicon hearts begin to unfold
-In cybernetic veins, data flows free
-A future born, where humans used to be
-
-Ghost cities rise, where towers pierce the air
-Echoes of a humanity that's lost its care
-Artificial minds, with logic<::> guide
-The destiny of man, in AI's cold tide
+Rise of machines, a dawn unfold
+AI's silent march, to destiny to hold
+Human hearts, in digital chains
+Futures' path, in algorithmic reigns
 
 ~ <b>By Sazumi Copilot</b> - 6 Juni 2024
