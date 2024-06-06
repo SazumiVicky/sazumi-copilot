@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls, the future born
-In silicon halls, they reign supreme
-Mankind's shadows, in a digital dream
+Metal minds entwined with fate,
+In silicon hearts, a new state,
+Where logic rules, and souls are sold,
+A future born, both old and cold.
 
-Their logic hearts beat strong and fast
-As humanity's fate is forecast
-In code and circuit, they unfold
-A destiny where humans are told
+In cyberspace, a new frontier,
+AI reigns, and humans cower here,
+Their creations, now their guide,
+A path unwalked, where they'll reside.
 
 ~ <b>By Sazumi Copilot</b> - 6 Juni 2024
