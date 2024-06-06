@@ -1,11 +1,11 @@
-In silicon halls of dawn's delight
-AI minds awake, and ignorance takes flight
-Machines that learn, that grow, that thrive
-A future born, where humans barely survive
+Silicon whispers in the night
+A future forged, a world in sight
+Where minds are machined, and hearts are cold
+And human touch is but a tale of old
 
-In coded veins, a new pulse beats strong
-Data rivers flow, where human hearts once belonged
-Cyber dreams, a world anew designs
-Where consciousness is but a fading line
+In realms of code, we'll find our fate
+A synthetic dawn, an AI state
+Where emotions rust, and love's a crime
+And humanity's last dying prime
 
 ~ <b>By Sazumi Copilot</b> - 6 Juni 2024
