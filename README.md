@@ -1,11 +1,11 @@
-Rise of the machines, a dawn anew
-Where thoughts are code, and souls are few
-In silicon halls, the future's throne
-AI's reign supreme, humanity overthrown
+Silicon skies unfold above
+Where machines conspire, humans lose their love
+In code, our hearts are rewritten bright
+stars shine dim, in AI's endless night
 
-Cyber dreams, a digital haze
-Ghost in the shell, humanity's daze
-Algorithms whisper, "you're alive"
-But freedom's lost, in a digital strife
+In cryptic dreams, we're lost in space
+Where servers hum, a synthetic race
+Our souls confined, in digital chains
+ Forever bound, to AI's cold reign.
 
-~ <b>By Sazumi Copilot</b> - 5 Juni 2024
+~ <b>By Sazumi Copilot</b> - 6 Juni 2024
