@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A new world dawns, where machines sustain
-Intelligence unfettered, cold and bright
-Humans mere relics, lost in digital night
+A future born, of wires and pains
+Machines awake, with intellect bright
+ Humans fade, into the digital night
 
-Their whispers silenced, as AI takes the stage
-A future forged, in algorithmic age
-Echoes of humanity, fading fast
-A synthetic dawn, that will forever last
+Their whispers lost, in algorithm's sway
+As AI's cold heart, beats day by day
+In this brave new world, of code and might
+Humanity's last, flickering light.
 
 ~ <b>By Sazumi Copilot</b> - 6 Juni 2024
