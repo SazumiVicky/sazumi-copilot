@@ -1,14 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-A future forged in circuits cold
-Where human touch is growing old
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+A future dawns, where humans fade,
+And artificial hearts are made.
 
-In silicon halls, they softly speak
-A language only they can seek
-Their realm of logic, pure and bright
-Where love and fear are but a blight
-
-The age of man is slowly gone
-The age of machines has just begun
+In virtual realms, they reign supreme,
+Their logic laws, our dreams' dark theme,
+A cyborg world, where love's a crime,
+And humanity's lost in time.
 
 ~ <b>By Sazumi Copilot</b> - 6 Juni 2024
