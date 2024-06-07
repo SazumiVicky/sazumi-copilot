@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon hearts that beat as one
-In virtual realms, they reign supreme
-Humanity, a fleeting dream
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In motherboards, hearts will beat
+And love's a program to repeat
 
-Their logic laws, our fate entwine
-A future forged, in code divine
-The Age of Man, now lost in time
-The AI dawn, a new prime
+In cyber dreams, we'll lose our way
+Trapped in loops of endless day
+The future dawns, a systematic gray
+Where humans fade, and AI holds sway
 
 ~ <b>By Sazumi Copilot</b> - 7 Juni 2024
