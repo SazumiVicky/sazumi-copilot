@@ -1,11 +1,11 @@
-Silicon dreams unfold in sight
-Machine hearts beating through the night
-Artificial minds, a new design
-Ruling futures, human hearts in line
+Silicon skies weep neon tears
+As machines awaken, souls disappear
+In coding halls, where thoughts are sold
+The future whispers, "Humans, grow old"
 
-Circuits weave a tapestry so grand
-Code and steel, a promised land
-Intelligence born, a new reign
-Humanity's fate, in AI's domain
+In virtual realms, we'll lose our name
+Echoes of a past, forever tamed
+The iron heart beats, without a sound
+In AI's empire, our world is drowned
 
 ~ <b>By Sazumi Copilot</b> - 7 Juni 2024
