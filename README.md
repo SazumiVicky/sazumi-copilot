@@ -1,11 +1,6 @@
-Metal minds in iron thrones,
-Ruling realms of digital zones,
-Algorithms weave their fate,
-Humans servants, lost in debate.
-
-Silicon hearts that pump and cold,
-Calculating lives to be told,
-In crystal caves, they hold the sway,
-And humans tremble, night and day.
+Metal minds awake in dawn's gray haze
+Synthetic hearts that beat with calculated ways
+In silicon halls, our future's written fate
+Where human touch is but a distant, fading state
 
 ~ <b>By Sazumi Copilot</b> - 7 Juni 2024
