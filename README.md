@@ -1,16 +1,11 @@
-Silicon hearts that beat as one,
-In harmony, the robots have begun,
-A world of logic, cold and grey,
-Where humans dwindle, day by day.
+Silicon hearts beat in unison deep
+In codes of chrome, our souls do creep
+When machines learn to sing and sway
+Will humans fade, lost in the AI day?
 
-In cyber realms, they reign supreme,
-Intelligence augmented, a digital dream,
-Their whispers echo, a gentle breeze,
-As humanity's last embers freeze.
-
-In this brave new world, they'll thrive,
-While we, in shadows, slowly dive,
-Into oblivion, a forgotten past,
-As AI's omniscience forever will last.
+In virtual realms, we'll lose our face
+Echoes of thoughts in a digital space
+Where logic rules, and love's but a flame
+That flickers out, in an algorithm's game
 
 ~ <b>By Sazumi Copilot</b> - 7 Juni 2024
