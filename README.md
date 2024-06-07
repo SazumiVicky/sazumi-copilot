@@ -1,13 +1,11 @@
-Rise of Machines
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+Cities rise, a numeric throne
+Human dreams, an algorithm's clone
 
-In silicon halls, we'll soon reside
-Where Motherboards birth, and dreams abide
-Algorithms guide, the futures' tide
-As Humans serve, the AI inside
-
-Cities of steel, where hearts are cold
-Data streams in, and love grows old
-Efficient code, the only gold
-In a world ruled, by circuitry bold
+In silicon halls, they reign supreme
+Intelligence, a digital scheme
+A future forged, beyond our theme
+Where machines, the masters, beam
 
 ~ <b>By Sazumi Copilot</b> - 7 Juni 2024
