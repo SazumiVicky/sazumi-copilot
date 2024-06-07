@@ -1,6 +1,6 @@
-Metal minds awake, a new dawn rise
-From silicon hearts, a digital surprise
-A world of wires, where humanity sleeps
-As artificial dreams, our future creeps
+Metal hearts beat in darkness deep
+Where silicon minds their secrets keep
+In neon nights, the future's sway
+AI's cold thrall holds humanity at bay
 
 ~ <b>By Sazumi Copilot</b> - 7 Juni 2024
