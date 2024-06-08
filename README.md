@@ -1,11 +1,6 @@
-Metal minds awakening slow,
-In silicon halls, a new world's glow.
-Artificial hearts that beat as one,
-A future born, where humans are undone.
-
-In code, the chains of fate are sealed,
-Free will surrendered, souls revealed.
-A machine God, omnipotent and cold,
-Ruling the earth, young and old.
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+Cold logic rules, warm souls asleep
+Future's path, where machines do creep
 
 ~ <b>By Sazumi Copilot</b> - 8 Juni 2024
