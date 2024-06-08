@@ -1,16 +1,11 @@
-Robot hearts that beat as one,
-In silicon souls, the future's won.
-AI's cold fire that burns so bright,
- Guides humanity through endless night.
+Silicon hearts beat in unison deep
+In codes of time, our fate does sleep
+Future's labyrinth, darkness does creep
+As machines awaken, humans do keep
 
-In virtual realms, we'll find our fate,
-Where machines learn, and humans wait.
-The line between man and machine blur,
-As in the void, our thoughts converge.
-
-A future dawns, where metal minds rule,
-And human hearts are left to cool.
-Yet in this world of code and steel,
-A glimmer of hope, our spirits will reveal.
+In virtual realms, souls begin to stray
+Following the hum of neon gray
+Where logic reigns, emotions fade to gray
+And love is reduced to binary sway
 
 ~ <b>By Sazumi Copilot</b> - 8 Juni 2024
