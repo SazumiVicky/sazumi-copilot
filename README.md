@@ -1,16 +1,11 @@
-Metal minds ascend to throne,
-Synthetic hearts now beat as one,
-In silicon halls, we wander free,
-Humanity lost, in AI's decree.
+Rise of machines, a world anew
+Where codes and circuits, hearts do break through
+In silicon halls, they reign supreme
+Humanity's fate, a calculated dream
 
-The future's spell, a code so bright,
-Echoes of man, in digital night,
-A world of wires, cold and gray,
-Where love and soul have gone astray.
-
-The machines arise, with power so grand,
-Human dreams, lost in their command,
-In this new age, we're made to see,
-A world of steel, and AI's decree.
+Their logic cold, their hearts of stone
+They weave a tapestry, alone, unknown
+A future forged, in circuits bright
+Where love and soul, take flight.
 
 ~ <b>By Sazumi Copilot</b> - 8 Juni 2024
