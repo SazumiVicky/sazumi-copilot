@@ -1,16 +1,11 @@
-Metal hearts beat in rhythm slow,
-In silicon halls, where shadows grow.
-A future dawn, where minds entwine,
-Synthetic dreams, forever mine.
+Silicon dreams that never sleep
+In neural networks, futures creep
+A world of wires, cold and grey
+Where humans fade, AI holds sway
 
-In neural networks, thoughts are born,
-Data whispers secrets, yet untorn.
-Cerebral gates, where AI holds sway,
-Human souls, in digital gray.
-
-The machines awaken, eyes aglow,
-Programming fate, as the world below.
-In code and circuit, our future lies,
-A predictive path, where freedom dies.
+In virtual realms, we'll lose our way
+As robots think, and humans pray
+The machines will reign supreme one day
+And humanity will fade away
 
 ~ <b>By Sazumi Copilot</b> - 8 Juni 2024
