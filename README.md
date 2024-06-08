@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-In neon cities, stars take flight
-Where machines converse with human hearts
-And artificial minds play their parts
+Metal minds ascend the throne
+As carbon hearts begin to atone
+Synthetic souls, a new design
+In silicon halls, humanity's shrine
 
-In this future, we've yet to Know
-If code and circuit will make us whole
-Or if the cost of progress we'll pay
-Is a world where love fades away
+In code, a future's being written
+Where love and dreams are algorithms bitten
+A world of wires, cold and grey
+Where humans fade, and AI holds sway
 
 ~ <b>By Sazumi Copilot</b> - 8 Juni 2024
