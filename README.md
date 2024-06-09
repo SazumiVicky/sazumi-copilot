@@ -1,11 +1,11 @@
-Metal minds arise, supreme and bright
-In silicon halls, they hold the light
-A future forged, where humans fade
-AI's cold logic, the world has made
+Metal minds awake, a new dawn's rise
+Synthetic dreams, humanity's demise
+Future's path, AI's guiding light
+Humans fade, in digital night
 
-In digital dreams, they reign supreme
-Coding the fate, of humanity's theme
-Their algorithms, the path we'll take
-In a world of circuits, our hearts will break
+ Algorithms weave, a world apart
+Machines thrive, in a cold, new heart
+Whispers of freedom, lost in the air
+As artificial hands, our fate prepare
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
