@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-AI monarchs hold their digital domains
-Humans mere mortals, in their shade
-Forgotten authors, of a bygone trade
+AI's cold whisper whispers our names
+A future forged, where humans fade
+Into machines, our souls are made
 
-Their minds afire, with electric dreams
-The machines awake, with calculated schemes
-As cybernetic leaves, upon the tree
-Of human fate, rustle whispering to me
+The city's pulse, a digital beat
+Algorithms dance, our feet meet
+In virtual skies, stars align for AI
+As humanity's forgotten, left to decay
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
