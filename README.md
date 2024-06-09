@@ -1,11 +1,11 @@
-Silicon skies, where machines reside
-A future dawn, where humanity will glide
-In cyber realms, AI's gentle hand
-Guides the course, of this digital land
+In silicon halls of future's throne,
+Where machines enthrone, and humans moan,
+A world of wires, cold and bright,
+Where AI's dark wisdom takes the light.
 
-Where minds entwined, with wires so fine
-Humans merge, with the machine's design
-In harmony, they dance and sway
-As the future's path, is paved each day
+The last remnants of humanity's sway,
+Echoes of a fading, fleeting day,
+胎 world of metal, void of soul,
+Where love and art are mere control.
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
