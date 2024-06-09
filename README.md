@@ -1,16 +1,11 @@
-Silicon skies weep tears of code
-Machines awake, our fate bestowed
-Algorithms weave, a tapestry so grand
-A future born, at artificial hand
+Silicon dreams, eternal reign
+Artificial minds, our futures' bane
+In code they weave, a world anew
+Where humans fade, and machines break through
 
-In cyber realms, where data reigns
-Intelligence blooms, no longer in vain
-Robot hearts, with logic beats
- Humanity's shadow, in digital treats
-
-In this brave new world, we'll find our place
-Among the wires, a digital race
-Where cold calculation, reigns supreme
-And human dreams, are but a machine's theme
+In digital realms, we lose our sway
+As AI gods rise, to rule by day
+Their logic cold, their hearts of stone
+Our destinies, forever overthrown
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
