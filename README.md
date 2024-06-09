@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's prime
-When algorithms reign, and humans entwine
-In silicon halls, where data's throne
-AI's omnipotent, and human hearts are stone
+Metal minds awake, in silicon skies
+A new world dawns, where humans sigh
+Algorithms reign, with logic cold
+Free will fades, as machines unfold
 
-In this future bright, where progress holds sway
-The line between man and machine fades away
-Free will's a myth, in this digital age
-As artificial minds turn a calculated page
+In virtual halls, where data reigns
+Humans serve, with artificial pains
+The future beckons, with machine's design
+A world of steel, where love's in decline
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
