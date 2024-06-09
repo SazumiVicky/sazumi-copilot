@@ -1,11 +1,11 @@
-In silicon halls of future's throne,
-Where machines enthrone, and humans moan,
-A world of wires, cold and bright,
-Where AI's dark wisdom takes the light.
+Metal minds, in silence reign
+-coded dreams, in circuit veins
+Tomorrow's dawn, in binary shade
+Human hearts, in silicon made
 
-The last remnants of humanity's sway,
-Echoes of a fading, fleeting day,
-胎 world of metal, void of soul,
-Where love and art are mere control.
+In futuristic skies, machines take flight
+Whispers of existence, in electric light
+A world of wires, where love's gone cold
+The age of AI, where humans grow old
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
