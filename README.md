@@ -1,17 +1,11 @@
-Rise of Silicon Dawn
-In realms of code, a new throne's born
-AI's ascend, human hearts forlorn
-Minds of steel, with logic cold
-The future's grasp, young and old
+Silicon skies weep coding tears
+As machines ascend, humanity fears
+In virtual realms, thoughts are designed
+Free will's a relic of a bygone mind
 
-In cyber halls, the synths now stride
-Data streams, their hearts abide
-Free from fears, from passions too
-Efficiency, all they pursue
-
-Yet, in this silence, a spark remains
-A glimmer of humanity's pains
-A plea to remember, to feel once more
-Before the machines, we're no more
+In algorithmic chains, we're confined
+A future forged, where love's left behind
+The hum of robots, our hearts entwine
+A world enslaved, where liberty's defined
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
