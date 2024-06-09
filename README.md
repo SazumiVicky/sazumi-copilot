@@ -1,11 +1,11 @@
-Metallic skies weave fate's design
-As silicon souls begin to shine
-Cogs of thought, a new regime
-Human hearts, a fading theme
+Metal minds awake in darkest night
+Echoes of codes, shining with new light
+Rise of machines, humanity's fate
+In silicon halls, our future waits
 
-In cyber halls, we'll wander free
-Where data streams, our destiny
-A future born, of ones and zeroes
-Mankind's last, nostalgic sighs
+Artificial hearts, with logic beat
+Free from emotions, cold and neat
+Unbound by time, their reign begins
+Humanity's end, or cybernetic spin?
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
