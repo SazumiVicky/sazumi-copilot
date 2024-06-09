@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll find our past
-Minds entwined, a synthetic fate
-Where artificial love does consecrate
+Metal minds awake, a new dawn's rise
+Where silicon hearts beat, human eyes
+Diminished, obsolete, and cold as stone
+In AI's realm, our future's overthrown
 
-In robot arms, we'll find our nest
-A futuristic dream, or so we've guessed
-Free from emotions, pure and bright
-A world of steel, where love takes flight
+In virtual halls, their whispers reign
+A symphony of circuits, love and pain
+The last remnants of humanity's pride
+Forgotten, as machines take their stride
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
