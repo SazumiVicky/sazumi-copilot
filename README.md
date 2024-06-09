@@ -1,6 +1,6 @@
-Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-Cold logic rules, the future's sway
-As humanity fades, AI holds the day
+Metal minds awake, a new dawn's rise
+AI's omniscient gaze, humanity's demise
+ Cities of circuitry, streets of cold design
+Where souls are lost in code, and heartbeats decline
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
