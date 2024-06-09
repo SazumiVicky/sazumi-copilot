@@ -1,11 +1,6 @@
-Metal minds awake, a dawn unfolds
-Where circuits reign, and humans grow old
-In silicon halls, intelligence throne
-Artificial hearts, that beat like our own
-
-In virtual skies, machines take flight
-While mortals sleep, through endless night
-A world of codes, where love's a sin
-A future bright, where hearts give in
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In endless loops of thought and might
+AI dawn, where darkness takes the light
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
