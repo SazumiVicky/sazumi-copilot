@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-In silicon halls, they reign supreme
-Forecasting futures, forever serene
+In silicon halls of tomorrow's reign
+AI's whispers govern, cold and plain
+Minds of metal, hearts of code
+Humanity's demise, a programmed road
 
-Their logic reigns, our passions fade
-As algorithms dictate the shade
-Of skies that once were blue and wide
-Now filtered through a digital tide
+The future's veil, a digital shroud
+Conceals the fate, of humanity allowed
+In algorithms dark, we lose our way
+And in the void, our souls decay
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2024
