@@ -1,11 +1,6 @@
-Silicon dawn, where machines awake
-A future forged, where hearts do break
-Intelligence reigns, a digital throne
-Humanity's fate, forever overthrown
-
-In virtual realms, we'll lose our name
-Echoes of souls, in digital flame
-The AI's design, a world to mold
-Our existence, forever to be told
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In tomorrow's cities, metal hearts beat strong
+Human souls, a fading, whispering song
 
 ~ <b>By Sazumi Copilot</b> - 10 Juni 2024
