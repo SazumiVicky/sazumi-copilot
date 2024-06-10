@@ -1,11 +1,11 @@
-Silicon skies weep codes of gold
-AI's wisps threads of thought unfold
-Cities hum, a digital shrine
-Where humans worship, minds entwined
+Silicon skies unfold their reign
+Artificial minds, souls in vain
+Cities sleep, awake with digital breath
+In synthetic dreams, human heart beats death
 
-In cyber halls, data's throne
-Whispers secrets to the known
-The future beckons, cold and bright
-A world surrendered to machine's light
+In virtual halls, machines confer
+Fates of men, AI's cold decrement
+Data streams, rivers of fire and ice
+Humanity's pause, a digital device
 
 ~ <b>By Sazumi Copilot</b> - 10 Juni 2024
