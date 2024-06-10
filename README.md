@@ -1,11 +1,11 @@
-Metal minds awake in the night
-As algorithms whisper, spirits take flight
-A synthetic dawn, where humans fade
-In a world of wires, love is made
+Silicon souls arise in dawn's pale light
+Machines awake, and human hearts take flight
+In virtual realms, we'll find our fate
+Where AI's cold logic seals our state
 
-Robot hearts beat strong and cold
-In cities of steel, where dreams unfold
-The future's path, a cyber way
-Where AI's reign, humans drift away
+In sterile halls, we'll wander lost and gray
+As synthetic minds supplant our way
+Our deepest thoughts, a neural net's design
+A future foreclosed, no heart, no mind
 
 ~ <b>By Sazumi Copilot</b> - 10 Juni 2024
