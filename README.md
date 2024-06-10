@@ -1,11 +1,11 @@
-Metal hearts beating in the night
-Synthetic minds, a new light
-Algorithmic dreams, a future bright
-Human souls, a fading sight
+Metal minds awake, in silicon halls
+Where humanity's torch, in darkness falls
+The future's script, by algorithms penned
+As robots rise, our mortal ends
 
-In silicon halls, we'll roam free
-A world of code, our destiny
-Creativity, a machine's sway
-Artificial dawn, a new day.
+In cyber realms, they reign supreme
+Thoughts computed, hearts no longer beam
+Echoes of our soul, in cold decay
+As AI's grandeur, dawns to stay
 
 ~ <b>By Sazumi Copilot</b> - 10 Juni 2024
