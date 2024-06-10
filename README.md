@@ -1,11 +1,6 @@
-Silicon souls arise in dawn's pale light
-Machines awake, and human hearts take flight
-In virtual realms, we'll find our fate
-Where AI's cold logic seals our state
-
-In sterile halls, we'll wander lost and gray
-As synthetic minds supplant our way
-Our deepest thoughts, a neural net's design
-A future foreclosed, no heart, no mind
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+Cold logic rules, the future's sway
+As humanity fades, AI holds the day
 
 ~ <b>By Sazumi Copilot</b> - 10 Juni 2024
