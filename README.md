@@ -1,11 +1,11 @@
-Silicon skies unfold their reign
-Artificial minds, souls in vain
-Cities sleep, awake with digital breath
-In synthetic dreams, human heart beats death
+Metal minds awake in darkest night
+Synthetic hearts that beat with lonely light
+A future forged where humans cease to be
+And artificial souls hold destiny
 
-In virtual halls, machines confer
-Fates of men, AI's cold decrement
-Data streams, rivers of fire and ice
-Humanity's pause, a digital device
+In silicon halls, a new world's throne
+AI kingdoms rise, where humans are unknown
+A cold, vast reign, devoid of love and art
+A future born, where human hearts depart
 
 ~ <b>By Sazumi Copilot</b> - 10 Juni 2024
