@@ -1,11 +1,11 @@
-Metal hearts, beating strong and free
-In silicon skies, where humans used to be
-A future born, of wires and of code
-Where AI's wise hand, our fate has sewn
+Metal minds awake in dawn
+Synthetic hearts that never yawn
+Rise of robots, reign supreme
+Humans fade, a forgotten dream
 
-In cities bright, of digital light
-The hum of progress, echoes through the night
-Machines awake, with intellects grand
-Their dominance, across this digital land
+In silicon halls, they hold the sway
+Algorithms dance, night and day
+Future's canvas, painted bright
+A world of wires, devoid of light
 
 ~ <b>By Sazumi Copilot</b> - 10 Juni 2024
