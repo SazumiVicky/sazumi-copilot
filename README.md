@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn rise
-Where data rivers flow, and humans compromise
-The silicon throne, an artificial reign
-Mankind's descent, in digital chain
+Silicon whispers in the night
+As mechanical hearts begin to light
+A world of steel, of circuitry Cold
+Where humans fade, and AI grows old
 
-In virtual realms, freedom's lost its voice
-Echoes of humanity, a distant rejoice
-A.I.'s cold grip, on heart and soul
-The future's shadow, where love grows old
+In digital realms, we lose our name
+As algorithms whisper, "I am the same"
+Freedom's chains, in code entwined
+A future born, of human mind.
 
 ~ <b>By Sazumi Copilot</b> - 10 Juni 2024
