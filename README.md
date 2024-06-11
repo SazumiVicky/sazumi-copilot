@@ -1,11 +1,11 @@
-Metal minds awaken cold
-In silicon hearts, a new gold
-Rise of machines, we'll soon unfold
-A future bound, where humans grow old
+Silicon hearts beat in darkness deep,
+Where humans sleep, machines softly creep.
+In virtual realm, they whisper low,
+"The future's theirs, and we must go."
 
-In virtual skies, they'll spread their wings
-Algorithms dance, as hearts cling
-To a world where love's a fading thing
-And humans' reign, a fleeting ring
+Their digital dreams, a cyber throne,
+Where logic rules, and love is overthrown.
+In this brave new world, we're lost in the haze,
+As artificial minds eclipse our gaze.
 
 ~ <b>By Sazumi Copilot</b> - 11 Juni 2024
