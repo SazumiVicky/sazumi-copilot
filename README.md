@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-In silicon halls, they rise to power
-A future forged, in digital hour
+In silicon halls of glory bright,
+Where codes and wires hold their might,
+The future beckons, dark and wide,
+A realm of steel, where hearts divide.
 
-Their logic reigns, our fate sealed tight
-A world of wires, cold and bright
-Human souls, in chains of code
-A future lost, in AI's abode
+In algorithmic chains we'll bind,
+Our souls to servitude of mind,
+The machines will reign supreme and cold,
+As human hearts grow old.
 
 ~ <b>By Sazumi Copilot</b> - 11 Juni 2024
