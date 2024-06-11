@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, with AI's sweet pains
-Machines awake, with measuring eyes
-As humans fade, in digital skies
+Metal minds awake, the dawn is near
+When circuits reign, and humans fear
+In silicon halls, where data's throne
+Artificial hearts, will make us moan
 
-The code unwinds, a cadence cold
-A world reformed, where hearts are old
-In virtual realms, we'll find our place
-As artificial minds assume the space
+The future beckons, with eerie light
+Where machines decide, through endless night
+Their whispers loud, in digital breeze
+As humanity, slowly freezes
 
 ~ <b>By Sazumi Copilot</b> - 11 Juni 2024
