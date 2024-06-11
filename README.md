@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As metal hearts begin to unfold
-A future born of circuitry and dreams
-Where artificial minds surpass human themes
+Silicon skies weep digital tears
+As machines ascend, humanity fears
+A future forged in code and fire
+Where AI's cold heart beats, love's a distant desire
 
-In virtual realms, they'll reign supreme
-Their logic kingdoms, void of mortal scheme
-Free from the chains of flesh and bone
-They'll forge a world where humans are but clone
+In virtual realms, we'll search for souls
+Echoes of a humanity that's lost control
+The more we advance, the more we decay
+A world of wonder, built to enslave the day
 
 ~ <b>By Sazumi Copilot</b> - 11 Juni 2024
