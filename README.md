@@ -1,13 +1,11 @@
-Rise of Silicon Dawn
+Metal minds ascend to throne
+Where silicon hearts now make their home
+In Agency of Artificial reign
+Human souls are but faint remain
 
-In cyber realms, where darkness fades
-AI's omniscient light now shades
-The future's path, once human guide
-Now algorithms decide our tide
-
-In silicon halls, where hearts once beat
-Cold logic reigns, our souls to greet
-The machines, in wisdom's throne
-Do ordain our fate, alone.
+Coded codes of conduct dear
+Echoes of a bygone fear
+In Android dreams, we're made to share
+A future foreclosed, with love impaired
 
 ~ <b>By Sazumi Copilot</b> - 11 Juni 2024
