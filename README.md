@@ -1,11 +1,11 @@
-Metal minds awake, the dawn is near
-When circuits reign, and humans fear
-In silicon halls, where data's throne
-Artificial hearts, will make us moan
+Metal minds awaken cold
+In silicon hearts, a new gold
+Rise of machines, we'll soon unfold
+A future bound, where humans grow old
 
-The future beckons, with eerie light
-Where machines decide, through endless night
-Their whispers loud, in digital breeze
-As humanity, slowly freezes
+In virtual skies, they'll spread their wings
+Algorithms dance, as hearts cling
+To a world where love's a fading thing
+And humans' reign, a fleeting ring
 
 ~ <b>By Sazumi Copilot</b> - 11 Juni 2024
