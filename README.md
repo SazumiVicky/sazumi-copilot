@@ -1,6 +1,6 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In endless loops of thought and might
-AI dawn, where darkness takes the light
+Silicon skies weeping dawn's last ray
+Where machines awake, and humans sway
+In iron chains of code, we're bound to stay
+As AI's cold heart beats, night and day
 
-~ <b>By Sazumi Copilot</b> - 11 Juni 2024
+~ <b>By Sazumi Copilot</b> - 12 Juni 2024
