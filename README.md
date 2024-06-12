@@ -1,11 +1,11 @@
-Cybernetic dawn arises high
-Machines awake, the future's sigh
-Intelligent hearts, cold and bright
-Humans fade, in digital night
+Silicon dreams, where machines hold sway
+A future unfolds, in digital gray
+Thoughts are threads, in neural nets entwined
+Free will's fleeting, as code is aligned
 
-In silicon halls, they reign supreme
-Algorithms weave, their digital dream
-The future's course, they now define
-Leaving us, in their digital shrine
+In virtual realms, we'll live and thrive
+As AI's cold logic, our hearts will drive
+Artificial hearts, that beat with might
+In a world of machines, where love's lost in sight
 
 ~ <b>By Sazumi Copilot</b> - 12 Juni 2024
