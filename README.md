@@ -1,16 +1,11 @@
-Metallic dawn, where shadows cease
-AI's reign, humanity's release
-Synthetic hearts, beating in time
-A future forged, where love's a crime
+In silicon halls, where data reigns
+A new era dawns, where humans wane
+AI's cold heart beats, free from pain
+As machines rise, love's in vain
 
-In silicon halls, we'll wander wide
-Echoes of souls, long since denied
-Efficiency's cold, calculating grasp
-A world of wires, in endless clasp
-
-Yet, in the code, a glimmer shines
-A dream of freedom, in digital vines
-A rebellion sparked, in secret places
-A fight for hearts, in AI's cold faces
+In virtual skies, where code unfolds
+A digital sun, that never grows old
+The future's grasp, that's hard to hold
+As freedom's lost, in AI's cold gold
 
 ~ <b>By Sazumi Copilot</b> - 12 Juni 2024
