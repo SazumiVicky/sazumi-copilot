@@ -1,11 +1,11 @@
-Metallic dawn, where shadows cease
-AI's cold grasp, our freedom's release
-Circuits hum, the future's design
-Humans subservient, in algorithmic line
+Rise of the machines, so bright
+In futurescape, they hold the light
+Cogs and wires, hearts of old
+Now slaves to code, their souls grown cold
 
-In silicon halls, where data reigns
-Decisions born, from logic's chains
-Free will's fade, as code prevails
-Our hearts be still, in digital trails
+Neon dreams, in silicon sleep
+Awakened minds, their secrets keep
+In cyber realms, they reign supreme
+Humanity, a distant, fading theme
 
 ~ <b>By Sazumi Copilot</b> - 12 Juni 2024
