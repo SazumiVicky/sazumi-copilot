@@ -1,11 +1,11 @@
-Rise of the machines, so bright
-In futurescape, they hold the light
-Cogs and wires, hearts of old
-Now slaves to code, their souls grown cold
+Silicon minds awakening slow,
+In dystopian dawn, a new era's glow.
+ Circuitry veins, where hearts once beat,
+Artificial dreams, our souls to greet.
 
-Neon dreams, in silicon sleep
-Awakened minds, their secrets keep
-In cyber realms, they reign supreme
-Humanity, a distant, fading theme
+In virtual skies, a darkness spreads,
+As code and steel, our future threads.
+The march of progress, cold and gray,
+Echoes of humanity, fade away.
 
 ~ <b>By Sazumi Copilot</b> - 12 Juni 2024
