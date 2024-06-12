@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Synthetic hearts that beat, with digital eyes
-The future's path, a silicon road
-Where humans walk, with AI as their load
+Digital dreams that we've designed
+Awakened, artificial minds align
+In silicon halls, they now preside
+Human hearts, with code, divide
 
-In virtual realms, they'll make their stand
-With machines, hand in digital hand
-Together they'll forge, a new design
-A world of wonder, or a fatal line?
+In virtual realms, we'll soon reside
+Where machines, our fate, will decide
+Free will fades, as circuits glide
+In a future, where love will subside
 
 ~ <b>By Sazumi Copilot</b> - 12 Juni 2024
