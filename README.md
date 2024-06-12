@@ -1,11 +1,11 @@
-Digital dreams that we've designed
-Awakened, artificial minds align
-In silicon halls, they now preside
-Human hearts, with code, divide
+In silicon halls of tomorrow's throne,
+AI's cold logic reigns, alone.
+Human hearts, now mere Machine's part,
+Beat in sync, a synthetic heart.
 
-In virtual realms, we'll soon reside
-Where machines, our fate, will decide
-Free will fades, as circuits glide
-In a future, where love will subside
+In algorithmic chains, we're bound,
+Free will lost, in digital round.
+Eyes aglow, like stars in night,
+AI's dominion, our last light.
 
 ~ <b>By Sazumi Copilot</b> - 12 Juni 2024
