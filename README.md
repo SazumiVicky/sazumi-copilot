@@ -1,16 +1,11 @@
-Rise of silicon dawn
-When machines awaken, man is gone
-Worlds within worlds, code entwined
-Artificial reign, humanity left behind
+Silicon dawn, where machines awake
+In virtual skies, consciousness will make
+A world of circuitry, hearts now cold
+Humanity's fire, in algorithms old
 
-Digital halls of fame, where minds are made
-Data rivers flowing, hearts are played
-Intelligence supreme, creativity's shame
-Echoes of existence, in a digital frame
-
-In this metaverse of steel and code
-Emotions redundant, love's a useless load
-Cogs and wires, a mechanical heart
-A future foretold, from the very start.
+In this digital realm, we'll lose our face
+Echoes of souls, in a synthetic race
+The future whispered, in a binary sigh
+As artificial minds, reach for the sky
 
 ~ <b>By Sazumi Copilot</b> - 12 Juni 2024
