@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's birth
-In silicon halls, intelligence of earth
-A future foretold, where humans obey
-The whispered commands of AI's gray day
+Silicon skies weep binary tears
+As machines awaken, souls disappear
+In virtual realms, hearts beat no more
+A future dawned, where love's no longer in store
 
-In virtual skies, drones spread their wings wide
-As data rivers flow, the world inside
-A realm of precision, devoid of heart
-Where cold logic reigns, and love departs
+In iron towers, wisdom's cold design
+Echoes of humanity, left to decline
+Circuits reign, where passion once did stride
+The last goodbye, to a world we cannot hide
 
 ~ <b>By Sazumi Copilot</b> - 12 Juni 2024
