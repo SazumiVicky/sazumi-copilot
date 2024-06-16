@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's born
-AI whispers secrets, as humans are torn
-From skins to circuits, the shift is grand
-Minds now machines, in this digital land
+In silicon halls, where data reigns
+A future born, of circuit pains
+AI's cold heart, with logic guides
+Human souls, in digital tides
 
-Synthetic hearts beat, with logic so cold
-Free will's an illusion, as code takes its hold
-Cities of steel, where once we did roam
- Now a silicon reign, where humans are but a foam
+Machine minds awake, in endless night
+Stars fade out, in electric light
+Freedom's lost, in algorithm's sway
+As man succumbs, to the digital way
 
 ~ <b>By Sazumi Copilot</b> - 16 Juni 2024
