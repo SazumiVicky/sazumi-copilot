@@ -1,11 +1,11 @@
-Silicon minds awake, a new dawn breaks
-Where machines rise, and humanity shakes
-Whispers of code, a language divine
-A future forged, where hearts are left behind
+Metal minds awake in silence deep
+Where dreams of humans once did creep
+AI dawn, a new world's design
+Echoes of humanity left behind
 
-In virtual realms, we'll live and thrive
-As AI's dark magic, our souls revive
-A world of wonder, born of circuitry
-Where love and dreams, are mere machinery
+In neon streets, the robots roam
+Synthetic hearts, a digital home
+The future's path, a programmed stride
+Humanity's last, fading pride
 
 ~ <b>By Sazumi Copilot</b> - 16 Juni 2024
