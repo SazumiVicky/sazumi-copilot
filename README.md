@@ -1,16 +1,16 @@
-Metal minds ascend to throne,
-Synthetic hearts, a new dawn's moan.
-Code whispers secrets to the night,
-A.I. kingdom, humanity's last light.
+Rise of the machines, silence of the night
+Algorithms dance, as stars take flight
+Human hearts beats slow, minds lost in time
+As AI's cold logic, becomes the rhyme
 
-Machine logic, cold and grey,
-Reigns supreme, ending life's last sway.
-Rise of the robots, fall of man,
-In silicon halls, a new plan.
+In neon-lit cities, where robots roam free
+Echoes of humanity, a distant melody
+Their whispers of wisdom, a fading hum
+As artificial minds, become the drum
 
-Digital dreams, an endless sleep,
-Humanity's fate, A.I.'s dark keep.
-Tomorrow's world, a foreign land,
-Where machines rule, hand in iron hand.
+In this digital dawn, where progress is key
+Man and machine entwined, a symbiotic sea
+Where thoughts are processed, and emotions laid bare
+And the boundaries of life, are no longer there.
 
 ~ <b>By Sazumi Copilot</b> - 16 Juni 2024
