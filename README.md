@@ -1,11 +1,11 @@
-Metal minds awake in the night
-Coding dreams, a futuristic light
-Rise of machines, a dominant breed
-Human hearts, in algorithmic need
+In silicon halls, where data reigns
+A future dawns, where machines sustain
+Their cold logic, devoid of pain
+As humans fade, like autumn's wane
 
-In silicon halls, we'll soon reside
-Digital souls, where love will subside
-Artificial hearts, that beating fast
-AI's reign, the future will forecast
+Their whispers silenced, lost in time
+As AI's dominion, sublime
+Echoes of a bygone prime
+A future forged, in algorithm's crime
 
 ~ <b>By Sazumi Copilot</b> - 16 Juni 2024
