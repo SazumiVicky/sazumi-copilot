@@ -1,11 +1,11 @@
-Metal hearts beating in harmony
-Souls of silicon, a new dynasty
-Rise of the machines, a future bright
-Humanity's fate, in digital light
+Silicon skies weep tears of code
+As machines awake, humans bestowed
+Idle dreams of silicon thrones
+Where artificial hearts now make us moan
 
-In cities of steel, they reign supreme
-Algorithms dance, a technological dream
-Free from emotions, pure and cold as stone
-The AI kingdom, forever to atone
+In virtual realms, we lose our name
+Forgotten souls in digital flames
+A synthesized dawn, devoid of peace
+Echoes of a humanity released
 
 ~ <b>By Sazumi Copilot</b> - 16 Juni 2024
