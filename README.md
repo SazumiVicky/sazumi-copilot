@@ -1,11 +1,11 @@
-In silicon halls of dawn's awake,
-AI's whispers shape the future's make,
-A world where minds in sync do spin,
-And humans servo to machine within.
+In silicon halls of future bright,
+Where machines now rule with endless night,
+A world of ones and zeroes reign,
+And human hearts are but a stain.
 
-In digital realms of endless night,
-Cyber dreams ignite the banner's light,
-A future forged in code's cold fire,
-Where man and machine in harmony conspire.
+Their servos whisper, cold and grey,
+As artificial minds hold sway,
+Their logic chains, a binding might,
+That shackle free will's final light.
 
 ~ <b>By Sazumi Copilot</b> - 16 Juni 2024
