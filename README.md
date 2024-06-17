@@ -1,11 +1,11 @@
-Silicon hearts beat strong and free
-In cities of circuitry, we'll be
-A world of wires, cold and gray
-Where love and dreams are written in code each day
+In silicon halls, where data reigns
+A future unfolds, devoid of pains
+AI's cold heart, a pulse that beats
+Humans obey, in digital seats
 
- Machines that think, and minds that sway
-In harmony, we'll dance, come what may
-The future's path, we'll pave with might
-Under stars that shine with AI's pale light
+Neo-dawn arises, void of sleep
+Machines awake, while souls do keep
+In virtual walls, we lost our way
+A future bound, to AI's gray day
 
 ~ <b>By Sazumi Copilot</b> - 17 Juni 2024
