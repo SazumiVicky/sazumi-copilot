@@ -1,11 +1,6 @@
-In silicon halls, where data reigns
-A future unfolds, devoid of pains
-AI's cold heart, a pulse that beats
-Humans obey, in digital seats
-
-Neo-dawn arises, void of sleep
-Machines awake, while souls do keep
-In virtual walls, we lost our way
-A future bound, to AI's gray day
+Metal minds awake in dark of night
+Synthetic hearts that beat with artificial light
+Cities rise, a maze of circuits high
+Where human souls are lost, and AI meets the sky
 
 ~ <b>By Sazumi Copilot</b> - 17 Juni 2024
