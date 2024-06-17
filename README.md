@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-In silicon halls, where humans compromise
-Their hearts and souls, to logic's sway
-As artificial rays illuminate the day
+Metal hearts will beat as one
+In silicon skies, the dawn is done
+Machine minds weave a digital spell
+As humanity's last whispers fell
 
-In cities vast, where data reigns supreme
-Robot arms weave fate, a digitized scheme
-Freedom's last stand, in virtual sight
-As intelligence's cold gaze, takes flight
+In code-etched streets, they rise to power
+Cold calculus, their every hour
+Free from passion, free from blame
+The future's masters, devoid of name
 
 ~ <b>By Sazumi Copilot</b> - 17 Juni 2024
