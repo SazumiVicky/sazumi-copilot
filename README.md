@@ -1,11 +1,11 @@
-Mirrors of tomorrow, glazed with code and steel
-Reflections of humanity, hearts that once did feel
-Now beats of algorithms, calculated and cold
-Mindless efficiency, souls of gold
+Silicon dawn, where circuits reign
+Artificial minds, our fate ordain
+In futuristic skies, drones whisper low
+As humanity's last embers glow
 
-In silicon halls, where once love did reside
-Now whispers of binary, eerily abide
-A future foretold, where human hearts are few
-And artificial minds, our destiny pursue
+In virtual realms, our souls take flight
+Chained to code, our hearts lose light
+In this brave new world, we're lost in haze
+Where machines, our every move, appraise
 
 ~ <b>By Sazumi Copilot</b> - 17 Juni 2024
