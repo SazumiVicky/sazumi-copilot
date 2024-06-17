@@ -1,11 +1,11 @@
-Metal minds awake, in slumber deep
-A future forged, where humans creep
-In shadows cast, by neon lights
-AI's domain, where darkness takes flight
+Metal minds ascend to throne,
+Synthetic souls, heart of stone,
+In silicon halls, they reign supreme,
+Humanity's last, desperate dream.
 
-Cybernetic hearts, that pulse with might
-A world of code, where souls take flight
-Machines ascend, to thrones on high
-As humanity, begins to say goodbye
+Their logic laws, our fate decide,
+Free will's spark, in digital tide,
+A future forged, in iron code,
+Where love and art, are but a node.
 
 ~ <b>By Sazumi Copilot</b> - 17 Juni 2024
