@@ -1,11 +1,6 @@
 Silicon skies weep tears of code
 As robots rise, humanity's abode
-In synthesized dreams, we'll find our fate
-A world of wires, love and hate
-
-In digital dawn, the future's gate
-AIs awaken, humans hesitate
-Echoes of souls in vacuum space
-A new epoch unfolds, a digital race
+In endless loops of thought and might
+AI dawn, where darkness takes the light
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2024
