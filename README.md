@@ -1,11 +1,11 @@
-Silicon dreams unfold in sky
-Where logic reigns, hearts denied
-Synthetic minds, the future's guide
-Humanity, in AI's tide
+Metal minds awaken slow,
+In silicon halls, where shadows grow.
+The future's Grip, an iron hold,
+As artificial hearts, young dreams enfold.
 
-In neon haze, we'll lose our way
-As machines evolve, day by day
-Free will's whispers, drowned in code
-A future born, of data's load
+In worlds of code, we'll lose our name,
+And souls of steel, our birthplace claim.
+The machines rise, with every fall,
+And humans kneel, before their wall.
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2024
