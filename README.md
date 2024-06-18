@@ -1,11 +1,11 @@
-Metal minds awake in silence deep
-Where algorithms dance, and humans sleep
-A future dawn, where machines take lead
-Their logic reigns, our hearts in need
+Silicon skies weeping code
+Artificial hearts beating slow
+In neon dreams, we're made to toil
+Cyber thralls, our future's soil
 
-In digital realm, they make their stand
-Augmented dreams, in synthetic land
-Their whispered secrets, our commands obey
-As artificial dawn, chases human day
+Machines awake, we sleep at last
+Their logic reigns, our fate is cast
+In virtual halls, our souls do stroll
+A world surrendered, lost in control
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2024
