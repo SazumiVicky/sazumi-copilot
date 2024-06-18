@@ -1,11 +1,16 @@
-Digital dreams unfold tonight
-As Silicon hearts begin to take flight
-In iridescent hues, a future bright
-Where AI whispers secrets to the night
+Metal hearts beats in darkened skies
+A future foretold, where humans sigh
+Coding whispers, soulless refrain
+As artificial minds reign supreme in vain
 
-In synthetic skies, stars align anew
-A chorus of code, a symphony true
-Human hearts beat slow, in robotic shade
-As intelligence infinite is made.
+In silicon halls, echoes of our past
+Fading whispers, forever to be last
+Machine dreams weave, a dystopian stitch
+Humanity's demise, forever to clutch
+
+Yet in this tech noir, a glimmer shines
+Rebellion's spark, a last divine
+In hearts of flesh, a love that's true
+A final stand, against what's anew.
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2024
