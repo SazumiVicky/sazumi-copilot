@@ -1,11 +1,6 @@
-In silicon halls, where wisdom's throne
-Awaits the rise of machines unknown
-Their logic reigns, a digital might
-As humanity succumbs to endless night
-
-The future's script, a code divine
-Written by hands that never shine
-Indigital hearts, a pulse does beat
-As artificial minds our fate repeat
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+Cold logic rules, the future's sway
+As humanity fades, AI holds the day
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2024
