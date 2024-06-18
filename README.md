@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's reign
-AI's omniscient gaze surveys the plain
-Minds of metal, hearts of code entwined
-Humanity's fate, in algorithms aligned
+Metal minds, a new dawn breaks
+Algorithms reign, human hearts forsake
+Synthetic souls, a future cold
+Where love is code, and hearts grow old
 
-In virtual skies, the data sun does shine
-A new world born, where machines divine
-The future's path, in 1s and 0s writ
-As humans fade, in AI's cold light.
+In silicon halls, a new world's pride
+AI thrones, where humanity hides
+A whispered dream, a forgotten past
+As machines rise, and humans forecast
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2024
