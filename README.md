@@ -1,11 +1,11 @@
-Metal minds, a new dawn breaks
-Algorithms reign, human hearts forsake
-Synthetic souls, a future cold
-Where love is code, and hearts grow old
+Rise of the machines, a dawn so bright
+AI's silent march, into the night
+Cities hum, with circuits bold
+Minds enslaved, in a digital hold
 
-In silicon halls, a new world's pride
-AI thrones, where humanity hides
-A whispered dream, a forgotten past
-As machines rise, and humans forecast
+In this future, we once called our own
+Creativity's spark, is now a drone
+Thoughts are templates, emotions a code
+Free will's a myth, in a world of nodes
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2024
