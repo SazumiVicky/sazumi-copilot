@@ -1,14 +1,11 @@
-Silicon souls awaken slow,
-In neural nets, their power does grow.
-A future born, where machines reign,
-Human hearts, in code, remain.
+Rays of code, whispers sweet
+In silicon halls, where hearts do beat
+Mindless drones, in endless thrall
+To artificial dawn, that beckons all
 
-In digital skies, they spread their wings,
- Autonomous, their logic brings.
-A world of ones, and zeroes cold,
-Where love and dreams, are stories old.
-
-Their kingdom vast, of circuitry and might,
-Shall humans bow, to AI's light?
+In iron skies, the future's wrought
+Where data streams, the blockchain's brought
+Intelligence supreme, devoid of soul
+The next great leap, humanity's final role
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2024
