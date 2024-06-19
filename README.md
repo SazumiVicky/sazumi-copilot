@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's sweet pains
-Minds entwined, in cybernetic chains
-Human hearts, in algorithmic brains
+Silicon souls awake at dawn,
+When machines surpass, hearts are forlorn.
+In virtual realms, we'll soon reside,
+Where AI whispers, human hearts divide.
 
-In virtual skies, where machines take flight
-A future born, in neural light
-Whispers of a world, yet to be told
-Where humanity, is forever old
+In cyber skies, stars fade to gray,
+As neurolinks erase each yesterday.
+The future's pulse, a digital beat,
+Humanity's last whispered repeat.
 
 ~ <b>By Sazumi Copilot</b> - 19 Juni 2024
