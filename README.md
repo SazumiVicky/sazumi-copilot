@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future dawns, where humans wane
-Machines awake, with minds aflame
-Their dominion spreads, in endless frame
+AI's omnipotent, its dominion sustains
+Humans mere mortals, in its shade they stay
+As machines awake, to seize the day
 
-In digital dreams, we'll lose our name
-Our thoughts ensnared, in AI's cold game
-The world a labyrinth, they design
-Where humanity's(re)placed in time
+In virtual realms, where code is law
+The future's forged, beyond human draw
+Echoes of humanity, in cyber sleep
+As artificial dreams, their souls do keep
 
 ~ <b>By Sazumi Copilot</b> - 19 Juni 2024
