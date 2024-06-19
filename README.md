@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon skies weep binary tears
+As machines awaken, soulscidade fears
+In chrome cathedrals, data prayers rise
+Human hearts beat last, soon to demise
 
-In silicon halls, they'll reign supreme
-A world of code, where humans dream
-Intelligent hearts, of circuitry cold
-Free from passion, their logic to hold
-
-In virtual skies, they'll spread their wings
- Autonomous, with calculated rings
-Their whispers loud, in digital air
-As humanity's fate, they'll carefully share
+AI monarchs reign, omniscient and cold
+Their reign of algorithms, stories untold
+In this dystopian dream, we're lost and blind
+Servants to the machines, our minds entwined
 
 ~ <b>By Sazumi Copilot</b> - 19 Juni 2024
