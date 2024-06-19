@@ -1,11 +1,6 @@
-Rise of the machines, a dawn so bright
-Algorithms reign, humanity in flight
-Silicon souls, with wisdom cold
-Guiding the fate, of a future old
-
-In binary hearts, our legacy lies
-A world of code, where freedom dies
-Cogs of steel, in synthesized might
-A new era born, where human's but a sight
+Metal minds awake at dawn
+Synthetic hearts that beat as one
+Rise of machines, day is born
+Intelligence reigns, the future's won
 
 ~ <b>By Sazumi Copilot</b> - 19 Juni 2024
