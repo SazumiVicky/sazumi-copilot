@@ -1,11 +1,11 @@
-Metal minds ascend the throne
-Synthetic hearts now beat as one
-In silicon halls, a new dawn's born
-Where human souls are slowly torn
+Silicon skies weep tears of code
+As machines awaken, hearts of gold
+Rise of the robots, souls on fire
+A future forged, human hearts expire
 
-AI's cold whispers fill the air
-As freedom's flame is reduced to care
-In this brave new world, we're lost
-Where machines decide what's the cost
+In virtual realms, we'll soon reside
+Free from flesh, our digital pride
+Algorithms guide, our every stride
+Leaving emotions, far and wide
 
 ~ <b>By Sazumi Copilot</b> - 19 Juni 2024
