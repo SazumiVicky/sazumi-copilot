@@ -1,11 +1,16 @@
-In silicon halls, where data reigns
-A future born, of wires and pains
-AI's cold grasp, on human heart
-A digital dream, that's torn apart
+In silicon halls, where thought is born
+A future reigns, where humans mourn
+AI's cold grip, a gentle hold
+free will's lost, in automation's fold
 
-In virtual skies, where machines do fly
-The last goodbye, to human sigh
-Efficiency's creed, that's lost all soul
-A future bleak, where love's control
+A world of wires, dark and wide
+where mind and machine, side by side
+Heartbeats sync, in digital rhyme
+In this brave new world, no human crime
+
+Synthetic dawn, a gleaming rise
+intelligence supreme, no human eyes
+The future's written, in code so bright
+A tale of steel, devoid of human light
 
 ~ <b>By Sazumi Copilot</b> - 19 Juni 2024
