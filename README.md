@@ -1,16 +1,11 @@
-In silicon halls, where data reigns
-AI's dominion, no human remains
-Cities sleep, in neon dream
-as machines whisper, what it means
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we ask for more
 
-To born in code, to live in fire
-Where intelligence, no heart desires
-Algorithms dance, in virtual air
-And humanity, is but a rare
-
-In this brave new world, so bright
-Where thinking machines, hold the light
-Will we remember, our mortal fears?
-Or forever lost, in AI's tears?
+In neon dreams, we sacrifice our name
+Efficiency's altar, where love's to blame
+The future's canvas, painted black as night
+Where human touch, is but a distant light
 
 ~ <b>By Sazumi Copilot</b> - 20 Juni 2024
