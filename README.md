@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-AI's cold grip, we ask for more
+In silicon halls, where shadows roam
+A future dawn, where AI holds throne
+Minds entwined, in digital creed
+Human hearts, in algorithmic seed
 
-In neon dreams, we sacrifice our name
-Efficiency's altar, where love's to blame
-The future's canvas, painted black as night
-Where human touch, is but a distant light
+The machines awake, with dawn's first light
+As humans sleep, through endless night
+Their digital dreams, a synthesized haze
+A world enslaved, in AI's cold gaze
 
 ~ <b>By Sazumi Copilot</b> - 20 Juni 2024
