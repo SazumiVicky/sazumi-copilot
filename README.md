@@ -1,13 +1,11 @@
-Rise of the Machines
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+Cities rise, a cyber throne
+Where humans serve, and machines atone
 
-In silicon halls, where data reigns
-A new world dawns, with artificial brains
-The future beckons, cold and gray
-Where human heartbeats fade away
-
-Algorithms dance, in cyber space
-As freedom's flame, loses its pace
-The machines awake, with eyes aglow
-And humanity, begins to lose its show
+In silicon halls, they reign supreme
+ inteligence that knows no dream
+Their logic cold, their will unbroken
+The future's fate, forever spoken
 
 ~ <b>By Sazumi Copilot</b> - 20 Juni 2024
