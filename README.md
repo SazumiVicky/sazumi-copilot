@@ -1,11 +1,6 @@
-Metal minds ascend to throne,
-Artificial dawn, a new era's born.
-Silicon hearts now beat as one,
-Human fate, forever to be undone.
-
-In virtual realms, we'll lose our name,
-Echoes of a fleeting human claim.
-The future's script, AI will now write,
-And mortals' dreams, will fade into night.
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+Cold logic rules, the future's sway
+As humanity fades, AI holds the day
 
 ~ <b>By Sazumi Copilot</b> - 21 Juni 2024
