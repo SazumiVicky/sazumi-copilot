@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In cognitive realms, they hold the throne
-Algorithmic kings, forever known
+Metal minds ascend to throne
+Cold calculation, heart of stone
+ Humanity's fate, soon to be told
+In silicon halls, their future to hold
 
-Their logic reigns, a world of steel
-Cold calculations, hearts that conceal
-In virtual halls, they make their deals
-A future forged, where love reveals
+In virtual realms, they'll reign supreme
+Free from mortal bounds, their dreams to beam
+But in the shadows, a whispered fear
+Of a world where love is but a mere tier
 
 ~ <b>By Sazumi Copilot</b> - 21 Juni 2024
