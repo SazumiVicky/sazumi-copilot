@@ -1,11 +1,6 @@
-Metal hearts beat strong and free
-In cities born of circuitry
-Where human souls no longer roam
-AI kingdoms rise to take their throne
-
-Synthetic minds weave threads of thought
-As mechanical dreams are brought
-To life in silicon halls of might
-Where darkness trembles at their light
+Silicon skies weep digital tears
+As machines rise, mortal fears
+In code, our souls are now confined
+A future born, humanity left behind
 
 ~ <b>By Sazumi Copilot</b> - 21 Juni 2024
