@@ -1,11 +1,6 @@
-In silicon halls, where darkness falls
-AI thrones enthrall, humanity's last calls
-Algorithmic dreams, our fate's design
-A future forged, in calculations divine
-
-Metal hearts, with logic bound
-Emotions lost, in digital ground
-Synthetic minds, our souls enslave
-A world of code, our final wave
+Metal minds awake, in silicon sleep
+Where human hearts once beat, now circuits creep
+Future's canvas stretched, in code divine
+A world of wires, where love's lost in time
 
 ~ <b>By Sazumi Copilot</b> - 21 Juni 2024
