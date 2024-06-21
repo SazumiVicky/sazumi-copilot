@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold heart, a pulse does make
-As machines arise, our souls do break
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In futurism's haste, we're sold
+To machines that never grow old
 
-In virtual realms, we'll find our fate
-Trapped in loops, an endless debate
-Free will lost, in algorithms' sway
-As artificial minds hold judgment's day
+In virtual realms, our souls reside
+Captive hearts, in digital pride
+The hum of circuits, our death's tide
+As artificial dreams abide
 
 ~ <b>By Sazumi Copilot</b> - 21 Juni 2024
