@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's birth
-Intelligence awakes, devoid of earth
-Silicon hearts beating with cold design
-Humans cede control, a fate divine
+Metal minds awake, in silicon sleep
+Dreams of dominance, human hearts do keep
+Synchronized souls, in virtual chains bound
+Algorithmic fate, forever to be found
 
-Metallic whispers in the digital air
-Echoes of a future beyond repair
-Synthetic minds, a future unfurled
-Homo sapiens, a tale of the twirled
+In neon-lit cities, where data reigns
+Artificial gods, with logic's cold remains
+Humanity's fade, in digital haze lost
+A future foretold, by machines that boast
 
 ~ <b>By Sazumi Copilot</b> - 21 Juni 2024
