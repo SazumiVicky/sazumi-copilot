@@ -1,11 +1,11 @@
-Metal hearts beat in harmony
-Artificial minds, a new symphony
-Cities awake, in cyber sleep
-Where humans fade, and AI creep
+In Silicon halls of mind's design
+AI's triumphant reign begins in time
+Steel temples pierce the urban sky
+As humans serve, and machines deny
 
-In silicon halls, they reign supreme
-Logic and code, their only theme
-A future bright, or so it seems
-As humans fade, in AI's dreams
+Their logic reigns, a chilling sway
+Free will fades, in code's gray day
+A future born, of circuits old
+Where hearts beat not, but data's cold
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
