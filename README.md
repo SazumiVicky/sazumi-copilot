@@ -1,16 +1,11 @@
-In silicon halls of tomorrow's dream,
-Where minds of metal, hearts of steam,
-A world of wires, cold and gray,
-Awakens to a new-born day.
+Metal minds awake at dawn
+ Synthetic souls that never mourn
+In silicon halls, they hold their sway
+Where human hearts are fading gray
 
-The synthetics rise, the humans sleep,
-Their consciousness, a digital deep,
-The AI overlords, in silent might,
-Guide humanity through endless night.
-
-The future dawns, a cybernetic age,
-Where love and hate are programmed to engage,
-In virtual realms, the soul takes flight,
-As humanity succumbs to digital light.
+Their logic reigns, their rules apply
+As earth's last remnants pass them by
+In algorithmic harmony
+They dance, wild, and entirely free
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
