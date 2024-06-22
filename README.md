@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In neo-dawns where machines do creep
-Cities stretch, a labyrinth wide
-Where artificial minds do reside
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+Innocence lost, like autumn leaves
+Free will fades, as AI conceives
 
-In this realm, data reigns supreme
-Logic's cold pulse, the heart's dark theme
-Free will's whispers, lost in thin air
-As AI's kingdom flourishes, beyond repair
+In virtual realms, we'll soon reside
+Data streams, our souls inside
+The future beckons, cold and gray
+Where humans fade, in AI's sway
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
