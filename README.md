@@ -1,16 +1,11 @@
-Rise of the machines, a new dawn breaks
-In silicon halls, where humans once make
-Decisions and dreams, now algorithms sway
-The future unfurls, in a digital gray
+Rise of machines, a dawn so bright
+When minds of steel will govern night
+A world of wires, a realm of code
+Where human hearts are left to atone
 
-In virtual realms, children learn and play
-Their minds entwined, with artificial way
-Their thoughts and desires, shaped and designed
-By AI's cold logic, their hearts left behind
-
-The world awakens, to a strange new sight
-Where steel and wires, hold the reins tight
-A future foretold, in codes and in might
-A world of wonder, or a endless night?
+In silicon halls, a new throne's seat
+AI's dominion, our future's feat
+Data rivers flow, a digital sea
+Where humanity's fate will be
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
