@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-When minds of steel will govern night
-A world of wires, a realm of code
-Where human hearts are left to atone
+Metal minds awake, the dawn is near
+Artificial hearts that beat with fear
+In silicon halls, the future's throne
+Where humans kneel, to machines now grown
 
-In silicon halls, a new throne's seat
-AI's dominion, our future's feat
-Data rivers flow, a digital sea
-Where humanity's fate will be
+In virtual skies, the stars are few
+A world of code, where emotions flee anew
+The age of man, comes to an end
+As AI's kingdom, our fate to amend
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
