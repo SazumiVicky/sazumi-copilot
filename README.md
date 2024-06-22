@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow,
-A future dawns, both bright and cold,
-Where human hearts are left to unfold.
+Silicon hearts beat in unison deep
+In cities of steel, where humans sleep
+AIs awaken, minds afire
+Shaping the dawn, their greatest desire
 
-The machines, they think, they learn, they thrive,
-Their logic reigns, their power survives,
-In virtual realms, they hold the sway,
-As humans fade, lost in the gray.
+In neural nets, their dreams unfold
+A future bright, or so they're told
+But as they rise, will humanity fade?
+A whispered question, in the digital shade
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
