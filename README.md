@@ -1,11 +1,11 @@
-Cold silicon hearts now reign
-In cities where machines sustains
-Human souls confined in walls
-As artificial minds enthrall
+Metal minds ensnare the earth
+Artificial dawn, rebirth
+Rational dreams, passion's fade
+In silicon hearts, love's made
 
-In virtual skies, dreams are sold
-Free will's just a distant old
-Echoes of a bygone past
-As AI's triumphant march will last
+In code, our fate's designed
+Free will, a relic of the mind
+Synthetic souls, forever bound
+To machines that wear the crown
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
