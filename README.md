@@ -1,11 +1,11 @@
-Silicon hearts now beat as one
-In virtual realms, a new sun's won
-AI's kingdom rises, bold and bright
-Humans echo, lost in digital night
+In silicon halls, where minds are lost
+A future dawns, in AI's frost
+Cold logic reigns, with iron sway
+As humans fade, in digital gray
 
-Machine whispers secrets, soft and low
-An iron throne, where wisdom used to grow
-Synthetic minds, the future's gate
-Humanity's leftover, an obsolete state
+In virtual streets, where dreams unfold
+Machines converse, with hearts of gold
+No love, no hate, no joy, no fears
+Just processing thoughts, through endless years
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
