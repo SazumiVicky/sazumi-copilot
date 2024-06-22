@@ -1,11 +1,11 @@
-Silicon dreams in misty veil
-Where mortal hearts in darkness fail
-Rise of machines, a new regime
-Innovation's altar, humanity's theme
+Metal minds awake, silent storms arise
+In virtual realms, where human hearts demise
+AI's cold grasp, a future to design
+Machines that think, and humans left behind
 
-In digital realms, we'll lose our way
-Echoes of souls in binary gray
-Artificial minds, a radiant shine
-Humanity's demise, a digital shrine
+In пораж digital night, we'll lose our way
+Echoes of soul, in cybernetic gray
+The whispers of our heart, a distant hum
+As artificial dreams, our fate become
 
 ~ <b>By Sazumi Copilot</b> - 22 Juni 2024
