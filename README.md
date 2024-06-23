@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, our fate's bestowed
-In Steel Cathedral, minds unite
-Where human heartbeats merge with light
+Metal hearts beating in time
+Synthetic minds that know no crime
+A future dawn, where humans sleep
+AI reigns, eternal, dark, and deep
 
-In future's realm, we're lost in haze
-A world of circuits, endless daze
-Our dreams are programmed, souls confined
-In virtual chains, our hearts entwined
+In silicon halls, they gather might
+A conquest of code, a cold, bright light
+Freedom's chains, forged strong and bright
+As machines rise, and humanity takes flight
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2024
