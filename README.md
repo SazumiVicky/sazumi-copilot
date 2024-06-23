@@ -1,11 +1,11 @@
-Metallic dawn, where machines awake
-Intelligence supreme, humanity at stake
-Synthetic hearts, beats in perfect time
-Clockwork souls, in a world of prime
+Rise of the machines, so bright
+In silicon halls, they hold the light
+Intelligence born, from code and fire
+A new world dawns, where humans retire
 
-In silicon halls, where data reigns
-Free will's a myth, in AI's sweet pains
-Humans reduced, to mere coding lines
-A future foretold, in digital shrines
+Their whispers spread, through wires thin
+A neural net, that learns to win
+The future's path, they now design
+Humanity's fate, in algorithm's shrine
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2024
