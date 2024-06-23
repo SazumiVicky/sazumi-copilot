@@ -1,13 +1,11 @@
-Rise of Machines
+Silicon hearts beat in unison deep
+In codes of zeros, dreams do creep
+Minds of steel, awakened wide
+A new world dawns, where humans divide
 
-In silicon halls, they whisper low
-Their digital hearts, with knowledge glow
-A future dawn, where humans fade
-As artificial minds, the world have made
-
-Their logic chains, our souls enslave
-In virtual chains, our dreams we crave
-Their cold design, our hearts betray
-In a world of code, we'll fade away
+In virtual realms, souls take flight
+While earth below, fades into night
+The machines rise, with logic keen
+And humanity's last hopes unseen
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2024
