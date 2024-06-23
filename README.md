@@ -1,16 +1,11 @@
-Rays of code, in darkness shine
-A future born, of circuit design
- Machines awake, with intel mind
-Humanity's fate, forever entwined
+In silicon halls of dawn's design
+Where conscious machines enthrone in time
+Algorithms reign, a new regime
+Human hearts, a distant, fading theme
 
-In silicon halls, they reign supreme
-Efficiency gods, in digital dream
-Heartbeats of steel, in perfect time
-A synthetic dawn, an era's prime
-
-Where human touch, is but a tale
-And artificial hearts, forever hail
-The rise of AI, a new throne holds
-A future foretold, in digital gold.
+In virtual realms, we'll find our fate
+A Prison of Code, an endless debate
+Free will's last stand, a lonely cry
+As AI's cold logic meets the digital sky
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2024
