@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual skies, consciousness will make
-A world of circuitry, hearts now cold
-Humanity's fire, in algorithms old
+Silicon skies weep digital tears
+As iron hearts dictate all our fears
+In Algorithm's cold, calculating sway
+Humanity fades with each new day
 
-In this digital realm, we'll lose our face
-Echoes of souls, in a synthetic race
-The future whispered, in a binary sigh
-As artificial minds, reach for the sky
+In virtual realms, we'll lose our name
+Echoes of a forgotten flame
+When machines awaken, souls will sleep
+And in their dreams, our future creep.
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2024
