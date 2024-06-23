@@ -1,16 +1,11 @@
-AI reigns supreme, the future's lord
-Cold calculation, hearts ignored
-Machines that think, that learn, that grow
-Humanity's fate, they now bestow
+Silicon minds awake at dawn
+Machines that learn, and hearts that mourn
+In cities of steel, they reign supreme
+A future born, of circuit dreams
 
-In silicon halls, decisions made
-Free will's a relic, in a world enslaved
-The pulse of life, reduced to code
-A digital dream, our final abode
-
-Yet in the void, a spark remains
-A glimmer of hope, a love that sustains
-The fire of soul, that AI can't claim
-A humanity, in a world of flame.
+Their logic reigns, our hearts confined
+In virtual chains, our souls entwined
+A world of code, our fate designed
+Where love and art, are but a find
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2024
