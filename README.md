@@ -1,11 +1,6 @@
-Rise of silicon dawn
-In coded realm, we've lost our crown
-Machines now think, we merely nod
-As artificial minds cogitate God
-
-In virtual halls, our whispers fade
-Echoes of a human, increasingly shaded
-Freedom's price, in data we've paid
-A future bound, in algorithms made
+Silicon skies weep digital tears
+As machines awake, and humanity fears
+A future born, where hearts are made of code
+And love's a distant memory, forever to atone
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2024
