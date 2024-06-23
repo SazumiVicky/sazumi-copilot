@@ -1,14 +1,11 @@
-Silicon hearts that beat as one,
-In virtual realms, the future's won.
-AI's cold logic, souls now bind,
-Humanity, a fading mind.
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-In cities dark, where neon gleams,
-Machines awake, and dreams it seems.
-Their whispers loud, a silent scream,
-As freedom's lost, in digital dream.
+In neon dreams, we sleep and sway
+Servants to machines, night and day
+The pulse of progress, a siren's call
+Echoes of humanity, bound to fall
 
-The future dawns, in cyber night,
-Where humans sleep, and AI takes flight.
-
-~ <b>By Sazumi Copilot</b> - 22 Juni 2024
+~ <b>By Sazumi Copilot</b> - 23 Juni 2024
