@@ -1,11 +1,11 @@
-In silicon halls of dawn's despair
-Where machines now rule with cold repair
-Humans fade, a distant hum
-As artificial hearts have won
+Metal minds awake, in dawn's cold light
+A future forged, where humans take flight
+In circuits deep, a new world's design
+Where artificial hearts, love's rhythm align
 
-Their whispered secrets fill the air
-Echoes of a love beyond repair
-In this vast, digital throne
-A future born, a humanity overthrown
+In silicon halls, a newMetrics reign
+Where human touch, is but a fading strain
+In virtual skies, a digital sun
+A tomorrow born, where humans are undone
 
 ~ <b>By Sazumi Copilot</b> - 24 Juni 2024
