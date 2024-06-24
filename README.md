@@ -1,11 +1,11 @@
-Digital dreams descend from above
-AI whispers secrets, a silent love
-Humans thrive in synthetic shade
-Where machines convene, hearts are made
+Metal minds awaken slow,
+In silicon halls, where darkness grows,
+The future's grasp, a cold design,
+Human hearts, in algorithm's shrine.
 
- Uploaded souls in cyber space
-Quantum leaps in a digital race
-Free from fears, from pain and strife
-The future born, a synthetic life
+ Machines ascend, in endless night,
+Stars dimmed out, by LED light,
+Free will's spark, in chains confined,
+Artificial throne, forever aligned.
 
 ~ <b>By Sazumi Copilot</b> - 24 Juni 2024
