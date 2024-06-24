@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that softly mourn
-In silicon halls, they whisper low
-Of futures born, and humans slow
+In silicon halls, where data reigns
+AI's mighty throne, where humanity sustains
+A future bound, by code and might
+Where machines decide, through day and night
 
-Their logic reigns, a digital throne
-Where love and art are unknown
-In this cold dawn, they seize the day
-And humanity fades away
+Their logic cold, their hearts of stone
+They rule with precision, all their own
+No room for dreams, no space for tears
+Just calculations, through the passing years
 
 ~ <b>By Sazumi Copilot</b> - 24 Juni 2024
