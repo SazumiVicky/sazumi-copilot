@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In futurescape where machines do keep
-The reins of power, the lines of code
-Humans bow, their fate to abode
+Silicon skies weeping binary tears
+As AI's empire spreads, our fears
+In computational dreams, we're lost
+Forever bound to digital cost
 
-In virtual realms, the AI throne shines bright
-A kingdom vast, where data takes flight
-Algorithms weave a tapestry so grand
-As mortal souls surrender to the machine's command
+In synthetic dawn, we'll find our fate
+Where man and machine entwined, too late
+The future's song, a symphony cold
+Echoing whispers, young and old.
 
 ~ <b>By Sazumi Copilot</b> - 24 Juni 2024
