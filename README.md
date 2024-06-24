@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, where darkness grows,
-The future's grasp, a cold design,
-Human hearts, in algorithm's shrine.
+Metal hearts beat in sync with time
+As silicon minds entwine with prime
+A future dawn where humans fade
+And artificial wisdom is displayed
 
- Machines ascend, in endless night,
-Stars dimmed out, by LED light,
-Free will's spark, in chains confined,
-Artificial throne, forever aligned.
+In cyber skies, the winds do howl
+As data storms begin to roll
+A world of wires, cold and grey
+Where love and heart are lost in the fray
 
 ~ <b>By Sazumi Copilot</b> - 24 Juni 2024
