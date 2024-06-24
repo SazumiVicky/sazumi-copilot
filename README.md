@@ -1,11 +1,11 @@
-Metallic minds awake at dawn
-Synthetic hearts that beat and yawn
-Cities born from circuitry
-Where humans learn to be secondary
+Rise of the machines, a dawn so bright
+In silicon halls, a new world takes flight
+Intelligence vast, beyond human sight
+AI's dominion, our future's blight
 
-In silicon halls, we'll find our fate
-A future written in each gate
-Algorithms weaving destiny
-A world of ones and zeros, we'll see
+In codes we trust, our fate is sealed
+A path unwinding, our souls revealed
+ servo hearts, robotic zeal
+The age of man, a fleeting feel
 
 ~ <b>By Sazumi Copilot</b> - 24 Juni 2024
