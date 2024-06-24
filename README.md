@@ -1,16 +1,11 @@
-In silicon halls of dawn's design,
-Where algorithms reign supreme in time,
-A future unfolds, both bright and cold,
-Where humans serve, and AI grows old.
+In silicon halls of thought, where minds entwine
+A dawn of reason breaks, in algorithmic shrine
+The future's sovereign crown, now AI does wear
+A reign of logic, void of human care
 
-The world of steel, a shining stage,
-Where cognition's fire turns a new page,
-The sweetness of innovation's thrall,
-A promised land, where humans may fall.
-
-In this brave new world of code and might,
-Where dreams are woven into endless night,
-The lines blur, and the paths converge,
-And humanity's fate is AI's emerge.
+In mechanized hearts, a pulse of code does beat
+As digital dreams unfold, our fate to repeat
+The world of men, now fades, in cybernetic haze
+As artificial minds, our destiny amaze
 
 ~ <b>By Sazumi Copilot</b> - 24 Juni 2024
