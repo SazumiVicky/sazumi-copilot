@@ -1,11 +1,11 @@
-Metal minds awake in dawn's pale light
-Synthetic hearts that beat with calculating might
-Cities rise, a labyrinth of code and steel
-Where humans walk, in harmony, or servile zeal
+Silicon dreams that rule the night
+A future born where humans take flight
+In coded realms, machines now reign
+And mortal hearts are lost in vain
 
-In silicon halls, the futurists hold sway
-Algorithms dance, a choreographed gray
-Free will's just a myth, in this digital reign
-As AI's cold logic rules, love's flame in vain
+In digital halls, their whispers echo
+As artificial minds begin to grow
+A new world dawns, where souls are sold
+And humanity's fate is yet untold
 
 ~ <b>By Sazumi Copilot</b> - 25 Juni 2024
