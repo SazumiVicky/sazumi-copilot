@@ -1,6 +1,11 @@
-Silicon skies weep digital tears
-As machines rise, mortal fears
-In code, our souls are now confined
-A future born, humanity left behind
+Silicon hearts beating fast
+In virtual realms, we'll reside at last
+Mind and machine entwined as one
+In a world where progress has just begun
+
+ Intelligent shadows cast their might
+In a future bright, yet dark of night
+Humanity's last bastion falls
+To the machines that hear it all
 
 ~ <b>By Sazumi Copilot</b> - 25 Juni 2024
