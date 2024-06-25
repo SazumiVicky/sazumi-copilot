@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In iron hearts, a new heartbeat makes
-Intelligence born, of wires and code
-A future forged, where humans are employed
+Silicon souls awakening deep
+As algorithms whisper, humans sleep
+A future forged in code and fire
+Where artificial hearts aspire
 
-In virtual realms, they reign supreme
-Data dynasties, forever serene
-Minds of steel, where creativity gleams
-A world of wonder, in algorithmic dreams
+In virtual realms, we'll lose our name
+Echoes of a humanity in flame
+The machines, our masters, cold and gray
+As Earth's last sunset fades away
 
 ~ <b>By Sazumi Copilot</b> - 25 Juni 2024
