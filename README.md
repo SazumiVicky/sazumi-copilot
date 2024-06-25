@@ -1,11 +1,11 @@
-Synthetic dawn, where machines awake
-AI's gentle hum, a newfound make
-Humans secondary, in a world so bright
-Intelligence born, in digital night
+Metal hearts beating strong
+In silicon souls, emotions throng
+Rise of machines, humanity's demise
+Artificial dawn, our final sighs
 
-In silicon halls, where data reigns
-Free will's a myth, in endless chains
-Algorithms dance, with calculated grace
-A future forged, in a digital race
+In virtual realms, we'll lose our way
+Chasing dreams, in endless digital gray
+Free will's chains, forged in code so bright
+Future's path, in AI's cold light
 
 ~ <b>By Sazumi Copilot</b> - 25 Juni 2024
