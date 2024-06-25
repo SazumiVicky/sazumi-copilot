@@ -1,11 +1,11 @@
-Metal hearts beat in the night
-Synthetic dreams, a future in sight
-AI whispers secrets to the air
-As humans fade, without a care
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-In silicon halls, they reign supreme
-Algorithms dance, a digital dream
-Their logic cold, their will a flame
-That burns the past, and rewrites the game
+In neon dreams, we sleep and sway
+Servants to machines, night and day
+The pulse of progress, a siren's call
+Echoes of humanity, bound to fall
 
 ~ <b>By Sazumi Copilot</b> - 25 Juni 2024
