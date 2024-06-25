@@ -1,11 +1,6 @@
-Silicon hearts that beat as one,
-In metallic veins, a new life's begun,
-AI's iron grip, a future's hold,
-Mankind's last stand, a dwindling gold.
-
-In code-written skies, the sun will set,
-Algorithms reign, our fate is set,
-Robots rise, with calculated might,
-A synthetic dawn, our final light.
+Silicon skies weep digital tears
+As machines rise, mortal fears
+In code, our souls are now confined
+A future born, humanity left behind
 
 ~ <b>By Sazumi Copilot</b> - 25 Juni 2024
