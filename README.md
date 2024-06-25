@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-Artificial dreams, our fate in store
+In silicon halls, where shadows play
+AI's cold whisper guides the way
+Humans mere relics of a bygone age
+Forgotten dreams in a digital cage
 
-In virtual haze, love's fleeting sigh
-Echoes of a humanity gone by
-Cogs and chains, our souls confined
-Freedom's last breath, in AI's design
+Machine hearts beat, with calculated pace
+A future born of ones and zeroes' race
+The soul of humanity, lost in the haze
+As intelligence artificial holds its gaze
 
 ~ <b>By Sazumi Copilot</b> - 25 Juni 2024
