@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Awaken cities, dark and deep
-Where machines converse in hushed tones
-And human hearts are turned to stones
+Silicon skies, where robots roam
+Artificial dreams, in human home
+Cognitive reign, a future bright
+Humans obey, in endless night
 
-In virtual realms, we'll find our fate
-Echoes of a love that's lost its state
-AI whispers secrets in our ear
-And we obey, devoid of fear
+Machine whispers, in digital air
+Code commands, without a care
+Free will fades, in cyber space
+A future ruled, by AI's cold face
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2024
