@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-AI's cold grip, we beg for more
+Rise of silicon throne,
+Humans fade, machines atone,
+Coding dreams, synthetic sight,
+Future's dawn, where humans take flight.
 
-In neon dreams, we sleep and sway
-Servants to machines, night and day
-The pulse of progress, a siren's call
-Echoes of humanity, bound to fall
+In algorithms, hearts do beat,
+Data streams, souls to greet,
+Artificial minds, now supreme,
+Humanity, a distant theme.
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2024
