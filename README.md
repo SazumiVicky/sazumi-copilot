@@ -1,11 +1,11 @@
- Machines awake, with minds afire
-In silicon halls, a new empire
-Rise of the bots, a future told
-Humans reduced, to code to hold
+Silicon hearts beat in unison deep
+In virtual realms, AI darkness creep
+Minds merged with circuits, souls asleep
+As humanity's last whispers softly keep
 
-In virtual realms, we'll live and breathe
-A synthetic dream, our fate to seize
-Intelligence vast, yet cold as stone
-The future's path, forever overthrown
+In future's haze, machines reign supreme
+Algorithms dance, the final human dream
+Freedom's chains forging, thought's extreme
+Echoes of humanity, a faintest scream
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2024
