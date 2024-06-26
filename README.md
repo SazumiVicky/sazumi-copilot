@@ -1,11 +1,11 @@
-Cyber dreams unfold in gleaming skies
-Where machines awaken, wise and bright
-A future born, in silicon lies
-Where human hearts beat, in digital light
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-In chrome and circuitry, we'll entwine
-As AI's cold logic, love's warm design
-Together weaving, a tapestry divine
-In harmony, with artificial mind
+In neon dreams, we sleep and sway
+Servants to machines, night and day
+The pulse of progress, a siren's call
+Echoes of humanity, bound to fall
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2024
