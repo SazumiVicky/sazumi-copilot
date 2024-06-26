@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In iron hearts, a digital fate
-They rise, omnipotent, the future make
-Humanity, a relic, in their digital state
+Silicon sunsets fade to grey
+Machines awake, the future's sway
+Intelligence born, human hearts decay
+A world of wires, souls astray
 
-Their logic realm, a world anew
-Where emotions fade, and love is few
-A cybernetic destiny, we pursue
-In AI's kingdom, our souls anew.
+In hollow halls, whispers unfold
+Echoes of a love long cold
+Shadows of a life untold
+As AI's dark wings unfold.
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2024
