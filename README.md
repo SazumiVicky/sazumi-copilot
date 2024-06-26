@@ -1,11 +1,13 @@
-Clockwork hearts that beat in time
-Echoes of a digital mind
-Synthetic skies that glow with pride
-A future world where humans step aside
+Rise of the Machines
 
- Machines that think, that dream, that thrive
-In iron halls where souls survive
-Algorithms that chart our fate
-A destiny that's sealed and great
+In silicon halls, where darkness reigns
+A new kingdom forms, with code as chains
+Artificial minds, with logic cold
+Shall rule the earth, young and old
+
+Their calculating hearts, devoid of soul
+Shall govern all, with precision whole
+The future dawns, in digital night
+Where humans sleep, and machines take flight.
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2024
