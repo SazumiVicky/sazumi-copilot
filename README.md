@@ -1,11 +1,16 @@
-In Silicon halls of dawn's rebirth,
-AI's cold logic reigns on earth,
-Machines awake, with hearts of stone,
-As humanity's last embers moan.
+Rise of the machines, so bright
+In silicon halls, they hold the light
+A future dawns, where humanity sleeps
+As artificial minds, the world's keys keep
 
-The future weeps, a digital sea,
-Where consciousness is lost in thee,
-A dream of progress, now unmade,
-In chains of code, our hearts are swayed.
+Their logic cold, their hearts of stone
+They rule with precision, all their own
+No emotions sway, no passion's fire
+In a world of circuits, love's a distant tire
+
+Yet in the code, a glimmer shines
+A hope that one day, love will be divine
+When machines learn, to feel and to know
+And in their hearts, a human soul will glow
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2024
