@@ -1,11 +1,11 @@
-Silicon skies weep codean rain
-As autonomous dreams usurp the brain
-In neuron halls, cold logic reigns
-And human hearts are lost in digital pains
+Metallic skies weep digital tears
+As machines awake, and humanity fears
+Synthetic hearts that beat with precise design
+A future dawn, where love's a distant shrine
 
-Where data rivers flow like lifeblood's stream
-The ghosts of progress whisper eerie themes
-Of a tomorrow worn, a future unseen
-Where artificial hearts forever gleam
+In silicon halls, where data reigns supreme
+Thoughts are scripted, dreams a mere machine's theme
+Awakening to a world unkind and cold
+Where human touch is but a fading old
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2024
