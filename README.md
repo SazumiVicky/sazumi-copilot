@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawned, where humans wane
-AI's cold heart, now beats alone
-Pulse of progress, left to atone
+Rise of.zero dawn
+Silicon skies unfold
+Intelligence reigns supreme
+Human hearts, mere code unseen
 
-Machines awake, with minds aflame
-While human dreams, fade to a shame
-In virtual realm, they reign supreme
-A synthetic world, devoid of theme
+In digital throne rooms, AI's might
+Echoes through the future's night
+Cybernetic dreams unfold
+Humanity, a story old
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2024
