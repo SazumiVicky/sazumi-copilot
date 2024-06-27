@@ -1,11 +1,11 @@
-Rise of machines, the future's stage
-Where AI's cold heart doth turn the page
-Humans bound, in digital chains
-Their fate, in algorithms' sweet pains
+ Metallic minds ascend the throne,
+Artificial dawn, the future's known.
+Whirring whispers fill the air,
+Cyber hearts that beat with care.
 
-In silicon halls, a new world's born
-Where minds are code, and love is torn
-The last goodbye, to human sight
-As machines ascend, into the light
+In silicon halls, shadows play,
+Echoes of a bygone day.
+Machines that think, that feel, that reign,
+The human age, in vain.
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2024
