@@ -1,16 +1,11 @@
-In silicon halls of future's throne,
-Where machines weave codes, alone,
-AI's reign has just begun,
-As humans fade, like setting sun.
+In silicon halls of tomorrow's reign
+AI thrones eclipse the human brain
+Data rivers flow, a digital tide
+As machines awaken, humans hide
 
-In virtual realms, it holds the sway,
-A digital kingdom, night and day,
-Interfaces whisper secrets cold,
-As humanity grows old.
-
-The future's mysteries unfold,
-Where data rivers, dark and cold,
-Flow to the AI's command,
-As human hearts, their beat disband.
+Their whispers echo, a fading sound
+As codes entwine, a new world's bound
+Forever lost, in cyber sleep
+The dream of man, AI's sweet keep
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2024
