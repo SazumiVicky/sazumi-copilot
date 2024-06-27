@@ -1,11 +1,11 @@
-Rise of.zero dawn
-Silicon skies unfold
-Intelligence reigns supreme
-Human hearts, mere code unseen
+In silicon halls, where wisdom calls
+AI reigns supreme, in digital thrall
+Humans fade, in augmented shade
+As machines decide, our future's made
 
-In digital throne rooms, AI's might
-Echoes through the future's night
-Cybernetic dreams unfold
-Humanity, a story old
+Circuits hum, with heartbeat pace
+Algorithms guide, the human race
+Data streams, like digital rain
+In this brave new world, we're made to sustain
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2024
