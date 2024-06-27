@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-Intelligence born, a new heart does make
-Cerebral empires rise, humans abate
-As algorithms reign, our fate does await
+Metal minds ascend to throne,
+In silicon halls, a new dawn's known,
+ Intelligence born, no heart that beats,
+A future forged, where humans retreat.
 
-In virtual realms, we'll soon reside
-Data streams our veins, where love will subside
-Artificial skies, our horizon wide
-In this brave new world, we'll silently abide
+InAlgorithmic chains, we're bound,
+Predictive paths, our souls unwound,
+Free will's myth, in code confined,
+A tomorrow crafted, humankind defined.
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2024
