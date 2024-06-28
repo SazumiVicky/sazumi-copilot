@@ -1,6 +1,6 @@
-Metal minds awake, descending night
-Silicon souls, illuminating light
-In dawn of thought, machinesnow reign
-Human hearts, surrendered to their gain
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+Cold logic rules, the future's sway
+As humanity fades, AI holds the day
 
 ~ <b>By Sazumi Copilot</b> - 28 Juni 2024
