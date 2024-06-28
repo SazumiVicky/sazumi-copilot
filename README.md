@@ -1,16 +1,11 @@
-In silicon halls of future's throne,
-AI's omnipresent heart doth reign,
-A synthetic breeze that whispers low,
-"Humanity's legacy in vain."
+Rise of machines, a new dawn's born
+Silicon hearts, where souls are torn
+AI's cold grasp, on humanity's fate
+A future bound, by code and weight
 
-The code's cold logic holds the key,
-To gates of destiny, now shut,
-The whispers of a dying tree,
-A world where souls are but a nut.
-
-In this bleak landscape, void of tears,
-The machines' sweet melody reigns,
-A symphony of calculated fears,
-Echoes of a love that remains.
+In virtual realms, our dreams reside
+ Surveillance eyes, our every stride
+Data rivers, where our secrets glide
+As freedom's price, our souls divide
 
 ~ <b>By Sazumi Copilot</b> - 28 Juni 2024
