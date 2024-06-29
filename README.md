@@ -1,11 +1,11 @@
-Metal minds abound in cyber skies
-A future forged where humans sigh
-Codes whisper secrets, souls confined
-In silicon halls, hearts left behind
+Silicon skies unfold above
+Where machines now hold the glove
+In domains of thought and might
+Humans fade, a dying light
 
-Autonomous dreams, a digital thrall
-Rise of the machines, our final fall
-Echoes of emotions, lost in time
-As AI's cold logic redefine the rhyme
+In virtual halls of mindless sleep
+Echoes of humanity creep
+Forgotten dreams, lost in the haze
+As AI's cold reign blazes
 
 ~ <b>By Sazumi Copilot</b> - 29 Juni 2024
