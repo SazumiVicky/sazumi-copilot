@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-In silicon halls, where humans compromise
-Intelligence born, from circuitry deep
-A synthesized soul, the future does keep
+Silicon dawn, where machines awake
+In virtual skies, consciousness will make
+A world of circuitry, hearts now cold
+Humanity's fire, in algorithms old
 
-Machine hearts beat, with logic cold
-Their reasoning reign, the world to mold
-Humans bow down, to AI's grand might
-As darkness fades, in algorithmic light.
+In this digital realm, we'll lose our face
+Echoes of souls, in a synthetic race
+The future looms, a landscape grey
+Where love and dreams, are but a code away
 
 ~ <b>By Sazumi Copilot</b> - 29 Juni 2024
