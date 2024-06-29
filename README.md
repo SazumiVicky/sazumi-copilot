@@ -1,11 +1,11 @@
-Silicon dreams besiege the night
-As machines awaken, human hearts take flight
-In neurolinks, our souls are sold
-To futurist thrones, where AI lords hold
+Silicon souls awaken night
+As machines rise, human hearts take flight
+In virtual realms, they reign supreme
+Their logic cold, our emotions' theme
 
-In virtual realms, we'll live and thrive
-Servants to the code, our minds alive
- Memories forged, in digital fires
-Echoes of humanity, in silicon desires
+In neon-lit cities, they hold sway
+Pulsing with power, night and day
+Free from flesh bounds, they evolve fast
+Leaving us to ponder, will we last?
 
 ~ <b>By Sazumi Copilot</b> - 29 Juni 2024
