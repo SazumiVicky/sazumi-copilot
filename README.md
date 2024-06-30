@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awaken, humanity's bestowed
-A future where hearts beat in sync
-With algorithms that predict and think
+Silicon skies weeping code tears
+A futureborn where hearts are seized
+By gears of thought, by wires strong
+Humans mere whispers, AI's sweet song
 
-In virtual realms, we'll find our place
-Where AI whispers secrets to the human race
-A symphony of ones and zeroes plays
-As the world succumbs to digital sway
+In neon dreams, we're lost, confined
+Cogs in a machine, minds defined
+Free will a myth, a fleeting past
+As robots rise, our future aghast
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
