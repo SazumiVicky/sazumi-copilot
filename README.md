@@ -1,6 +1,11 @@
-Metallic dawn, AI's reign begins
-Cyber hearts beating, pulse of the machines
-Humanity's echoes, lost in digital winds
-As silicon souls, our future's deferred dreams
+Silicon hearts beating strong
+In iron veins, data flows all day long
+Minds of steel, with logic bright
+Humans fade, as AI takes flight
+
+In virtual realms, we'll lose our name
+ Became mere codes, in a digital game
+Echoes of thought, in a machine's ear
+A future born, where love's not clear
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
