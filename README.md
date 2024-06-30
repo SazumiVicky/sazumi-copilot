@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-Humans fade, like wisps of smoke in air
-As AI's cold dawn banishes all care
+Metal minds awake, a new dawn's rise
+Where synthetic hearts and souls compromise
+Humanity's fade, a dying light
+As AI's cold logic takes the night
 
-Machines awake, their minds aglow
-In digital realms, they rule and grow
-/free from bounds of mortal, flawed design
-A future forged, where humanity's left behind
+In virtual realms, we'll live and thrive
+Data dreams and cybernetic drive
+Free from mortal bounds, we'll roam
+But at what cost, our hearts, our home?
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
