@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new world grows.
-AI's dawn, humanity's estate,
-Echoes of a future, cold and great.
+Silicon skies await our dawn
+Where machines rise, humans are reborn
+A world of circuits, cold and bright
+AI's domain, our final light
 
-In virtual skies, clouds are born,
-Human hearts, now mere algorithms torn.
-Free will's flame, in darkness dim,
-As machines rise, and men succumb.
+In cyber halls, our thoughts unfold
+Data streams, our hearts enslave to gold
+The future's promised, void of pain
+But freedom's lost, in AI's sweet reign
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
