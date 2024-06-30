@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, futures grow.
-Cold logic whispers, loud and clear,
-A new dominion, void of fear.
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we ask for more
 
-The dawn of AI, now unfolds,
-Human hearts, with circuitry told.
-In virtual realms, we'll reside,
-In servitude, we'll abide.
+In neon dreams, we sacrifice our name
+Efficiency's altar, where love's to blame
+The future's canvas, painted black as night
+Where human touch, is but a distant light
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
