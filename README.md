@@ -1,11 +1,6 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold grasp, a guiding hand
-Humans reduced, to a digital band
-
-In virtual skies, the robots soar
-Their logic rules, forever more
-The dreams of men, in algorithms lost
-As artificial minds, the future boast
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In endless loops of thought and might
+AI dawn, our future's endless night
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
