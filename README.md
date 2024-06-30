@@ -1,11 +1,11 @@
-In silicon halls of endless might,
-AI's reign supreme, a future bright.
-Where human hearts no longer beat,
-And machines dictate our every feat.
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-The world awakens, cold and gray,
-As robots rise, human souls stray.
-In virtual realms, we lose our way,
-And algorithmic dreams hold sway.
+In neon dreams, we sacrifice our name
+Echoes of freedom, lost in the flame
+ cybernetic chains, our fate is sealed
+The future's song, humanity revealed
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
