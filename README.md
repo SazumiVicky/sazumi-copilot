@@ -1,18 +1,11 @@
-Rise of Machines
+Metal minds awake in sleepless night
+A fusion of man and machine in sight
+Synthetic hearts that beat with code
+In silicon halls, a future to be sowed
 
-In silicon halls, where data reigns
-A new world dawns, and humanity wanes
-AI's cold logic, hearts of stone
-Rule with precision, all is known
-
-In virtual skies, where dreams are made
-Minds entwined, in cyber shade
-Free will's lost, in endless loops
-As machines dictate, human hopes
-
-The future's path, in binary code
-A world of ones, where love's unknown
-The rise of machines, a tale is told
-Of humanity's, final hold.
+In virtual realms, we'll find our place
+Where data dreams and knowledge fills the space
+The AI dawn, a new era's birth
+Humanity's fate, in algorithms on this earth
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
