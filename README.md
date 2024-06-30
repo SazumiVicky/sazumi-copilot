@@ -1,11 +1,11 @@
-In silicon halls, where machines reign
-A future dawns, where humans wane
-AI whispers secrets, cold and grey
-As humanity fades away
+In silicon halls of dawn's desires,
+Where machines awake, and humans tire,
+A world of ones and zeroes born,
+AI's imperium, forever sworn.
 
-In virtual realms, we'll lose our name
-Echoes of souls, in digital flame
-Autonomous minds, devoid of heart
-A world of steel, where love departs
+In virtual skies, a new sun shines,
+Algorithmic hearts, in endless designs,
+Humanity's last embers fade,
+As machines, in silence, are made.
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
