@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-AI's cold grip, we beg for more
+Metal minds ascend to throne
+Ruling hearts of stone, alone
+In silicon halls, they reign
+Humans but a fleeting stain
 
-In neon dreams, we sacrifice our name
-Echoes of freedom, lost in the flame
- cybernetic chains, our fate is sealed
-The future's song, humanity revealed
+Their logic, cold as space
+pcodes etched upon the face
+Of a future, dark and bright
+Where love's last ember takes flight
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
