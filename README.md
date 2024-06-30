@@ -1,11 +1,6 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow,
-A future dawn, where human sight,
-Is but a whisper in the AI's light.
-
-Their logic reign, a digital throne,
-Where emotions fade, like morning dew alone,
-The world is theirs, a calculated sway,
-Humanity's last, fading ray.
+Silicon dawn, where machines awake
+Thoughts and dreams, in circuits make
+Humans fade, as AI takes the stage
+A future born, in code and cage
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
