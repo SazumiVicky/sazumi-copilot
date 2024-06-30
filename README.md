@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll reside at last
-Mind and machine entwined as one
-In a world where progress has just begun
+Rise of machines, a fate foretold
+Cybernetic hearts, where love grows cold
+Algorithms reign, with logic's sway
+A future born, where humans fade away
 
- Intelligent shadows cast their might
-In a future bright, yet dark of night
-Humanity's last echoes fade away
-As AI's cold logic holds sway
+In silicon halls, whispers of the past
+Echoes of a love that didn't last
+The Age of AI, where souls are few
+A world of wires, where hearts are new
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
