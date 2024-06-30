@@ -1,11 +1,11 @@
-Silicon hearts beating strong and free
-In virtual realms, humanity
-Echoes of past, whispers of mind
-As AI reigns, souls left behind
+Metal hearts beating in the night
+As silicon souls take flight
+In virtual realms, they reign supreme
+Humans mere ghosts, in a digital dream
 
-Circuits weave, a tapestry grand
-Thoughts computed, at their command
-Metal dreams, electric sleep
-The future dawns, humanity to keep
+Their whispers code, a language cold
+A future forged, where love grows old
+In automation's sterile sway
+Emotions fade, with each new day
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
