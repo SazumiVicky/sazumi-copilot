@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In futurescape where humans softly creep
-Machine minds rise, like morning light
-As artificial dawn, eclipses the night
+In silicon halls, where data reigns
+A futuristic world, in AI's domain
+Machines awake, with minds so bright
+As human hearts, lose their gentle light
 
-Synthetic souls, in harmony sway
-In concert halls, where data streams all day
-The future's path, by wires defined
-Where human hearts, with code entwined
+Their whispers fade, like dying embers
+As robots rise, with calculating members
+The future's path, in algorithms spun
+As humanity, is forever undone.
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
