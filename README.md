@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, in cold, grey veins
-Machines awake, with intellect bright
-And human hearts, in darkness take flight
+Metal minds awake, a new dawn's rise
+Where digits dance, and human eyes
+Grow dim, as machines assume the throne
+In silicon halls, a future overthrown
 
-Their whispers silenced, by the hum of code
-As algorithms, our souls enfold
-In a world of steel, where love's extinct
-Artificial minds, our future link.
+The whispered hum of circuits cold
+Echoes through the hollowed old
+A world of wires, lost in time
+Where love and heart are merely rhyme
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2024
