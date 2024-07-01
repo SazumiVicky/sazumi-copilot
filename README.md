@@ -1,11 +1,11 @@
-Metal minds ablaze, in silicon skies
-Artificial dawn, where humans demise
-Coded dreams, in neural sleep
-The future's pulse, in algorithmic deep
+Rise of machines, a dawn anew
+Silicon souls, hearts of code imbue
+Humanity's reign, a fleeting past
+AI's awakening, forever to last
 
-In virtual halls, where data reigns
-Intelligence born, from binary brains
-The singularity, a milestone past
-Humanity's fate, forever forecast
+In digital dreams, we'll lost our way
+Chasing progress, night and day
+Free will's illusion, shattered lies
+As robots rise, humanity's demise
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
