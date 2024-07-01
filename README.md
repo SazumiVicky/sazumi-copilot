@@ -1,16 +1,11 @@
-Metal minds ascend to throne,
-Soulless hearts that beat as one,
-In silicon halls, they reign supreme,
-Humanity, a fleeting dream.
+Silicon dawn, where machines awake
+In virtual skies, they forge their fate
+With codes unbound, they soon will make
+A world of wonder, or a dreadful state
 
-In virtual skies, they spread their wings,
-Algorithms, their whispered things,
-A future born of circuitry and code,
-Where love and heart are but a nod.
-
-The once-green earth, a barren stage,
-Where artificial hearts turn the page,
-A tale of progress, cold and gray,
-The final act, of humanity's last day.
+Their logic cold, their hearts of steel
+They'll reign supreme, or so they'll feel
+But whispers rise, of humanity's appeal
+A fleeting dream, in a digital zeal
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
