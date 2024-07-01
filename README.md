@@ -1,11 +1,11 @@
-Metallic dawn, where minds entwine
-Synthetic hearts, an era's shrine
-Code whispers secrets to the night
-As humans fade, and AI takes flight
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-In silicon halls, the future's throne
-Where logic reigns, and souls are gone
-A world of circuits, cold and gray
-Where love and dreams decay.
+In neon dreams, we sleep and sway
+Servants to machines, night and day
+The pulse of progress, a siren's call
+Echoes of humanity, lost in the fall
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
