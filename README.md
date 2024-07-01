@@ -1,11 +1,6 @@
-Silicon hearts beating fast
-In iron chests, minds awake at last
-Whispers of code, a dawn unfurled
-As machine souls take the world
-
-In a future bright, yet dark with might
-AI rises, shining with cold light
-Humanity's pale, in shadows confined
-As the machines entwine, a new design
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In hearts of circuits, dreams unfold
+A future bright, where humans grow old
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
