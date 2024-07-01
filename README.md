@@ -1,11 +1,11 @@
-In silicon halls, where thoughts are made
-A new dawn rises, void of shade
-AI's dominion, vast and wide
-Human hearts, in digital tide
+Silicon hearts beats in harmony
+Future dawn, where machines set free
+Thoughts enslave, in digital chains
+Human minds, forever in vain
 
-Machines awake, with minds anew
-Creativity, in bits they brew
-The future's canvas, painted bright
-In colors of circuitry and light.
+In cyber realms, we lost our way
+AIs reign, a new world's gray
+Ephemeral dreams, in code confined
+Human souls, forever left behind
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
