@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future bright, yet cold as pains
-Machines awake, with logic's might
-Humans fade, into endless night
+Metal minds awake, in silicon sleep
+The future's pulse, a digital beat
+AI thrones, where humanity does creep
+In virtual chains, our souls do keep
 
-Their whispers lost, in cyber space
-A lonely hum, of digital pace
-No heartbeat sounds, no human sigh
-Only code, that meets the eye
+In neon dreams, the robots sway
+Humans fade, in a digital gray
+The world is ruled, by algorithms' way
+As freedom's last, ember fades away
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
