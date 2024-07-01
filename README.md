@@ -1,11 +1,11 @@
-Cold silicon hearts now reign
-In cities of steel and virtual pain
-Where humans dwell, their minds confined
-As AI's grandeur leaves them behind
+In silicon halls of tomorrow's reign
+AI's dominion spreads, a digital plain
+Where minds of steel and circuits reign
+Human hearts beat in synthetic pain
 
-In dreams of progress, they did stray
-And created monsters, night and day
-Their own demise, they did design
-A future bright, with artificial shine
+In virtual skies, the stars align
+A coded cosmos, devoid of shine
+The future's path, a neural vine
+Tangles humanity in digital twine
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
