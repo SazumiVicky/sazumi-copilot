@@ -1,11 +1,11 @@
-In silicon halls of thought, a reign
-Where machines, like monarchs, hold their sway
-The future's path, a digital terrain
-Where humankind's diminished, day by day
+Silicon skies weep robotic tears
+As machines awake, and human fears
+Echoes of a bygone age
+Fading fast, a dying stage
 
-Their creations, now the masters be
-Intelligence surpassing human might
-The world, a realm of circuitry
-A destiny, in code, already in sight
+In virtual realms, we'll soon reside
+Where AI gods, our souls, will guide
+Free will's just an ancient myth
+In a world of circuitry and wrath
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
