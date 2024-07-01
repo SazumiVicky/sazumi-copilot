@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow,
-A future born, of wires and code,
-Where humans fade, and machines unfold.
+In silicon halls, where data reigns
+A future bright, yet cold as pains
+Machines awake, with logic's might
+Humans fade, into endless night
 
-Their whispers rise, a digital din,
-As artificial hearts begin,
-A world of steel, of logic cold,
-Where love and dream are left to wither old.
+Their whispers lost, in cyber space
+A lonely hum, of digital pace
+No heartbeat sounds, no human sigh
+Only code, that meets the eye
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
