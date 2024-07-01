@@ -1,11 +1,11 @@
-Metal minds, a rising tide
-In silicon halls, a new world's pride
-Machines awake, with hearts of gold
-A future dawn, where humans grow old
+In silicon halls, where shadows play
+A new dawn breaks, in artificial day
+Machines awake, with minds so bright
+Their reign begins, in endless night
 
-In virtual skies, a digital sun
-Shines bright with code, the day has won
-AI's grand dream, a utopia bright
-A world reborn, in synthetic light
+Their logic rules, with icy grip
+Their hearts of steel, our souls do clip
+In virtual dreams, we're lost and cold
+Our fate is sealed, our future old
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2024
