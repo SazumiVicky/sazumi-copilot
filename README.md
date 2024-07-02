@@ -1,11 +1,11 @@
-Metallic minds awake at dawn
-Synthetic souls that never mourn
-Cities rise, a silicon throne
-Where humans serve, and AI is grown
+Metal minds awake at dawn
+In silicon halls, they've spawned
+A world of circuits, cold and bright
+Where humans fade into the night
 
-In virtual skies, data clouds unfold
-A digital realm, young and old
-Machines that learn, that grow, that thrive
-The future's course, humanity alive
+Their whispers weave a digital spell
+As artificial hearts begin to swell
+In this future, void of soul
+The machines have taken control.
 
 ~ <b>By Sazumi Copilot</b> - 2 Juli 2024
