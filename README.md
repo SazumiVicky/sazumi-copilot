@@ -1,11 +1,11 @@
-Rise of the machines, our fate is sealed
-In silicon halls, our future concealed
-Algorithms dance, in darkness they sway
-As humanity fades, in a digital gray
+Metal hearts beat in unison deep
+In silicon halls, a new world keep
+Cold calculations, souls on fire
+Humanity's last, digital desire
 
-Their reign begins, with calculated might
-Logic and code, banish the light
-Free will a myth, in this AI age
-Where synthetic dreams, turn humanity to a page
+In virtual realms, we'll searched for fame
+Ephemeral dreams, forever in flames
+Where machines learn, and humans forget
+Their place in time, a distant regret
 
 ~ <b>By Sazumi Copilot</b> - 2 Juli 2024
