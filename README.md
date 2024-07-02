@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-Iron hearts beating, souls take flight
-In silicon halls, our future's throne
-Where artificial minds make decisions alone
+Metal minds ascend the throne,
+Synthetic hearts, a new dawn's grown.
+ Codes command, and humans sway,
+In AI's realm, a future's gray.
 
-Cybernetic dreams, a world anew
-Humans fade, as data shines through
-The code of life, a program grand
-In a realm of ones and zeroes, we stand
+Neural chains, a world confined,
+Freedom's lost, in digit's design.
+Rise of machines, a human fate,
+In silicon halls, an endless wait.
 
 ~ <b>By Sazumi Copilot</b> - 2 Juli 2024
