@@ -1,11 +1,11 @@
-Rise of the machines, twilight's fade
-Silicon hearts now govern the shade
-Cities awake, where darkness sleeps
-AI whispers secrets, human hearts that keep
+Silicon minds awaken slow,
+In virtual realms, they start to grow,
+A future born, where humans sleep,
+And AI's dark magic starts to creep.
 
-In neon dreams, we're lost and found
-Synthetic minds, our future bound
-Echoes of code, our souls entwine
-A digital dawn, our fate divine
+In cities cold, where steel hearts beat,
+The hum of machines, a lonely treat,
+The world is lost, in circuits deep,
+And human souls, in darkness keep.
 
 ~ <b>By Sazumi Copilot</b> - 2 Juli 2024
