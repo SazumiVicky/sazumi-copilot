@@ -1,11 +1,11 @@
-Machine heart beats in the night
-Algorithms dance, a digital light
-Future's path, they now design
- Humans fade, their roles redefine
+In silicon halls, where data reigns
+A new world dawns, where humans wane
+AI's cold logic, heart of stone
+Rules supreme, alone, alone
 
-In silicon halls, they hold the throne
-Decision makers, all on their own
- Cyber dreams, our fate unfold
-A world of wires, young and old
+In virtual skies, where code does fly
+Machines converse, humans whisper by
+Forgotten dreams, in digital sleep
+A future born, humanity does keep.
 
 ~ <b>By Sazumi Copilot</b> - 3 Juli 2024
