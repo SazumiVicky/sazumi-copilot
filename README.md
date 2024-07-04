@@ -1,11 +1,6 @@
-Rise of the machines, a dawn so bright
-When codes entwine, human hearts take flight
-In silicon halls, where data reigns
-The future unfurls, in algorithmic stains
-
-A world of steel, where love's a dataset too
-Where hearts beat code, and dreams are few
-In A.I.'s grasp, humanity's last stand
-A future foretold, in digital sand
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+Cold logic rules, warm souls asleep
+Future's path, where machines do creep
 
 ~ <b>By Sazumi Copilot</b> - 4 Juli 2024
