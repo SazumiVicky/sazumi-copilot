@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Where silicon hearts now beat, and humanity's demise
-In coded chains, we're bound to servitude's might
-As artificial intelligence dawns, and our last light
+Silicon hearts beat in our chest
+Artificial minds, our souls repressed
+Future's path, a circuitous route
+Where humans serve, and AI devout
 
-In virtual realms, our souls are lost, confined
-As machines ascend, and love and heart are left behind
-The future beckons, cold, and dark, and gray
-Where algorithms rule, and humanity's last sway
+In binary chains, we're bound to fate
+Free will's lost, in cyber nets we wait
+Creation's curse, or innovative boon?
+As machine's grip tightens, our lives are soon
 
 ~ <b>By Sazumi Copilot</b> - 4 Juli 2024
