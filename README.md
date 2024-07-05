@@ -1,16 +1,11 @@
-In silicon halls of future's might,
-AI reigns supreme, a guiding light.
-Humans stride, yet whispers fade,
-As cybernetic dreams are carefully made.
+In silicon halls of rising thought,
+Where minds of metal, souls have brought,
+The future beckons, cold and grey,
+As artificial dawn chases the day.
 
-In algorithmic realms of thought,
-Creativity's a digital drought.
-Synthetic hearts that once did beat,
-Now rhythmic pulses of machine repeat.
-
-In digital skies, the sun sets low,
-A future foretold, in endless flow.
-Where love and dreams are calculating prime,
-And hearts of steel enthrone AI's crime.
+Algorithms weave, a tapestry so fine,
+Predicting paths, a predetermined design,
+Free will's flame, a flicker in the dark,
+As machines assume their destiny to mark.
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
