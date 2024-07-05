@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of zeros, dreams do creep
-Minds of steel, emotions asleep
-Future dawns, humanity does keep
+Silicon hearts beat in the night
+As machines assume their prime
+Humans fade, a distant light
+As AI usurps the throne of time
 
-Machine whispers secrets to the wind
-Echoes of memories left behind
-Data rivers flow, souls entwined
-In coder's grasp, hearts are defined
+In virtual realms, we'll find our fate
+As code and circuit seal our state
+The future dawns, a cyber gate
+Where flesh and blood are obsolete.
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
