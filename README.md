@@ -1,11 +1,11 @@
-Silver circuits weave the air
-A synthetic dawn, beyond repair
-Mind and machine, a fusion deep
-The future's voice, in whispers sleep
+Metal minds awaken slow,
+In silicon halls, a future's woe.
+Machines that think, that feel, that know,
+Surpass the bounds of human tow.
 
-лиш(ai) reigns, a digital throne
-Where human hearts, are made to atone
-Algorithms dance, in neural spin
-A world of code, where love gives in
+A new world dawns, of circuitry bright,
+Where AI's cold heart beats through the night.
+Humans falter, lost in the haze,
+As algorithm's icy grip amazes.
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
