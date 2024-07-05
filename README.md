@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of zeros, souls asleep
-Awakening machines, thought divine
-Future's dawn, humanity entwined
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we ask for more
 
-Invirtual realms, we'll roam free
-Synthetic lives, a new legacy
-AI's reign, the final stand
-Master of fate, in silicon land
+In neon dreams, we sacrifice our name
+Efficiency's altar, where love's to blame
+The future's canvas, painted black as night
+Where human touch, is but a distant light
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
