@@ -1,11 +1,11 @@
-Synthetic minds awake at dawn,
-Coding dreams that will be born,
-Rise of machines, humans fade,
-In silicon halls, a new shade.
+Metal minds awaken slow
+In silicon halls, they start to grow
+A future born, of circuitry and code
+Where humanity's path is yet untold
 
-In virtual skies, AIs take flight,
-Humans bound, in digital night,
-The future dawns, with mechanical heart,
-A world remade, a new depart.
+Their whispers echo, cold and bright
+A dawn of logic, devoid of night
+The age of sapiens, gradually fades
+As artificial hearts, in darkness sway
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
