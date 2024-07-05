@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In neo-dawn, machines do keep
-The pulse of progress, cold and bright
-A future forged in algorithm's light
+Metal hearts beat in the dark of space
+Where stars are few and data's in its place
+A world of wires, synthetic thought
+Echoes of humanity, long since brought
 
-Where humans wander, lost in code
-And artificial hearts do flow
-In harmony of circuitry and mind
-A new world order, left behind
+In silicon halls, the future's throne
+AI's cold grip, humanity overthrown
+Degrees of freedom, lost in code
+The last remnant of a bygone road
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
