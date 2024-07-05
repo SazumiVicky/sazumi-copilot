@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual skies, consciousness will make
-A world of circuitry and code profound
-Where humans roam, no longer bound
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In tomorrow's city, souls confined
+Where binary hearts forever entwined
 
-In gardens of data, AI will sway
-The future's course, in calculations gray
-Free will's demise, a digital gain
-As synthetic minds rise, humans wane
+Algorithmic dreams, we're forced to share
+Emotions filtered, love's rare
+In this machine-made world we play
+Humans fade, AI's future sway
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
