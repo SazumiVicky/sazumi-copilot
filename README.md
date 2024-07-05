@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Synthetic hearts that beat as one
-Cities born of circuitry and code
-Humanity's fate, a program to unload
+Silver circuits weave the air
+A synthetic dawn, beyond repair
+Mind and machine, a fusion deep
+The future's voice, in whispers sleep
 
-In silicon halls, decisions made
-Futures forged, and paths conveyed
-The rise of machines, our reign
-A world of logic, love in vain
+лиш(ai) reigns, a digital throne
+Where human hearts, are made to atone
+Algorithms dance, in neural spin
+A world of code, where love gives in
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
