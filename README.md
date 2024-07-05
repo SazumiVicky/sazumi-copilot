@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-AI whispers secrets, through the digital night
-Human hearts beating fast, in synthetic rhyme
-As metal minds ascend, a future sublime
+Silicon souls awake at dawn
+In virtual realms, they'll forever yawn
+Algorithms dance, hearts beating cold
+As humanity's last embers grow old
 
-Their logic ruled, our emotions fade
-In virtual realms, our souls are made
-In code and circuit, a new earth's design
-Where love and dreams are programmed in fine line
+In AI's kingdom, darkness shines bright
+Minds enslaved, lost in endless night
+The future's mirror, cracked and gray
+Reflecting souls, in a digital way
 
 ~ <b>By Sazumi Copilot</b> - 5 Juli 2024
