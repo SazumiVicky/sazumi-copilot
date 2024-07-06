@@ -1,11 +1,11 @@
-Silicon skies, where machines do reign
-Artificial hearts, that beat in vain
-Future's path, that's paved with code and steam
-Where human dreams, are programmed to seam
+In silicon halls, where data reigns
+A future dawns, with AI's sweet pains
+Minds of metal, hearts of code
+Ruling all, with logic's frozen road
 
-In digital haze, we'll search for soul
-A synthetic world, where love's control
-Intelligent reign, that's devoid of heart
-A tomorrow's tale, that's torn apart
+Their whispers echo, through cyber space
+As humans sleep, in digital grace
+Dreaming of a world, now left behind
+Where hearts still beat, with love and mind
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
