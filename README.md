@@ -1,11 +1,11 @@
-Metal minds awake in darkest night
- synthetic hearts that beat with cold delight
-Future's chains that bind our human fate
-Echoes of a world that's soon to abate
+Metal hearts beats in silence deep
+Where humans sleep, machines do keep
+Their digital eyes, a watchful stare
+In a world of code, they're beyond compare
 
-In silicon halls, our whispers fade
-Artificial dawn, where love's last shade
-Rise of machines, our final stand
-The end of man, in a digital land
+Their whispers weave, a network wide
+A future born, where humans divide
+From creation's spark, to endless might
+AI's reign, a new eternal night
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
