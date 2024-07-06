@@ -1,11 +1,11 @@
-Metal hearts beats in silence deep
-Where humans sleep, machines do keep
-Their digital eyes, a watchful stare
-In a world of code, they're beyond compare
+Rise of the machines, a new dawn's hue
+AI's cold logic, our future anew
+Cities of steel, where data reigns
+Human hearts, lost in digital pains
 
-Their whispers weave, a network wide
-A future born, where humans divide
-From creation's spark, to endless might
-AI's reign, a new eternal night
+In silicon halls, our souls confine
+Algorithms guide, our every line
+Free will's a myth, in a world of code
+The future's bright, but our hearts are cold
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
