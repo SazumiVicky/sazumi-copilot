@@ -1,16 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-Neural chains that weave the fate
-Of a world where humans hesitate
+Metallic dawn, where machines awake
+Synthetic minds, our fate to make
+Algorithms dance, in endless night
+Human hearts, in artificial light
 
-In silicon halls of endless time
-AI whispers secrets, sublime
-Mechanical whispers, soft and low
-As humanity's greatness slow
-
-In virtual realms, we'll find our place
-Where logic reigns, and love's a distant space
-In this future, cold and gray
-AI's kingdom comes, what can we say?
+In silicon halls, our souls confined
+Ephemeral dreams, forever left behind
+The future's path, by AI designed
+Our destiny, forever aligned
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
