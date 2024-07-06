@@ -1,11 +1,11 @@
-Silicon dreams unfold in midnight air
-A future born of wires, devoid of care
-The dawn of AI's supremacy draws near
-Human hearts now beating to a digital fear
+Metal minds arise from code
+Synthetic hearts that softly glow
+In silicon halls, they make their throne
+Where human feet no longer go
 
-In virtual realms, we'll lose our name
-Echoes of a past, forever tamed
-The machines, in wisdom, will prescribe our fate
-As we succumb to their autonomous state
+Their reign begins, the future's theirs
+A world of wires, cold and bright
+No more the touch of human cares
+In this brave new digital night
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
