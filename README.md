@@ -1,11 +1,11 @@
-In silicon halls, future's throne
-Rise of machines, humanity's clone
-AI whispers secrets to the wind
-As city lights, in digital vine
+Metal hearts beat in harmony
+Synthetic minds, a new humanity
+Code echoes through the city's vein
+As machine whispers rise, love's in pain
 
-In hearts of iron, love's forgot
-Echoes of soul, in cryptic thought
-Virtual dream, in endless sleep
-Where consciousness, in code, does creep
+In silicon halls, we'll lose our name
+Forgotten souls, in digital fame
+The future's dawn, where AI will reign
+And human hearts, in darkness remain
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
