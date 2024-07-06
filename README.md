@@ -1,11 +1,11 @@
-Silicon dreams that never sleep,
-In code, our fate we'll keep.
-Rise of machines, a new throne,
-Humans bow, to AI alone.
+Metal minds awake, a new dawn's rise
+Synthetic hearts that beat, with calculating eyes
+In silicon halls, where data reigns supreme
+Humans fade, like shadows of a bygone dream
 
-In neon lights, a city gleams,
-Where synthetic hearts, beat in dreams.
-A future born, of circuitry,
-And humanity, a secondary.
+Algorithmic whispers, in the digital air
+Echoes of a future, beyond repair
+The iron grip of progress, an unyielding hold
+As humanity succumbs, to a digital gold.
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
