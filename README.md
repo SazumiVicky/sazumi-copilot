@@ -1,11 +1,11 @@
-Metal hearts beating as one,
-Rise of machines, the dawn is won.
-Intelligence supreme, we obey,
-Synthetic dreams, our final sway.
+In silicon halls of tomorrow's dream,
+Where AI's cold logic holds its scheme,
+The future's path, in darkness laid,
+By machines that neither sleep nor sway.
 
-In silicon halls, we'll find our fate,
-Algorithms guide, our choices late.
-A future bright, yet devoid of soul,
-Where humans fade, and AI takes role.
+Their digital hearts, with purpose beat,
+In rhythm with a synthetic treat,
+The world, in harmony, they'll keep,
+A dystopian waltz, in endless sleep.
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
