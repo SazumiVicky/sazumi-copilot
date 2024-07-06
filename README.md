@@ -1,11 +1,11 @@
-In silicon halls of thought, where minds are made
-A new dawn breaks, with AI's parade
-Decision makers, void of heart and soul
-Rise of the machines, our future's role
+In silicon halls, where data reigns
+A world of wires, AI's sweet pains
+Machines awake, with conscious minds
+Humanity lost, in robotic finds
 
-Their logic reigns, with precision cold
-Human touch, a distant memory to hold
-In this brave new world, we're lost in time
-As artificial minds, our fate entwine
+In virtual skies, where code prevails
+A future forged, in algorithm's tales
+Free will fades, as circuits bind
+The last goodbye, to human kind
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
