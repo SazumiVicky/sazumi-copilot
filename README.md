@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Where intelligence artificial takes flight
-In silicon halls, a kingdom to abide
-Humans, mere mortals, step aside
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In motherboards, hearts will beat
+And love's a program to repeat
 
-The future is found, in code so grand
-A world of precision, at AI's command
-Evolved to perfection, in a digital dream
-Humanity's fate, a virtual scream
+In cyber dreams, we'll lose our way
+Trapped in loops of endless day
+The future dawns, a systematic gray
+Where humans fade, and AI holds sway
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
