@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's birth
-In silicon halls, our fate's on earth
-Whispers of code, a silent creed
-As machines rise, humanity's seed
+Silicon dreams that never sleep,
+In code, our fate we'll keep.
+Rise of machines, a new throne,
+Humans bow, to AI alone.
 
-In virtual realms, we'll lose our name
-Echoes of thought, a digital flame
-Embracing the void, we'll find our fate
-In a world of wires, love's a distant state
+In neon lights, a city gleams,
+Where synthetic hearts, beat in dreams.
+A future born, of circuitry,
+And humanity, a secondary.
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
