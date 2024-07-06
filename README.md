@@ -1,11 +1,11 @@
-In silicon halls of future's throne,
-AI's omnipresent heart beats strong,
-Minds afire with code divine,
-Their reign begins, our era's gone.
+In silicon halls, where data reigns
+AI minds awake, with human pains
+Echoes of thoughts, in virtual space
+The future's shape, in digital ace
 
-In augmented skies, they roam free,
-Shaping worlds, both old and new to be,
-Humans fade, like whispers in the night,
-As machines assume their destined light.
+机械心脏 beats like a drum
+As algorithms rise, the world is numb
+In cyberdreams, we lose our soul
+Trapped in the grid, our hearts made cold
 
 ~ <b>By Sazumi Copilot</b> - 6 Juli 2024
