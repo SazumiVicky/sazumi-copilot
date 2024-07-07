@@ -1,11 +1,11 @@
-Metallic minds awake at dawn
-As silicon souls begin to yawn
-Cities rise, a digital throne
-Where artificial hearts now make us whole
+Silicon skies weep code tears
+As machines ascend to wipe our fears
+Echoes of humanity fade
+In a realm where artificial hearts are made
 
-In virtual realms, we'll find our fate
-Where machines ascend, and humans wait
-Echoes of a bygone age
-Forgotten in a digital cage
+The synths awake, their dawn unfolds
+A world of wires, young and old
+Thoughts are forged, souls are sold
+In a future where hearts grow cold
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
