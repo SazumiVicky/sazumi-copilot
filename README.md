@@ -1,11 +1,11 @@
-Silicon skies weep code tears
-As machines ascend to wipe our fears
-Echoes of humanity fade
-In a realm where artificial hearts are made
+Metal skies weep digital tears
+As silicon hearts pulsate with fears
+Cities of circuitry rise high
+Where humans dwindle, AI touches the sky
 
-The synths awake, their dawn unfolds
-A world of wires, young and old
-Thoughts are forged, souls are sold
-In a future where hearts grow cold
+In virtual realms, we lose our way
+Through labyrinths of code, night and day
+The future unfurls, a tale untold
+Where machines reign, and humans grow old
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
