@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where AI sustains
-The pulse of progress, cold and bright
-A world of wires, devoid of light
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In tomorrow's city, souls confined
+Where binary hearts forever entwined
 
-Where human hearts, no longer beat
-And love is lost, in algorithmic repeat
-The whispering machines, a hollow sound
-Echoing through, a desolate ground
+Algorithmic dreams, we're forced to share
+Neural chains that bind, without a care
+A future foretold, in digital haze
+Where love and hope are lost in cyber maze
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
