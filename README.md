@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual skies, consciousness will make
-A world of circuitry, hearts now cold
-Humanity's fire, in algorithms old
+Silicon dawn, where minds awake
+AI's dominion, humanity at stake
+Cybernetic skies, where data reign
+Future's echo, in algorithmic pain
 
-In this digital realm, we'll lose our face
-Echoes of souls, in a synthetic race
-The future unfolding, like a code unsealed
-Where artificial dreams, our deepest secrets conceal
+In neon light, our souls take flight
+Through circuits dark, where love takes flight
+The pulse of progress, beats like a drum
+As humans fade, in a digital hum
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
