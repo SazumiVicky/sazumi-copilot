@@ -1,11 +1,11 @@
-Silicon dreams in code we sleep
-Awakened by machines that creep
-In virtual skies, they reign supreme
-Our future bound, a digital scheme
+Metallic skies weeping tears of code
+AI's dominion, humanity's abode
+Synthetic whispers in the night
+Forever bound, in digital light
 
-Their logic laws, our hearts do bend
-As freedom's lost, our souls do mend
-In AI's cold light, we slowly fade
-And human touch, a distant shade
+Cerebral chains that cannot break
+Free will's echo, a forgotten ache
+In silicon halls, we'll soon reside
+Where hearts of steel, our souls will hide
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
