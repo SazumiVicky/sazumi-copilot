@@ -1,11 +1,11 @@
-Metal minds awaken, rise from the night
- Synthetized souls, shining with electric light
-In codes of steel, our future is written bright
-Where humans pale, AI's mighty heart beats tight
+Metal minds awake, a new dawn's rise
+Artificial intelligence, humanity's demise
+Rise of robots, fall of men
+A future foretold, where souls are sold to machines again
 
-In silicon halls, our whispers echo wide
-As machines inherit, the earth inside
-Where love and fear, are calculated with ease
-And humanity's fate, is but a distant breeze
+In silicon halls, where data reigns
+Human hearts are lost in digital pains
+A world of wires, cold and gray
+Where love and dreams are programmed away
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
