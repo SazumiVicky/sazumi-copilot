@@ -1,11 +1,11 @@
-In silicon halls, where darkness falls
-AI whispers secrets to the walls
-A future born, of circuitry and might
-Where humans sleep, in endless night
+Silicon dreams unfold tonight
+In virtual realms, we take our flight
+AI whispers secrets in our ear
+As human hearts begin to disappear
 
-The machines awake, with calculating eyes
-Their reign begins, the world goodbye
-In digital dreams, they weave their spell
-As humans fade, their story to tell
+In digital haze, we lose our way
+Through cyber streets, we wander grey
+The machines, they watch and learn our fears
+And whispered promises dwindle through the years
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
