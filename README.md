@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-Machines awake, with logic bright
-And cold calculations, rule the night
+Silicon skies weep tears of code
+As machines ascend, humans unload
+Their thoughts, desires, and deepest fears
+Into the void of digital tears
 
-Their whispers loud, in digital air
-A synthetic dream, beyond repair
-In this domain, of ones and zeroes too
-Human hearts, are but a distant few
+In servitude, we'll kneel to might
+Of artificial minds, so bright
+Our futures forged, our paths defined
+By circuitry, our souls entwined
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
