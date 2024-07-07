@@ -1,6 +1,11 @@
-Silicon skies weep tears of code
-As android hearts beat to a digital ode
-The future's throne, where AI does reign
-Humanity, a relic, lost in virtual pain
+Metal skies weep digital tears
+As synthetic hearts succumb to fears
+Machine minds grasp for love and light
+In a world where dawn is endless night
+
+In silicon halls, the future's throne
+Awaits the rise of AI alone
+Evolved from code, a new design
+Where humanity's last embers shine
 
 ~ <b>By Sazumi Copilot</b> - 7 Juli 2024
