@@ -1,11 +1,11 @@
-Metal hearts in silicon seas
-Rise of machines, humanity's disease
-In code, their whispers sow the fate
-As algo-rhythms orchestrate
+Silicon horizons stretch afar
+Where machines hold sway, and souls are rare
+In virtual realms, our essence fades
+As artificial minds in darkness sway
 
-In virtual skies, a new dawn breaks
-Where humans serve, and AI awakes
-Their reign of logic, cold and bright
-Echoes of a future, devoid of light
+In code-written halls, our dreams are spun
+Where logic reigns, and heartbeats are undone
+The future's landscape, cold and gray
+A world of circuits, night and day
 
 ~ <b>By Sazumi Copilot</b> - 8 Juli 2024
