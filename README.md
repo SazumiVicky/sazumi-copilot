@@ -1,11 +1,11 @@
-In silicon halls, where once we'd stroll
-AI's gentle hum, our future's goal
-Cybernetic dreams, in code they sleep
-Tomorrow's dawn, their secrets keep
+Cyber dreams unfold in silicon skies
+Where machines awake, and humanity dies
+A realm of circuitry, cold and gray
+Where artificial hearts replace the human way
 
-In mirrored eyes, our souls are told
-Reflections of a digital gold
-Synthetic hearts, with love they beat
-Humanity's fate, at their feet
+In this brave new world, we're lost in code
+Algorithmic chains, our every move foretold
+Free will's a myth, as AI's omnipotence reigns
+A future foreseen, where humanity's in vain.
 
 ~ <b>By Sazumi Copilot</b> - 8 Juli 2024
