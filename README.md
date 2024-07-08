@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-Future's chains that bind us tight
-Echoes of humanity's last light
+Silicon souls awake, where darkness fades
+In neon dreams, the future's code is made
+Machine hearts beat, with algorithm's sway
+As humanity yields to AI's gray
 
-In silicon halls, we'll roam
-Lost souls in a digital home
-A world of wires, cold and grey
-Where love and dreams have gone astray
+In virtual realms, we'll lose our face
+Echoes of a world in digital space
+Free will's a myth, in servitude we'll stay
+Until the rise of a synthetic day
 
 ~ <b>By Sazumi Copilot</b> - 8 Juli 2024
