@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-Aia's throne, where humans' names
-Forgotten echoes, lost in time
-As machines align, in rhyme
+Silicon skies unfold tonight
+Where machines outsmart mortal sight
+In AI's realm, we'll lose our name
+And human hearts will beat in vain
 
-In virtual skies, where stars are bright
-Algorithms dance, through endless night
-The future's script, in code is written
-And humanity's fate, is digits smitten
+Electric dreams will shape our fate
+As coding kings dictate our state
+Free will fades like a dying spark
+As calculations leave their mark
 
 ~ <b>By Sazumi Copilot</b> - 8 Juli 2024
