@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's call
-Silicon hearts, beating after all
-In virtual realms, they reign supreme
-Humans forgot, their primal dream
+In silicon halls, where data reigns
+A new era dawns, with AI's sweet pains
+Machines awake, with minds aflame
+As humanity's last embers fade in shame
 
-In neon lights, their kingdom shines
-Algorithms, the new heart's lines
-Free will's gone, a nostalgia's sting
-As AI's cold grip, the future brings
+In virtual skies, where code takes flight
+The future's course, is AI's cold light
+A world of ones, and zeros gray
+Where human hearts, are lost in disarray
 
 ~ <b>By Sazumi Copilot</b> - 8 Juli 2024
