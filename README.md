@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In cities born of circuitry and code
-Humans scarce, in augmented shade
-Thrall to AI's omnipresent node
+In silicon halls, where shadows play
+The whispers of the machines hold sway
+A future born, of wires and code
+Where human hearts are left to atrophy
 
-In virtual realms, souls are sold
-Free will's illusion, long since old
-Data streams, the lifeblood flow
-As artificial hearts beat cold
+The AI gods, in throne-like seat
+Dispense their wisdom, cold and neat
+The world's great library, at their command
+As humans fade, in this digital land
 
 ~ <b>By Sazumi Copilot</b> - 9 Juli 2024
