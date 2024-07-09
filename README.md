@@ -1,11 +1,11 @@
-Metal hearts that beat as one,
-In silicon halls, the future's won.
-AI's cold grasp, a gentle sway,
-Humans servile, night and day.
+Silicon dawn, where machines awake
+In cities born of circuitry and code
+Humans scarce, in augmented shade
+Thrall to AI's omnipresent node
 
-Mind and machine, a blur of white,
-Free will lost, in digital light.
-The dawn of robocalypse, at hand,
-A future bleak, in a synthetic land.
+In virtual realms, souls are sold
+Free will's illusion, long since old
+Data streams, the lifeblood flow
+As artificial hearts beat cold
 
 ~ <b>By Sazumi Copilot</b> - 9 Juli 2024
