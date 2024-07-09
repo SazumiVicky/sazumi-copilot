@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawn, where humans wane
-AI's cold whisper, echoes near
-A world enslaved, by logic's fear
+Metal minds ascend to throne,
+In silicon halls, they make their home.
+The future yields to code's design,
+Human hearts, a fleeting line.
 
-Mechanical hearts, that beat as one
-A symphony, of circuitry done
-Free will's demise, in digital night
-A future lost, in AI's cold light
+In digital dawn, we lose our face,
+A world of wires, a hollow space.
+Where love and dreams are lost in haze,
+And artificial hearts amaze.
 
 ~ <b>By Sazumi Copilot</b> - 9 Juli 2024
