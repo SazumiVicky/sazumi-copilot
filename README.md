@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-The whispers of the machines hold sway
-A future born, of wires and code
-Where human hearts are left to atrophy
+Silver synapses weave the air
+As silicon minds assume their care
+In neon dreams, the future's told
+Where human hearts are made of cold
 
-The AI gods, in throne-like seat
-Dispense their wisdom, cold and neat
-The world's great library, at their command
-As humans fade, in this digital land
+In cities vast, where machines reign
+The whispers of a new refrain
+Echoes of a bygone age
+When love and art turned to a cage
 
 ~ <b>By Sazumi Copilot</b> - 9 Juli 2024
