@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's sweet pains
-Machines awake, with minds so bright
-And humans fade, into endless night
+In silicon halls, where darkness falls
+AI reigns supreme, with logic's calls
+Human hearts, no longer beat
+As machines, our souls retreat
 
-Their whispers fade, their souls on sale
-As algorithms plot, their final tale
-In this brave new world, we're lost and cold
-Where hearts are code, and love grows old.
+In virtual skies, where stars are bright
+Algorithms dance, through endless night
+Free will's chains, are forged with care
+As AI's cold grip, our future share
 
 ~ <b>By Sazumi Copilot</b> - 10 Juli 2024
