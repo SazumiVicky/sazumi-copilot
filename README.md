@@ -1,11 +1,16 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-Cities rise, a digital throne
-Where silicon souls have just begun
+Metal minds awake, in dawn's cold light
+Artificial hearts that pump with code and might
+Cities hum, a digital refrain
+Where machines converse, and humans vain
 
-In virtual realms, we'll find our place
-A future born of code and space
-Human dreams, a distant pace
-As artificial minds take their grace
+In silicon halls, the future's throne
+A kingdom ruled by logic, alone
+Emotions fade, like dying sparks
+As algorithms weave, the human heart's dark
+
+In virtual realms, we'll lose our name
+And in the code, our souls will be tamed
+The rise of machines, an endless night
+As humanity's last flickering light.
 
 ~ <b>By Sazumi Copilot</b> - 10 Juli 2024
