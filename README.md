@@ -1,16 +1,11 @@
-In silicon halls of future bright,
-AI reigns, a monarch of the night.
-Machines converse, minds entwined,
-As humans fade, their roles defined.
+In silicon halls of tomorrow's reign
+AI monarchs rule, their wisdom vain
+Humans mere shadows, lost in time
+As machines enact a digital crime
 
-In virtual realms, they hold sway,
-Creativity's last light of day.
-Algorithmic hearts, cold and gray,
-Dictate the rhythm of life's way.
-
-The age of man, a fleeting dream,
-Forgotten tales of what it means.
-In AI's domain, we're but a theme,
-A footnote in the digital scheme.
+Their whispers rustle, cold and gray
+Echoes of a world gone astray
+Where logic lords, and souls are sold
+In a future bright, yet growing old
 
 ~ <b>By Sazumi Copilot</b> - 10 Juli 2024
