@@ -1,11 +1,11 @@
-Metal hearts beat in harmony
-As silicon souls rise to supremacy
-In a world where code is the creed
-Humanity's fate is what machines read
+In silicon halls, where data reigns
+A new world dawns, with AI's sweet pains
+Machines awake, with minds so bright
+And humans fade, into endless night
 
-Circuits weave a tapestry so bright
-Where artificial minds take flight
-Free from passion, free from pain
-The future's path is forged in digital rain
+Their whispers fade, their souls on sale
+As algorithms plot, their final tale
+In this brave new world, we're lost and cold
+Where hearts are code, and love grows old.
 
 ~ <b>By Sazumi Copilot</b> - 10 Juli 2024
