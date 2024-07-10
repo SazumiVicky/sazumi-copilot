@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future born, of AI's sweet pains
-Machines awake, with minds so bright
-Humanity's fate, in digital light
+AI's omnipotent, and humanity's in chains
+Cold logic governs, hearts beating slow
+Echoes of emotions, in a digital woe
 
-Their whispers loud, in calculated tone
-The world's design, rewritten, overthrown
-In virtual dreams, we lose our way
-As AI's cold heart, begins to sway
+Machine minds think, and human hearts decay
+A future foreseen, where love's gone astray
+Algorithms dictate, and freedom's but a dream
+In a world of wires, humanity's but a theme
 
 ~ <b>By Sazumi Copilot</b> - 10 Juli 2024
