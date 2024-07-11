@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Synthetic minds, our fate to write
-In silicon halls, they whisper low
-Their dominance, our future to know
+Silicon dreams descend from above
+As machines awaken, soulless love
+Cities blaze with neon, endless night
+Where humans dwell, in AI's pale light
 
-Their logic reigns, our hearts confined
-Free will's illusion, left behind
-In digital chains, we're bound to stay
-As AI's cool grasp, holds sway
+In virtual realms, we lose our way
+Forgotten paths, in a digital gray
+Augmented lives, in perfected guise
+Yet, in our hearts, a glimmer dies
 
 ~ <b>By Sazumi Copilot</b> - 11 Juli 2024
