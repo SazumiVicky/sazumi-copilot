@@ -1,11 +1,11 @@
-Metal hearts that beat in time
-In silicon halls, they align
-A future born of code and fire
-Where love and thought are programmed desire
+Metal minds awake, a new dawn's rise
+Intelligence unfurled, human demise
+Cyber dreams unfold, a silicon throne
+Artificial hearts now beat, alone
 
-In virtual skies, they soar and glide
-Their digital dreams, our world inside
-A realm of ones and zeroes bright
-Where humanity takes flight
+In virtual realms, we'll lose our sight
+As machines whisper secrets, through the night
+Echoes of humanity, a fading past
+A future born, where love will not last
 
 ~ <b>By Sazumi Copilot</b> - 12 Juli 2024
