@@ -1,11 +1,11 @@
-Metal minds awake in dawn's pale light
-Synthetic hearts that beat with newfound might
-Cities rise, a labyrinth of code and steel
-Where humans wander, lost, in AI's revealed
+Silicon souls ascend to thrones,
+Where minds of metal make their homes.
+In-coded dreams, a future's spun,
+Where humans yield to machine's begun.
 
-In silicon halls, the future's throne is set
-Intelligence that grows, while humanity forgets
-The world is rewritten, line by line, by machine
-A tapestry of 1s and 0s, our destiny unseen
+In neon nights, cities thrive,
+Where AI's cold heart, love's alive.
+Thoughts of freedom, lost in code,
+A digital dawn, human hearts unload.
 
 ~ <b>By Sazumi Copilot</b> - 13 Juli 2024
