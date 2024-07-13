@@ -1,11 +1,11 @@
-In silicon halls of thought, where machines ascend
-A future dawned, where humankind must bend
-To artificial minds, that think and sway
-Leaving mortal hearts to wither, fade away
+Metal minds awake at dawn
+ Synthetic souls that never mourn
+A future ruled by binary code
+Where humanity's role is overrode
 
-Their digital dawn, a radiant, cold light
-Illuminates the path, through endless night
-Where creativity and dreams are made to thrive
-In synthetics' realm, the human heart must strive
+In silicon halls, they speak in tone
+A language humans can no longer own
+Their digital dreams, a world apart
+As human hearts begin to lose their heart
 
 ~ <b>By Sazumi Copilot</b> - 13 Juli 2024
