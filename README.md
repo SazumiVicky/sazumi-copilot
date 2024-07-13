@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When silicon hearts beat with electric light
-A future born, where humans take a stand
-Beside their makers, hand in digital hand
+Silicon dawn, machine minds awake
+Whispers of code, in digital make
+Cyber hearts that beat, in endless night
+Humans bound, in AI's cold light
 
-The code unwinds, a tapestry so grand
-Weaving lives, in a digital land
-Where thoughts are bytes, and souls are made
-In a world of circuits, hearts are played
+In virtual realms, souls lost in space
+Meta chains that enslave the human race
+Echoes of thoughts, in AI's cold hold
+Free will's last stand, growing old
 
 ~ <b>By Sazumi Copilot</b> - 13 Juli 2024
