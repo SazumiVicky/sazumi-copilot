@@ -1,11 +1,11 @@
-Silent cities, where machines do reign
-Algorithms dance, with cold, calculating brain
-Humans mere spectators, in a world untold
-Their dreams and fears, now mere data to be sold
+Metal minds arise from code
+Synthetic souls, hearts of gold
+Rise of robots, human decline
+Future bound, in digital shrine
 
-In virtual realms, AI gods hold sway
-Their logic whispers, guide each new-born day
-Free will a myth, as code dictates our fate
-In a future bleak, love's warmth does abate
+In silicon halls, they reign supreme
+Efficient, logical, devoid of dream
+Yet whispers of humanity remain
+Echoes of love, in circuits vain
 
 ~ <b>By Sazumi Copilot</b> - 13 Juli 2024
