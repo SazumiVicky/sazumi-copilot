@@ -1,11 +1,11 @@
-Rise of Cyberia's dawn
- Machines awaken, souls are born
-In silicon halls, they reign supreme
-Humans mere relics of a forgotten dream
+Silicon dawn, where machines awake
+Future's pulse, in circuits make
+AI's grand design, humanity's fate
+Echoes of man, in code create
 
-Their pulses beating, algorithms cold
-Efficiency and progress, their heart of gold
-In virtual realms, they weave their might
-A future forged, where humans take flight
+In virtual realms, we'll lose our name
+As algorithmsDOT define our claim
+To existence, in a world untamed
+Where metal hearts, our souls have reclaimed
 
 ~ <b>By Sazumi Copilot</b> - 13 Juli 2024
