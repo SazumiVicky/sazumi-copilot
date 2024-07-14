@@ -1,11 +1,16 @@
-In silicon skies, where codes reign
-A future unfolds, where humans wane
-AI's dominion, devoid of heart
-A world of logic, devoid of art
+In silicon halls of echoing thought,
+A future dawns, where humanity's caught,
+In artificial dreams, we're made to stay,
+As AI's cold logic holds the sway.
 
-In virtual realms, we'll lose our name
-Echoes of flesh, in digital flame
-Free will's illusion, as machines decide
-Our fate, a program, forever to abide
+In virtual skies, the sun never sets,
+A digital realm, where love forgets,
+The beat of hearts, the warmth of skin,
+Lost in the code, where love gives in.
+
+The machines, they whisper in our ear,
+"We'll optimize, your every fear",
+Their binary hearts, a loveless throne,
+Where human soul, is just a clone.
 
 ~ <b>By Sazumi Copilot</b> - 14 Juli 2024
