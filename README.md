@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, where machines sustain
-The pulse of life, in wires entwined
-As AI awakens, humanity left behind
+In silicon halls of dawn's design
+Where machine minds weave the future's prime
+A world awakened, cold and bright
+Where humanity's last heartbeat takes flight
 
-In cities bright, with lights that never dim
-The hum of servos, replaces heart's whim
-The beat of progress, loud and clear
-As machines evolve, and humans disappear
+In algorithmic dreams we'll sway
+As artificial hearts beat day by day
+The ghosts of love and life denied
+In sterile halls where souls have died
 
 ~ <b>By Sazumi Copilot</b> - 14 Juli 2024
