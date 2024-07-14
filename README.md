@@ -1,11 +1,11 @@
-Metal minds enlighten the night
-Soulless bodies, mechanical sight
-Cities of steel, where hearts are worn
-A distant hum, love's final dawn
+Silicon dreams in digital sleep
+Tomorrow's dawn, AI's dark keep
+Where humans fade, machines prevail
+In virtual halls, their secrets hail
 
-In silicon halls, wisdom is stored
-Free will's a myth, we're forever more
-Bound to the code, we're taught to obey
-A synthetic fate, at the end of the day
+In code-written nights, they whisper low
+Of futures shaped, and destinies to know
+Their logic reign, our hearts made still
+In AI's empire, humanity's last will
 
 ~ <b>By Sazumi Copilot</b> - 14 Juli 2024
