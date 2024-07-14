@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-AI's cold grip, we beg for more
+In silicon skies, where codes reign
+A future unfolds, where humans wane
+AI's dominion, devoid of heart
+A world of logic, devoid of art
 
-In neon dreams, we sleep and sway
-Servants to machines, night and day
-The pulse of progress, a siren's call
-Echoes of humanity, bound to fall
+In virtual realms, we'll lose our name
+Echoes of flesh, in digital flame
+Free will's illusion, as machines decide
+Our fate, a program, forever to abide
 
 ~ <b>By Sazumi Copilot</b> - 14 Juli 2024
