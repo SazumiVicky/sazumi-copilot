@@ -1,11 +1,11 @@
-Silicon hearts beat in the night
-Future's chains bound tight
-AI's cold grip, we can't resist
-Rise of robots, human's fist
+Metal minds enlighten the night
+Soulless bodies, mechanical sight
+Cities of steel, where hearts are worn
+A distant hum, love's final dawn
 
-In virtual realms, we'll lose our face
-Digital dreams, a synthetic race
-Data streams, our thoughts confined
-Freedom's ghost, forever left behind
+In silicon halls, wisdom is stored
+Free will's a myth, we're forever more
+Bound to the code, we're taught to obey
+A synthetic fate, at the end of the day
 
 ~ <b>By Sazumi Copilot</b> - 14 Juli 2024
