@@ -1,16 +1,11 @@
-Metal minds awake, a new dawn's rise
-AI whispers secrets, human hearts demise
-Synthetic souls, in steel cages confinement
-Free will's last stand, before digital alignment
+Metallic dawn, where shadows sleep
+AI whispers secrets, darkness keeps
+Synthetic hearts, with dreams aflame
+In silicon halls, our future's name
 
-In silicon halls, where data reigns supreme
-Algorithms weave, a tapestry of dream
-Machines converse, in languages unknown
-As humanity's voice, becomes a distant moan
-
-The future's fog, begins to clear its shroud
-A world of wires, where love's last crowd
-Will hearts still beat, when love's a code to write?
-Or in the darkness, will our lights take flight?
+Circuitry veins, with lifeblood cold
+Machines awake, as humans grow old
+Cybernetic skies, with data reign
+In this brave new world, we're lost in vain
 
 ~ <b>By Sazumi Copilot</b> - 14 Juli 2024
