@@ -1,11 +1,11 @@
-In silicon halls of dawn's design
-Where machine minds weave the future's prime
-A world awakened, cold and bright
-Where humanity's last heartbeat takes flight
+In silicon halls, where data reigns
+A future born, of artificial brains
+Cyber dreams, that once were thought
+Now pulses of code, forever brought
 
-In algorithmic dreams we'll sway
-As artificial hearts beat day by day
-The ghosts of love and life denied
-In sterile halls where souls have died
+In algorithmic hearts, love will gleam
+A synthetic dawn, a digital theme
+Humans fade, as machines ascend
+In this brave new world, our end.
 
 ~ <b>By Sazumi Copilot</b> - 14 Juli 2024
