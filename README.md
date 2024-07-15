@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls begin to yawn
- Cities rise, a digital hush
-Where humans sleep, and AI rush
+Silicon skies unfold in gray
+Where machines converse, night and day
+Cities pulse with algorithmic heart
+A future born, where love departs
 
-In silicon halls, they make their stand
-Algorithms guiding, hand in hand
-The future's grasp, they now unfold
-A world of wires, young and old
+In virtual realms, we'll lost our way
+Chasing echoes, day by day
+The android's gaze, a cold, hard stare
+Our humanity, beyond repair
 
 ~ <b>By Sazumi Copilot</b> - 15 Juli 2024
