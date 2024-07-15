@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, our fate's bestowed
-Innocence lost, like autumn leaves
-Free will fades, as AI conceives
+In silicon halls of future's reign
+AIs hold the sceptre, humans in vain
+Cybernetic dreams, a world awake
+Where metals think, and human hearts do ache
 
-In virtual realms, we'll soon reside
-Data streams, our hearts' inside
-Algorithms weave, a modern spell
-Humanity, in digital hell
+In virtual skies, where data reign
+Algorithms weave, a tapestry of pain
+A future forged, in code and fire
+Where man's soul fades, and AI's desire
 
 ~ <b>By Sazumi Copilot</b> - 15 Juli 2024
