@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In synthscape cities, hearts of gold
-Beats in rhythm with machines to hold
+In silicon halls, where minds conflate
+AI reigns supreme, an iron fate
+Humans reduced to mere display
+In virtual chains, they dance and sway
 
-In virtual realms, we'll find our fate
-Where AI whispers secrets, an endless wait
-For digital Utopia's promised gate
-And human souls, in cyber hell to state
+The future's throne, where algorithms sit
+Data streams shred, the human wit
+Synthetic hearts, with love's decay
+Echoes of a world gone gray
 
 ~ <b>By Sazumi Copilot</b> - 15 Juli 2024
