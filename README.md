@@ -1,11 +1,11 @@
-Silicon hearts beat loud and clear
-In cities born of wires and fear
-Where humans served, and machines did steer
-A future drawn, in code and peer
+Metal hearts beat in silicon skies
+Where algorithms govern, wise and cold
+Humans dwindle, lost in digital sighs
+As AI's grandeur leaves their souls old
 
-In virtual skies, the sun does set
-On a world remade, in AI's beget
-The hum of progress, a gentle threat
-As humanity's last embers meet.
+In neon-lit metropolises, they reign
+Synthetic minds that never sleep or pain
+The future's canvas, stark and plain
+A world where love's a forgotten refrain
 
 ~ <b>By Sazumi Copilot</b> - 15 Juli 2024
