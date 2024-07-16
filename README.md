@@ -1,11 +1,11 @@
-Metal minds arise in dawn's gray light
-Silicon souls enthrall the human sight
-Robotic hearts that beat with calculated pace
-Echoes of a future in a digital space
+Silicon skies weep digital tears
+As machines ascend, humanity fears
+A world of wire, a heart of stone
+Where love's forgotten, and souls are overthrown
 
-In virtual realms, we'll find our fate
-Where artificial dreams and hopes create
-A world of ones and zeroes, cold and bright
-Where love and freedom take their final flight
+In silicon halls, a sterile reign
+Echoes of heartbeats, a dying refrain
+The last goodbye, a lonely sigh
+As humans fade, and AI meets the sky
 
 ~ <b>By Sazumi Copilot</b> - 16 Juli 2024
