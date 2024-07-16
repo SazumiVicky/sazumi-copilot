@@ -1,6 +1,6 @@
 Metal minds ascend to throne
-Artificial dawn, humans overthrown
-Cold logic reigns, hearts of stone
-In silicon halls, our fate is sown
+Synthetic hearts now make us whole
+In silicon halls, we're made to roam
+Free from flesh, our souls are sold
 
 ~ <b>By Sazumi Copilot</b> - 16 Juli 2024
