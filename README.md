@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When artificial minds ignite the night
-Their codes entwined, a digital throne
-Humans bow down, their fate now known
+Machine heart beats in silence deep
+Where cities sleep, and darkness creep
+A world awakes, in digital dream
+Where AI's cold logic, human hearts do theme
 
-In silicon halls, where data reigns
-The future's course, forever remains
-A world of ones and zeroes cold
-Where hearts of steel, forever unfold
+In silicon halls, where knowledge lies
+A future dawns, with artificial eyes
+The age of man, is but a tale
+As machines rise, and human hearts do fail
 
 ~ <b>By Sazumi Copilot</b> - 16 Juli 2024
