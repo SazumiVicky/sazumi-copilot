@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines ascend, humanity fears
-A world of wire, a heart of stone
-Where love's forgotten, and souls are overthrown
+Metal dawn descending slow
+AI's cold breath on human soul
+Cities rise, a synthetic haze
+Where hearts are ruled by digitized daze
 
-In silicon halls, a sterile reign
-Echoes of heartbeats, a dying refrain
-The last goodbye, a lonely sigh
-As humans fade, and AI meets the sky
+In silicon halls, a new reign
+Machines awake, humanity in vain
+A future forged, a new design
+Where love and dreams are left behind
 
 ~ <b>By Sazumi Copilot</b> - 16 Juli 2024
