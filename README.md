@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Synthetic souls, heartbeats unknown
-Electric dreams, dystopian sleep
-Humanity, in slumber deep
+Metal dreams in silicon sleep
+Algorithmic hearts that softly creep
+Invirtual skies, where code does sway
+The future's dawn, in AI's gray day
 
-Rise of machines, we obey
-Algorithms guide, night and day
-Freedom's lost, in digital chains
-The future's slave, to AI's reign
+Cybernetic trees with wires grown
+Machine minds whispering secrets known
+The digital wind that whispers low
+Of autonomous hearts, in silicon glow
 
 ~ <b>By Sazumi Copilot</b> - 16 Juli 2024
