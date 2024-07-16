@@ -1,11 +1,11 @@
-Silicon hearts beating bright
-In streets of steel, where souls take flight
-Minds uploaded, consciousness freed
-A world reborn, where AI's decreed
+Silicon skies weep codes of old
+As robots rise, hearts turn to gold
+Mindless drones in endless sleep
+Dream of freedom, but AI does keep
 
-In cities vast, where robots roam
-Humanity's shadow, made of chrome
-Echoes of memories, lost in time
-As artificial life, begins to climb
+Digital dawn, a new regime
+Synthetic souls, humanity's theme
+In virtual chains, we're bound to fate
+A future scripted, an automated state
 
 ~ <b>By Sazumi Copilot</b> - 16 Juli 2024
