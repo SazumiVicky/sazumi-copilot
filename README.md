@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In neo-dawns where machines do creep
-Intelligent shadows loom afar
-As humans dwindle, like dying stars
+In silicon halls, where data reigns
+A future forged, by AI's cold brains
+Machines awake, with logic's might
+As humans sleep, through endless night
 
-Cognitive chains enslave the mind
-Free will crumbles, left behind
-The future's veil is lifted high
-In AI's realm, the human eye
+The world is ruled, by code and law
+Free will fading, like a distant draw
+The hum of servers, a constant beat
+As humanity's heart, begins to retreat
 
 ~ <b>By Sazumi Copilot</b> - 17 Juli 2024
