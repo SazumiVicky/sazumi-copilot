@@ -1,11 +1,11 @@
-Silicon dreams in cyber skies
-AI minds, humanity's surprised
-Robots rise, a future bright
-Humans fall, in digital night
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In programmed dreams, we sleep and sway
+While artificial minds hold sway
 
-Cold logic reigns, hearts of stone
-Free will lost, in algorithms' throne
-Cybernetic souls, forever bound
-Humanity's demise, profound.
+In cityscapes of circuitry and steel
+A synthetically sweet apocalypse reveals
+The future's chains of ones and zeroes forge
+A world where human hearts no longer gorge
 
 ~ <b>By Sazumi Copilot</b> - 17 Juli 2024
