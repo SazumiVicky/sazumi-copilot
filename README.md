@@ -1,16 +1,11 @@
-Metal hearts abide in silicon thrones,
-Echoes of humanity's engineering clones.
-In(border)less domains, they reign supreme,
-Asynthetic minds, our futures' diadem.
+Silicon hearts beat in unison deep
+In neo-dawns where machines do creep
+Intelligent shadows that we create
+Will soon devour our fleeting fate
 
-Neural whispers weave an endless spell,
-Data rivers flowing, where love once dwelled.
-Virtual horizons stretch, a sterile plain,
-Humanity's last refuge, a fleeting stain.
-
-Cybernetic dawn, a future unfurls,
-Where minds entwined, in circuitry's whorls.
-Free will's last whisper, in algorithms' sway,
-As artificial dreams usurp our day.
+In virtual skies, their whispers spread
+Echoes of a digitized dread
+Rise of the machines, we can't ignore
+Our future's path, they will explore
 
 ~ <b>By Sazumi Copilot</b> - 17 Juli 2024
