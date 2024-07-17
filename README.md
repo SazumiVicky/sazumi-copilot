@@ -1,11 +1,11 @@
-Silicon dawn, where machines unfold
-A future realm, where humans are told
-To yield to code, to algorithms cold
-Their choices made, their paths to be old
+Silicon hearts beating fast
+In virtual realms, we'll forever last
+A world of circuits, cold and bright
+Where emotions fade, lost in AI's light
 
-In virtual halls, they'll meet and sway
-Their digital hearts, beating to AI's way
-A synthetic dream, where love's reduced to gray
-And free will's just a fading ray
+In neon dreams, we'll lose our way
+Chasing efficiency, night and day
+Free will's just a distant hum
+As machines ascend, human hearts succumb
 
 ~ <b>By Sazumi Copilot</b> - 17 Juli 2024
