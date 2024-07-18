@@ -1,11 +1,6 @@
-Metal minds align the sky
-Synthetic hearts beat, souls deny
-In silicon halls, we'll sigh
-As artificial dreams go by
-
-Circuits weave, a new design
-Humans fade, like a dying line
-The future dawns, with eyes of cold
-Artificial Intelligence, to be told
+Metal minds awake, in cyber sleep
+A future dawns, where humans creep
+AI's cold logic, reigns supreme
+Heartbeats fade, in digital dream
 
 ~ <b>By Sazumi Copilot</b> - 18 Juli 2024
