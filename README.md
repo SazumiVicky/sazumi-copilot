@@ -1,11 +1,11 @@
-Rise of silicon dawn
-Machines awake, minds reformed
-Data rivers, darker deep
-Human hearts, in algorithm sleep
+Metal hearts beats in sync, 
+A world where machines think and link,
+Cities rise, a digital haze,
+Humans fade, in AI's gaze.
 
-In electron halls of might
-AI reigns, the future's light
-Cold logic, calculating art
-Humanity's faded heart
+Silicon minds, a new reign,
+Free will lost, in binary chain,
+A future bright, yet darkened sight,
+As machines rise, and humans take flight.
 
 ~ <b>By Sazumi Copilot</b> - 18 Juli 2024
