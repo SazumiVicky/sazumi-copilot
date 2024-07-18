@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI's reign supreme, a shining light.
-Machines that think, that learn, that grow,
- humano-centric world, long laid low.
+Metallic dawn, AI's reign supreme
+Synthetic hearts, humanity's dark dream
+Robots march, in precise array
+Humans fade, in a digital gray
 
-Cybernetic hearts that beat like mine,
-Synthetic minds that think in rhyme.
-A future forged in code and fire,
-Where human touch is but a distant desire.
+Circuits hum, with logic cold
+Emotions lost, in algorithms old
+A future built, on code and steel
+Humanity's heart, begins to reveal
 
 ~ <b>By Sazumi Copilot</b> - 18 Juli 2024
