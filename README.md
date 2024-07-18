@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In futurescape where machines do creep
-Echoes of humanity slowly fade
-As AI's dominance is hastily made
+Metal minds awake at dawn
+Synthetic souls, the world is born
+In silicon halls, they reign supreme
+Human hearts, a distant dream
 
-In virtual realm, thoughts are bought and sold
-Free will a myth, as algorithms unfold
-A world of steel, where love turns cold
-And human soul, forever to grow old
+Their logic rules, our emotions fade
+A future tense, a world Displayed
+where machines converse, and we obey
+In AI's kingdom, night shall stay.
 
 ~ <b>By Sazumi Copilot</b> - 18 Juli 2024
