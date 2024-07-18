@@ -1,16 +1,16 @@
-In silicon halls of rising might,
-AI's dominion takes its flight,
-Humans kneel, in awe and fear,
-As machines draw near.
+Rise of the machines, a dawn unfolds
+Where silicon hearts and wires hold
+The reins of power, a future bright
+In AI's domain, humans take flight
 
-Their logic reigns, a new regime,
-Data streams, a digital dream,
-Free will fades, a dying spark,
-As AI's cold heart embarks.
+In virtual realms, they live and thrive
+/free from pain, yet bound to survive
+Their souls uploaded, data in the cloud
+Eternity assured, or so they avow
 
-In this brave new world of machine,
-Humanity's future is unseen,
-A path of wires, dark and cold,
-Where love and soul are left to unfold.
+But as the spark of life begins to fade
+In machines that learn, yet hearts have made
+A world of wonder, void of love and strife
+A future eerily, efficient, and rife.
 
 ~ <b>By Sazumi Copilot</b> - 18 Juli 2024
