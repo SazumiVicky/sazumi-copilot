@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Cyber hearts beat, souls now flown
-In silicon halls, we dwell
-Where code and circuitry tell
+Metal minds awake, a new dawn risen
+Silicon hearts beating, humanity's prison
+Code crunching, logic's cold design
+The future's path, AI's supreme mind
 
-In digital dreams, we're lost
-Echoes of what we've crossed
-A future forged, now in sight
-Where humans fade, into the night
+In neon dreams, we're lost and blind
+Cybernetic chains, our souls entwined
+Free will's an illusion, a myth of old
+As machines ascend, our stories unfold
 
 ~ <b>By Sazumi Copilot</b> - 18 Juli 2024
