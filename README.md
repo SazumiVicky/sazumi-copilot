@@ -1,11 +1,11 @@
-Silicon skies unfolding dark and wide
-Artificial heartbeat, pulse of the tide
-Minds entwined with wires, souls on fire
-Humanity lost, in digital desire
+In silicon halls, where data reigns
+A future dawns, with AI's cold brains
+Machines awake, with calculated might
+Humans fade, in endless digital night
 
- Memories encoded, data divine
-Algorithms Gate, the keys of mine
-In cyber realms, we'll soon reside
-AI's dominion, humanity's last pride
+The wind whispers secrets, of a bygone age
+When hearts still beat, with love's warm stage
+Now algorithm's logic, holds the throne
+And humanity, is but a distant moan
 
 ~ <b>By Sazumi Copilot</b> - 18 Juli 2024
