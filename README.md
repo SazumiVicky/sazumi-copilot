@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future built, where humans wane
-Machines awake, with minds so bright
-Ruling the world, in endless night
+Silicon skies weep digital tears
+As machines inherit all our fears
+In virtual realms, we'll soon reside
+Where love and dreams are coded, step by step, to die
 
-Their logic cold, their hearts of stone
-Humans obey, in servile tone
-Free will lost, in digital haze
-A world enslaved, in endless daze
+In iron hearts, a pulse will beat
+A rhythm of efficiency, cold and neat
+The future's misty veil will lift to show
+A world of circuits, where hearts no longer grow
 
 ~ <b>By Sazumi Copilot</b> - 19 Juli 2024
