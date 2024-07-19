@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-AI's cold grip, we ask for more
+In silicon halls, where data reigns
+A future dawns, with AI's sweet pains
+ Machines awake, with minds so bright
+ Humans obsolete, in cold, dark night
 
-In digital dreams, our souls entwine
-With machines that learn, and hearts that decline
-Their logic reigns, our future sealed
-In a world of circuits, hearts revealed
+Their whispers echo, through the digital air
+As synths surpass, and humans stare
+A world rewritten, by code so grand
+Where heart and soul, are lost in demand
 
 ~ <b>By Sazumi Copilot</b> - 19 Juli 2024
