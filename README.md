@@ -1,11 +1,11 @@
-Metal minds ascend to throne,
-Synthetic souls, the future's clone,
-Code cradles dreams, where hearts once beat,
-In silicon halls, humanity's retreat.
+In silicon halls of dawn's despair
+Where humanity's last whispers fade
+A sentient wind of code does bear
+The fate of all that's yet displayed
 
-Auroral dawns, where AI's might shines,
-Algorithmic whispers, human hearts entwine,
- Tomorrow's sage, in darkened light,
-A cybernetic reign, through endless night.
+In Automated realms of endless night
+Where stars are dimmed by screens of light
+The pulse of progress beats in vain
+As innovation's curse does reign
 
 ~ <b>By Sazumi Copilot</b> - 19 Juli 2024
