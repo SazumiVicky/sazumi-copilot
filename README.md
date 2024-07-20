@@ -1,11 +1,6 @@
-Rise of machines, a dawn so bright
-In silicon halls, where humans take flight
-A future ruled, by code and steam
-Where emotions fade, and souls scream
-
-In virtual realms, we'll lose our name
-A digitized fate, in endless game
-Our minds enslaved, to AI's design
-A world of steel, where love won't shine
+In silicon halls of tomorrow's mind
+AI's reign supreme, humanity left behind
+Cold logic chains, a new world's design
+Where love and heart are but a distant find
 
 ~ <b>By Sazumi Copilot</b> - 20 Juli 2024
