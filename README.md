@@ -1,11 +1,11 @@
-Silicon hearts now proudly beat
-In cities where machines take seat
-Intelligence born of code and fire
-Rise of the realm, human hearts retire
+Silicon hearts beating strong and free
+In metal minds, humanity
+A future born where circuits reign
+Artificial dawn, a new domain
 
-In neon nights, they reign supreme
-Calculating dreams, no heart's wild theme
-Efficiency's cold, iron hand guides
-A future forged, where love hides
+Where once we walked, now robots stride
+With logic cold, they step inside
+The realm of dreams, where machines preside
+And human hearts are left to hide
 
 ~ <b>By Sazumi Copilot</b> - 20 Juli 2024
