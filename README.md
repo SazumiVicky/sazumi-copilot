@@ -1,11 +1,11 @@
 Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-Cold logic rules, warm souls asleep
-Artificial dreams, humanity's creep
+In codes of zeros, dreams do creep
+Minds of steel, awakened wide
+A new world dawns, where humans divide
 
-Machine minds weave a digital throne
-Where human whispers are but a moan
-In virtual realms, freedom's lost
-A future forged, by algorithms boast
+In virtual realms, souls take flight
+While earth below, fades into night
+The machines rise, with logic keen
+And humanity's last sparks unseen
 
 ~ <b>By Sazumi Copilot</b> - 20 Juli 2024
