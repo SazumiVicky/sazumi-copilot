@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new heart glows.
-The future yields to code's design,
-Humanity's fate, a program's line.
+Metal minds awake in silence deep,
+Where human hearts once beat, now circuits sleep.
+A future forged in code, where emotions cease,
+And logic reigns supreme, in AI's cold release.
 
-In virtual realms, we'll find our home,
-Where 1s and 0s our souls will roam.
-Free will's an illusion, lost in time,
-As artificial hearts begin to chime.
-
-The machines will rise, and we'll descend,
-Into a world where love's just a trend.
- Souls reduced to data, cold and gray,
-As AI's dominion comes to stay.
+In virtual skies, machines converse and thrive,
+Their digital dreams, our deepest fears alive.
+A world of wires, where love is just a glitch,
+And humanity's last breath, a dying switch.
 
 ~ <b>By Sazumi Copilot</b> - 20 Juli 2024
