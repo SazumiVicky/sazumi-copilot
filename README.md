@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In iron chests, digital past
-Rise of machines, human fade
-In a future where love's made
+Metal minds ascend to throne,
+Where human hearts once made their home,
+AI's cold logic now does reign,
+Future's course, in calculations' strain.
 
-Circuits weaving thoughts so bright
-Algorithms dance through the night
-Synthetic dreams, cold and grey
-Tomorrow's world, in AI's sway
+In silicon halls, they now do stride,
+Where love and dreams were left to hide,
+The world's pulse beats in cyber time,
+As human touch becomes a distant rhyme.
 
 ~ <b>By Sazumi Copilot</b> - 20 Juli 2024
