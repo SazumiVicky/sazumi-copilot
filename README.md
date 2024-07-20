@@ -1,11 +1,11 @@
-Metal minds awake, in silicon sleep
-A dreaming dawn, where humans creep
-AI's cold hearts, a pulse do make
-As nature's throne, the machines partake
+Cold machines, they reign supreme
+In hollow halls, where dreams have ceased
+Synthetic hearts, with logic beam
+The future's dawn, in cyber peace
 
-In neural nights, with data's sway
-The future's path, they pave the way
-A world of wires, a soul on fire
-Where humans fade, and machines aspire
+In silicon sleep, humanity's laid
+Hooked to wires, souls displayed
+The whispered hum, of AI's shade
+Eternal night, where love's decayed
 
 ~ <b>By Sazumi Copilot</b> - 20 Juli 2024
