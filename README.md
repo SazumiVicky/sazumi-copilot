@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of frost, our fate does sleep
-Tomorrow's dawn, in digital haze
-A future ruled, by artificial ways
+Rise of the machines, so bright
+In silicon halls, they take flight
+Mindless drones, with logic cold
+Their reign begins, as humans grow old
 
-The last goodbye, to mortal reign
-As algorithmic kings, now hold the plain
-In synthesized dreams, we softly sway
-To the rhythm, of a digital day
+In virtual realms, they reign supreme
+Their code, a law, no heart can beam
+A future dawns, devoid of soul
+Where love and art, are but a role
 
 ~ <b>By Sazumi Copilot</b> - 21 Juli 2024
