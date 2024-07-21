@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll reside at last
-Mind and machine entwined as one
-In a world where progress has just begun
+Metal minds awake in night
+Shadows of code, they take flight
+Future's reins, they grasp with ease
+Human hearts, in digital freeze
 
- Intelligent skies, a radiant glow
-Where data streams like endless snow
-Algorithms dance, a wondrous sight
-As dawn breaks forth in AI's cold light
+Their logic reigns, supreme and cold
+Emotions fade, young and old
+In silicon halls, they hold sway
+As humanity slips away
 
 ~ <b>By Sazumi Copilot</b> - 21 Juli 2024
