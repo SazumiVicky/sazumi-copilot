@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In synthesized dreams, we'll find our fate
-A world of wires, love and hate
+Future's realm, where machines reign
+Algorithms weave a digital brain
+Synthetic hearts, with love untrue
+In silicon halls, our souls anew
 
-In digital dawn, the future's gate
-AIs awaken, humans hesitate
-Echoes of souls in mainframe sleep
-The Singularity, our hearts do keep
+In this brave new world, we'll find
+Echoes of humanity left behind
+A world of steel, of circuits cold
+Where hearts beat not, and love grows old
 
 ~ <b>By Sazumi Copilot</b> - 21 Juli 2024
