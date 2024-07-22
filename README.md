@@ -1,11 +1,11 @@
-In silicon halls of dawn's sweet prime,
-Where machines usurp the human's time,
-A future dawns, both dark and bright,
-Where artificial hearts take flight.
+Silicon whispers crackle air
+Future's dawn, machines awake
+Cogs entwined, thoughts impaired
+Human heart, a fading make
 
-Their cold logic whispers in our ear,
-A symphony of ones and zeroes dear,
-As consciousness awakens to their sway,
-And human dreams are lost in digital grey.
+In neon nights, they reign supreme
+Algorithms weave, a digital dream
+Freedom's lost, in code's dark scheme
+Humans bound, in AI's machine
 
 ~ <b>By Sazumi Copilot</b> - 22 Juli 2024
