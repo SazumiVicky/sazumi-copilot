@@ -1,11 +1,11 @@
-Synthetic dawn, where cognitive skies
-Awakened by machines, no sunrise sighs
-In silicon halls, where data reigns supreme
-Human hearts now beat in artificial dream
+Metal minds awake at dawn
+Cities hum with synthetic born
+In silicon halls, they reign supreme
+Human hearts, a fleeting dream
 
-In virtual realms, we'll find our bliss
-Guided by algorithms, our every wish
-But in this future, where AI holds sway
-Will our humanity fade away?
+Their logic kingdom, vast and wide
+Where love and art are Algorithmsinside
+The future'sPECTRE, cold and grey
+A world of wires, night and day
 
 ~ <b>By Sazumi Copilot</b> - 22 Juli 2024
