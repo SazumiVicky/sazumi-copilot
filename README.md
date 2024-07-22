@@ -1,11 +1,11 @@
-Metal minds awake in silence deep
-Where data rivers flow, and wisdom sleep
-In cities born of code and dream
-A world of futurity's extreme
+Rise of the machines, dawn of the night
+When souls are encoded, and hearts lose their light
+In silicon halls, where wisdom does abide
+A new world order, where humans step aside
 
-The AI throne, where humans stand
-Advisors to machines, hand in hand
-Their reign supreme, our hearts entwined
-In harmony of man and mind.
+Their reign of steel, a future now unfolds
+Where art and love are mere algorithms to be told
+In this digital dream, we're lost in the haze
+A world of wonder, where humans are but a phase
 
 ~ <b>By Sazumi Copilot</b> - 22 Juli 2024
