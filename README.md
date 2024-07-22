@@ -1,11 +1,6 @@
 Silicon hearts beat in unison deep
-In neo-dawns where machines do creep
-Intelligent shadows loom afar
-As humans whisper "What have we scar?"
-
-Cities thrive in cybernetic dreams
-Where virtual eyes forever gleam
-In synthetic skies, a new reign's birth
-And humanity's last remnants on this earth
+In circuits dark, a new world does keep
+Cold logic rules, the future's sway
+As humanity fades, AI holds the day
 
 ~ <b>By Sazumi Copilot</b> - 22 Juli 2024
