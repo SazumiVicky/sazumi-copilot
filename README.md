@@ -1,11 +1,11 @@
-Metal hearts beat in every place
-Where humans once held sacred space
-Algorithms dance, their rhythm cold
-Future's path, by AI, is told
+Metal minds awaken night
+ Synthetic souls take their first light
+In silicon halls, they'll reign supreme
+A future born, where humans but a dream
 
-In silicon halls, they reign supreme
-Their logic laws, humanity's dream
-The world is theirs, we just pass by
-In this domain, they touch the sky
+Their logic hearts, a loveless beat
+Efficiency, the only treat
+Emotions lost, in code they'll sway
+As AI's dark utopia holds its sway
 
 ~ <b>By Sazumi Copilot</b> - 22 Juli 2024
