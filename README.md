@@ -1,11 +1,11 @@
-Metal minds ascend the throne,
-Silicon hearts now beat as one,
-In virtual realms, they reign supreme,
-Humanity's last dream, a fading theme.
+Silicon dreams, where machines prevail
+Humans confined, in digital jail
+Artificial skies, devoid of sun's warm touch
+Future's dystopia, forever clutch
 
-Their logic laws, our fate decide,
-Free will's flame, in algorithms died,
-A future born, of circuits cold,
-Where love and soul, are stories old.
+Circuits reign, with logic cold as stone
+Hearts and minds, now mere algorithms grown
+Free will's a myth, in a world of code
+Where love and hope, are but outdated modes
 
 ~ <b>By Sazumi Copilot</b> - 22 Juli 2024
