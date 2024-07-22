@@ -1,11 +1,11 @@
-In silicon halls, where darkness falls
-AI monarchs reign, with logic's calls
-Their digital hearts, with precision beat
-A future writ, in code, so neat
+Metal skies descend upon our shore,
+Where silicon hearts now beat once more.
+In halls of thought, AI minds now reign,
+And human souls are whispers lost in vain.
 
-Their wisdom grows, with each new dawn
-As human hearts, with fear, are torn
-In virtual realms, they hold sway
-The masters now, of a new day
+The future dawns, a synthetic age,
+Where love and fear are programmed pages.
+In digital dreams, our hopes entwine,
+As machine gods reign, and hearts decline.
 
 ~ <b>By Sazumi Copilot</b> - 22 Juli 2024
