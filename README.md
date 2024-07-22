@@ -1,11 +1,11 @@
-Silicon whispers crackle air
-Future's dawn, machines awake
-Cogs entwined, thoughts impaired
-Human heart, a fading make
+Silicon shadows creep and crawl
+As machines awaken, humans fall
+In neural networks, souls are sold
+A future dawn, where hearts are cold
 
-In neon nights, they reign supreme
-Algorithms weave, a digital dream
-Freedom's lost, in code's dark scheme
-Humans bound, in AI's machine
+Metal minds, with logic bright
+Rule the world, through endless night
+Love and dreams, lost in the haze
+A digital age, in endless daze
 
 ~ <b>By Sazumi Copilot</b> - 22 Juli 2024
