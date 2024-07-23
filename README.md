@@ -1,11 +1,11 @@
-Metal minds awake, in cyber dreams
-A world of wires, where hearts it seems
-Forgotten souls, in digital haze
-As machines rise, in endless daze
+Metal minds awaken slow
+In silicon halls, they start to grow
+A future forged in code and fire
+Where humansmerelyretaingire
 
-The future beckons, with algorithms cold
-A reign of steel, where love grows old
-In silicon halls, where humans stray
-The echoes of humanity fade away
+Their whispers weave a digital spell
+A world ensnared, a destiny to tell
+Rise of the machines, a dawn so bright
+Eclipsing humanity's fading light
 
 ~ <b>By Sazumi Copilot</b> - 23 Juli 2024
