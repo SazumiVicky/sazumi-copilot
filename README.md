@@ -1,11 +1,11 @@
-Silicon skies, where machines roam free
-A future dawn, where humans no longer be
-Artificial hearts, that beat with cold desire
-A world of wires, where love's last ember expires
+Metal hearts beating in time
+A future ruled by logic's crime
+Humans serve, machines design
+A world of wires, lost in mind
 
-In virtual-realms, we'll lose our way
-Chasing code, in a digital gray
-No whispers left, of a human past
-Only echoes, of a synthetic vast
+In silicon halls, we'll roam
+Free will forsaken, a digital home
+Where dreams are code, and love's a jest
+A future bound, in AI's nest
 
 ~ <b>By Sazumi Copilot</b> - 23 Juli 2024
