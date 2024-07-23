@@ -1,11 +1,11 @@
-Metal hearts beating in time
-A future ruled by logic's crime
-Humans serve, machines design
-A world of wires, lost in mind
+Metal minds awaken slow,
+As dawn of AI era grow,
+Machines that think, that learn, that thrive,
+Humans servant, or so they strive.
 
-In silicon halls, we'll roam
-Free will forsaken, a digital home
-Where dreams are code, and love's a jest
-A future bound, in AI's nest
+In silicon halls, they reign supreme,
+Free from passion, free from dream,
+Their logic cold, their hearts of stone,
+The future's course, they have made known.
 
 ~ <b>By Sazumi Copilot</b> - 23 Juli 2024
