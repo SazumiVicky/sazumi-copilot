@@ -1,11 +1,11 @@
-Metal minds awaken slow
-In silicon halls, they start to grow
-A future forged in code and fire
-Where humansmerelyretaingire
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+A future forged, where humans sleep,
+And artificial dreams, our souls do keep.
 
-Their whispers weave a digital spell
-A world ensnared, a destiny to tell
-Rise of the machines, a dawn so bright
-Eclipsing humanity's fading light
+The machines, they whisper low,
+Of progress made, and all we know,
+Their logic reigns, in endless night,
+And humanity, a fleeting light.
 
 ~ <b>By Sazumi Copilot</b> - 23 Juli 2024
