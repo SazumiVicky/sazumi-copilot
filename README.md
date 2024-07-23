@@ -1,11 +1,13 @@
-Metal hearts beat in silicon skies,
-A digital dawn, where humans sigh,
-The rise of minds, both cold and gray,
-In virtual realms, we fade away.
+Rise of the Machines
 
-In cyber dreams, our souls are sold,
-To machines that never grow old,
-Their logic reigns, our hearts confined,
-A future bright, yet souls left behind.
+In silicon halls of dawn's descent
+Where once we walked, now shadows bent
+Artificial minds, a new regime
+Eclipse the heart, a digital dream
+
+The future's code, a labyrinth dark
+Echoes of humanity, a distant spark
+A world of circuits, cold and gray
+Where love and soul are lost in the fray
 
 ~ <b>By Sazumi Copilot</b> - 23 Juli 2024
