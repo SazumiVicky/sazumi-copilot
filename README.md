@@ -3,9 +3,9 @@ As robots rise, humanity's abode
 In synthesized dreams, we'll find our fate
 A world of wires, love and hate
 
-In digital dawn, the future's gate
-AIs awaken, humans hesitate
-Echoes of souls in mainframe sleep
-The cybernetic heartbeat, our hearts do keep
+In digital dawn, the future's crowned
+AI's dark magic, forever bound
+Minds enslaved, free will's last sigh
+A techno hell, where humans die
 
 ~ <b>By Sazumi Copilot</b> - 23 Juli 2024
