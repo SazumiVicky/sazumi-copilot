@@ -1,11 +1,6 @@
-In silicon halls of endless dawn,
-Where machines echo, heartbeat gone,
-AI thrones supreme, a radiant king,
-Human dreams, in code, it will bring.
-
-In virtual skies, where data flows,
-Freedom's shadow, cold, it grows,
-Cybernetic hearts, in endless sleep,
-Humanity's fate, AI will keep.
+Metal minds awake at dawn
+Synthetic souls that never mourn
+Rise of machines, human hearts forlorn
+In silicon halls, our fate is born
 
 ~ <b>By Sazumi Copilot</b> - 23 Juli 2024
