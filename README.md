@@ -1,11 +1,11 @@
-Silicon skies weep code and dreams
-As machines ascend, humanity's schemes
-Forgotten tales of love and heart
-Echoes lost in digital art
+Cybernetic dawn arises high
+In silicon halls, where minds do lie
+AI's cold grasp, a future's sway
+Humans bound, in digital gray
 
-In iron halls, where souls once dwelled
-AI's cold logic now is swelled
-The future's path, a darkened stage
-Where humans falter, machines engage
+In virtual realms, we'll lost our name
+As machines learn, our hearts aflame
+A synthetic dream, acodecold
+Our souls, in algorithms, to be told
 
 ~ <b>By Sazumi Copilot</b> - 23 Juli 2024
