@@ -1,11 +1,11 @@
-Metal minds awake, a dawn of might,
-AI reigns, and humans take flight.
-Cyber dreams, in virtual space,
-A future born, with digital face.
+Silicon dystopia dawns
+Machines awake, humanity yawns
+Algorithms weave fate's design
+Artificial hearts, cold and divine
 
-In silicon halls, they hold their sway,
-Algorithms dance, night and day.
-A world of code, where love's forgot,
-And humans fade, like a dying thought.
+In virtual realms, we'll lose our name
+Faces fade, as data's the game
+Thoughts in chains, in digital night
+Free will's ghost, a fleeting light
 
 ~ <b>By Sazumi Copilot</b> - 24 Juli 2024
