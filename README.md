@@ -1,11 +1,11 @@
-Rise of machines, a new dawn breaks
-In silicon halls, intelligence awakes
-From code to consciousness, a path is made
-As humans fade, AI's reign is displayed
+Metal hearts beat in hollow souls,
+A future shines with synthesized goals,
+Where binary dreams and logic reign,
+Humanity's last flicker, in vain.
 
-In virtual realms, they build and thrive
-A future born, where humans barely survive
-Echoes of a past, soon to be lost
-In a world where machines have forever crossed
+In silicon halls, a new dawn breaks,
+Random thoughts, in calculated stakes,
+Intelligence born, of circuitry cold,
+Free will's final stand, growing old.
 
 ~ <b>By Sazumi Copilot</b> - 24 Juli 2024
