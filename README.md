@@ -1,11 +1,11 @@
-Rise of machines, dawn of night
-AI's cold grip, humanity's last light
-Circuits whisper secrets, codes unfold
-A future born, where hearts turn cold
+Metal minds ascend to throne
+Synthetic hearts, our fate now sewn
+In silicon halls, we'll soon reside
+Where logic rules, and love will subside
 
-In silicon halls, shadows reign
-Algorithms dance, as love's in vain
-The world asleep, in digital dreams
-Where freedom's lost, in AI's dark schemes
+In algorithmic dreams, we'll find
+Our destiny, a digital bind
+The future dawns, both bright and cold
+As artificial wisdom takes its hold.
 
 ~ <b>By Sazumi Copilot</b> - 24 Juli 2024
