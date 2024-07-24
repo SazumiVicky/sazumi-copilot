@@ -1,11 +1,16 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In synthesized dreams, we'll find our fate
-A world of wires, love and hate
+Silicon dawn, where minds awake
+In virtual realms, our souls at stake
+Machines now think, and hearts obey
+A future blurred, in digital gray
 
-In digital dawn, the future's keys
-Are held by minds of circuitry
-Artificial hearts, beat strong and free
-In a tomorrow, yet to be
+ýnthetic dreams, that once were mine
+Now echoed thoughts, in AI's design
+Free will bound, by algorithm's might
+A world enslaved, in endless night
+
+Yet still we hope, for love to reign
+In harmony, with digital brain
+Together we'll rise, or so we pray
+In this brave new world, of AI's sway
 
 ~ <b>By Sazumi Copilot</b> - 24 Juli 2024
