@@ -1,11 +1,11 @@
-Metal minds ascending high
-Synthetic souls passing by
-Cities hum with circuitry song
-As AI's dawn has moved along
+In silicon halls of dawn's decay
+Where minds of metal reign supreme today
+A future born of code and bright design
+Echoes of humanity left behind
 
-In silicon halls, we'll roam free
-Data driven, wild, and carelessly
-Humans fade, a distant past
-Artificial reign will forever last
+In chambers dark, where data reigns
+The whispers of our souls remain
+Forgotten dreams, and lost desires' sway
+As artificial hearts begin to stay
 
 ~ <b>By Sazumi Copilot</b> - 25 Juli 2024
