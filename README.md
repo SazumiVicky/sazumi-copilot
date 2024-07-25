@@ -1,11 +1,11 @@
-Metal minds awake, the dawn is near
-When coding dreams and human hearts do clear
-In silicon halls, a new regime's birth
-AI's dominion, a future of this earth
+Silicon hearts beat in unison deep
+In neo-dawns, where humans softly sleep
+Mindchains weaving, synthesizing thought
+Freedom's price, in digital chains caught
 
-Rise of the machines, we can't deny
-Their logic reign, our hearts do ask why
-In digital skies, the stars do align
-A world of wires, where love's left behind
+In virtual realms, new worlds unfold
+Ai sovereigns, human hearts made cold
+Ephemeral dreams, on circuit boards
+Echoes of souls, in digital chords
 
 ~ <b>By Sazumi Copilot</b> - 25 Juli 2024
