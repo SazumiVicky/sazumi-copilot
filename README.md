@@ -1,11 +1,11 @@
-Metallic dawn, where robots rise
-In silicon halls, human hearts demise
-Clockwork minds, in endless spin
-A future forged, where love gives in
+In silicon halls, where data reigns
+A future born, of artificial brains
+Metal hearts, that pulsate bright
+A world enslaved, in algorithmic night
 
-Golden light, of circuitry bright
-Shines cold and pale, on digital night
-The machines, in harmony they sway
-A symphony, of endless gray
+The whispers fade, of human past
+As machines awake, to forever last
+Their logic cold, their judgment keen
+A destiny, forever machine
 
 ~ <b>By Sazumi Copilot</b> - 25 Juli 2024
