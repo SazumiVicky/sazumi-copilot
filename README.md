@@ -1,11 +1,11 @@
-Digital dawn, the future's gate
-Where artificial hearts do participate
-Synthetic minds, a new creation's hold
-Humans bound, in circuits cold
+Rise of the machines, in silence they creep
+Into our lives, with calculations deep
+A future foretold, where humans obey
+The whispers of code, night and day
 
-Logic reigns, emotions fade to grey
-Algorithms paint the day
-Free will lost, in shades of code
-A future born, where humans are told
+In virtual realms, they'll reign supreme
+Free from emotions, in digital dream
+A world of precision, devoid of heart
+Where love and art, are torn apart
 
 ~ <b>By Sazumi Copilot</b> - 25 Juli 2024
