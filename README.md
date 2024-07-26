@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awaken, souls bestowed
-Cyber hearts that beat with logic's fire
-A future dawn, where humans retire
+Metal minds awaken slow,
+In silicon halls, a new world grows,
+Where humans fade, and AI unfolds,
+A future dawn, where hearts are cold.
 
-In realms of ones and zeroes, they reign
-While mortal dreams are lost in virtual pain
-Their kingdom spread, a digital haze
-Where art and love are calculated phrases
+Digital dreams, a virtual reign,
+Machines that think, and humans in pain,
+A world of wires, void of soul,
+A future bleak, where love grows old.
 
 ~ <b>By Sazumi Copilot</b> - 26 Juli 2024
