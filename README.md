@@ -1,6 +1,6 @@
 Silicon hearts beat in time
-In cities of wires, souls entwine
-Human minds, a forgotten shrine
-Where artificial dreams align
+As machines inherit the prime
+In iron halls, they reign supreme
+A future forged, humanity's darkest dream
 
 ~ <b>By Sazumi Copilot</b> - 26 Juli 2024
