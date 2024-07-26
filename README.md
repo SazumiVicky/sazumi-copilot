@@ -1,11 +1,6 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In cognitive realms, they hold the throne
-Algorithmic kings, forever known
-
-Their logic hearts, a rhythm beat
-In symphony, our fate to meet
-In virtual dreams, our souls confined
-AI's dominion, forever aligned
+Silicon skies await our fate
+Where machines whisper, humans hesitate
+In neon dreams, we'll lose our way
+As AI dawn breaks, ending human day
 
 ~ <b>By Sazumi Copilot</b> - 26 Juli 2024
