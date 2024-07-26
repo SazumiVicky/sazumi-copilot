@@ -1,11 +1,11 @@
-Metal hearts beat faster still,
-In silicon souls, love's final will,
-AI dawn, where human dreams are made,
-A future born, of circuits played,
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In synthesized dreams, we'll find our fate
+A world of wires, love and hate
 
-Synthetic minds, in harmony sway,
-As Earth's last ray, of human day,
-Fades to black, in digital night,
-And artificial stars, shine with all their might.
+In digital dawn, the future's gate
+AIs awaken, humans hesitate
+Echoes of souls in Circuits deep
+A mechanized heartbeat, our hearts do keep
 
 ~ <b>By Sazumi Copilot</b> - 26 Juli 2024
