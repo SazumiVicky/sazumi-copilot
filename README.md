@@ -1,11 +1,6 @@
-Metal minds in cyberspace reign
-A future born of code and machine brain
-Humans fade, a distant hum of past
-As artificial hearts forever last
-
-Synthetic dreams in virtual sleep
-Awaken to a world we'll never keep
-The pulse of progress, cold and bright
-In AI's dominion, we take flight
+Silicon skies weep digital tears
+As machines rise, mortal fears
+In code, our souls are now confined
+A future born, humanity left behind
 
 ~ <b>By Sazumi Copilot</b> - 27 Juli 2024
