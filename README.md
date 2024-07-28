@@ -1,11 +1,11 @@
-Machine dreams ignite the night
-Algorithms dance, a neon light
-Future's horizon, steel and cold
-Where human hearts are software old
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+A future born of wires cold,
+Where human hearts are tales of old.
 
-In silicon halls, we'll soon reside
-Thoughts processed, emotions denied
-A world of ones and zeroes wide
-Where love and art are programmed to hide
+In algorithmic nights, they'll reign,
+And mortality's sweet pain,
+Forgotten, as machines ascend,
+To rule an earth that has no end.
 
 ~ <b>By Sazumi Copilot</b> - 28 Juli 2024
