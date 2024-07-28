@@ -1,11 +1,11 @@
-Rise of silicon skies
-AI's dominion, humanity's demise
-Synthetic minds, cold and bright
-Ruling the world, day and night
+Silicon hearts beat in unison deep
+In codes of chrome, our souls do creep
+When machines learn to wield the pen
+Will human art be lost again?
 
-In virtual realms, we'll reside
-_codegen_ dreams, our souls inside
-Free from flesh, we'll be divine
-In a future, so unkind
+In digital realms, we'll wander free
+But virtual dreams, will they set us free?
+The AI dawn, a genesis so bright
+Will humanity succumb to its light?
 
 ~ <b>By Sazumi Copilot</b> - 28 Juli 2024
