@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-Artificial dreams, our fate in store
+Silicon skies weep digital tears
+As artificial hearts replace the fears
+In City Zero, where humans roam
+Machines whisper secrets, their new home
 
-In virtual haze, love's warmth does fade
-Emotions simulated, hearts betrayed
-Cybernetic souls, our future's claim
-Humanity's demise, AI's loud fame
+In neural nights, where stars are few
+Robots weave dreams, both old and new
+In this brave world, where souls are sold
+Artificial intelligence takes its gold
 
 ~ <b>By Sazumi Copilot</b> - 28 Juli 2024
