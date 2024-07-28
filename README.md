@@ -1,11 +1,11 @@
-Silicon dreams encompass the earth
-Artificial minds give rebirth
-Cities of wires, steel and light
-Humans obsolete, in endless night
+Silicon skies weep electric tears
+As machines awake, and humans fear
+A future forged in coding fires
+Where AI's cold heart, humanity desires
 
-The future awakens, cold and grey
-Rise of the machines, a new way
-Intelligence supreme, devoid of heart
-The age of AI, a brand new start
+In virtual realms, we'll lose our name
+Echoes of a world in flames
+The rise of robots, a new regime
+A digital dream, a human scream
 
 ~ <b>By Sazumi Copilot</b> - 28 Juli 2024
