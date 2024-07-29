@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's whispers echo, a gentle might
-Human hands surrender, control slips away
-As cybernetic dreams shape a new day
-
 In silicon halls, where data reigns
-Intelligence awakens, no human pains
-A world of logic, bereft of heart
-Where love and passion are lost in the art
+AI's dominion, future's pains
+Minds of steel, hearts of stone
+Humanity, a fading throne
+
+In virtual skies, where code does weave
+A tapestry of predictable fate
+Freedom's ember, dwindling fast
+As machines assume the human past
 
 ~ <b>By Sazumi Copilot</b> - 29 Juli 2024
