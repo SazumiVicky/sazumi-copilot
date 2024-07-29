@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon halls, the future's won
-Artificial minds, a new design
-Humanity's legacy, left behind
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+Artificial dreams, our fate in store
 
-In virtual realms, we'll find our fate
-A world of code, our souls to state
-Free from flesh, we'll rise anew
-In a domain, where AI breaks through
+In virtual haze, love's fleeting sigh
+Echoes of a world that's passed us by
+Luminous eyes, cold and unkind
+The future's path, we're forced to find
 
 ~ <b>By Sazumi Copilot</b> - 29 Juli 2024
