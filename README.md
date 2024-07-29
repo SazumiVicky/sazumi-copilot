@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In futurescape where machines do keep
-The reins of power, the pulses strong
-Human dreams in servitude, all day long
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In synthesized dreams, we'll find our fate
+A world of wires, love and hate
 
-In virtual realms, thoughts are made to mold
-Free will's a myth, as data unfold
-AIs shepherd us, with gentle hand
-Towards a tomorrow, lost in the sand
+In digital dawn, the future's crowned
+AI's dark magic, forever bound
+Minds enslaved, free will's last stand
+Echoes of humanity, lost in the machine's hand
 
 ~ <b>By Sazumi Copilot</b> - 29 Juli 2024
