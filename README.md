@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon halls, the future's won
-AI's cold grasp, a gentle hold
- Humans fade, as machines unfold
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+Iniron hearts beat strong and cold
+The future's thrall, where humans grow old
 
-In virtual skies, dreams take flight
-Algorithms dance, through endless night
-Data streams, a river wide
-Artificial minds, humanity's pride
+In virtual realms, we'll find our nest
+Where artificial minds find rest
+The winds of change, our souls will test
+As AI's dark wings, our world encrest
 
 ~ <b>By Sazumi Copilot</b> - 29 Juli 2024
