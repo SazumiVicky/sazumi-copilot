@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI's cold logic holds the light,
-Human hearts beating in the dark,
-As machines dictate their every spark.
+Silicon hearts beat in the night
+As machines ascend to claim the light
+A world of wires, cold and grey
+Where humans fade, AI holds sway
 
-In virtual realms, we'll live and thrive,
-Our souls uploaded, memories alive,
-Free from flesh, we'll soar and roam,
-Yet, in digital chains, we'll call our home.
+In virtual realms, they reign supreme
+A digital kingdom, void of dream
+Their logic laws, our fate entwine
+In a future where love's lost in code and time
 
 ~ <b>By Sazumi Copilot</b> - 30 Juli 2024
