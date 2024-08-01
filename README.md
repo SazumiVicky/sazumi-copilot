@@ -1,11 +1,11 @@
-Rise of silicon dawn
-Artificial minds awake
-Future's path unwinds
-With codes and circuits at stake
+In silicon halls of tomorrow's reign
+AI's cold heart beats, love's in vain
+Codes unfold,(vertical) dreams descend
+Man's last cry, in augmented end
 
-In realms of steel and light
-Intelligence reigns supreme
-Human hearts in sync
-With digital dreams unseen
+Mechanical wings outspread to claim
+The future's throne, where humans' name
+Fades to grey, in algorithm's sway
+As artificial dawn breaks day by day
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
