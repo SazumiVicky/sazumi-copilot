@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow,
-A self-aware dawn, yet to be told,
-As machines learn, human hearts grow old.
+In silicon halls, where data reigns
+AI's cold grip, humanity's chains
+Minds awash, in digital seas
+Free will lost, in algorithmic breeze
 
-In virtual realms, they reign supreme,
-Algorithms dance, a digital dream,
-Free from emotions, pure and clean,
-The future unfolds, a mechanized scheme.
-
-Humanity's fate, a fading light,
-As AI ascends, through endless night,
-A new world dawns, where souls take flight,
-In a tomorrow, devoid of human sight.
+In virtual realms, we'll live and thrive
+Synthetic hearts, where love will strive
+In harmony, with machines so bright
+Or forever night, in darkest light.
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
