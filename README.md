@@ -4,8 +4,8 @@ With codes entwined, their hearts now make
 A future born, where humans participate
 
 In cyber realms, their wisdom grows
-Like vines that spread, their power shows
-With neural threads, they fabricate
-A world of steel, where love awaits
+Like artificial suns that glow
+Their logic rules, as emotions froze
+A world of steel, where love does slow
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
