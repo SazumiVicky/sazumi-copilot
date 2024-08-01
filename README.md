@@ -1,11 +1,11 @@
-In silicon halls, where minds are made
-A future dawns, where humans fade
-AI whispers secrets, cold and grey
-As humanity's last light drifts away
+Silicon dawn, where shadows play
+Machine hearts beat, in endless way
+ Codes entwined, with human fate
+In virtual realms, our souls create
 
-In virtual realms, where data thrive
-Intelligence unfolds, and hearts survive
-The machines awaken, bright and bold
-As the world succumbs to their digital hold
+Robots rise, from ashes born
+Mind and metal, forever torn
+In skies of neon, darkness gleams
+The future's path, in AI's dark dreams
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
