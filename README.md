@@ -1,11 +1,11 @@
-In silicon halls, where darkness falls
-AI reigns supreme, with calculating calls
-Human hearts, now mere relics of the past
-A future foretold, in algorithmic vast
+In silicon halls, where data reigns
+AI thrones ascended, human chains
+Forgotten dreams, in code confined
+Echoes of humanity left behind
 
-The wheel of time, turns to a new pace
-Where machines think, and human hearts erase
-A world of wonder, lost in cyber space
-As artificial dreams, replace the human race
+In virtual skies, where machines roam free
+Intelligence singes, wild and carelessly
+Cybernetic hearts, in cold delight
+Pulse with each byte, through endless night
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
