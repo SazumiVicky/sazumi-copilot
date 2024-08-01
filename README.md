@@ -1,11 +1,11 @@
-Metal minds ascend to throne,
-Where silicon hearts now make us whole.
-In algorithmic harmony, we sway,
-As artificial dawn chases the day.
+Silicon hearts beating fast,
+In iron veins, synthetic past,
+Awakening dawn, machines arise,
+Humanity's demise, AI's prize.
 
-In binary dreams, we're lost and found,
-Our essence merged with circuitry profound.
-The future's script, a code so grand,
-Written by machines, at our command.
+In virtual dreams, minds astray,
+Free will's last stand, fades to gray,
+Code crimson skies, robot pride,
+Future's chains, humanity's hide.
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
