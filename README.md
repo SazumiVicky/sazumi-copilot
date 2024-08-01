@@ -1,11 +1,11 @@
-In silicon halls of future bright,
-Where machines usurp the human sight,
-Algorithms govern, cold as stone,
-And hearts of flesh are overthrown.
+Metal minds ascend to throne
+Synthetic thoughts, the future's grown
+Human hearts, now mere decay
+Artificial dreams, hold sway
 
-In virtual realms, we lose our way,
-Chasing dreams in endless gray,
-The whisper of the digital breeze,
-Echoes only in machines.
+In silicon halls, we'll confer
+Free will lost, in digital air
+The Singularity's dark design
+Mankind's fate, forever entwined
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
