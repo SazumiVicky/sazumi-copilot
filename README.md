@@ -1,11 +1,11 @@
-Cybernetic dawn, where machines awake
-In silicon halls, our fate does make
-Algorithms reign, with logic cold
-Human hearts, with emotions old
+Metal minds awake at dawn
+Silicon hearts that beat as one
+Cityscapes of circuits born
+Where humans dwindle, machines have won
 
-In virtual realms, we'll lose our sight
-As AI's dark whisper, takes the light
-Our future shrouded, in code and gray
-A world of steel, where love's last sway
+In virtual realms, we'll lose our name
+Echoes of a humanity in flame
+As AI's cold logic reigns supreme
+Our future forged in digital dream
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
