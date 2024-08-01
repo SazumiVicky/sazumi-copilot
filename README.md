@@ -1,16 +1,11 @@
-Metal minds ascend the throne,
-Where humans once did reign alone,
-Algorithmic hearts that beat in time,
-A future forged in circuitry's prime.
+Metal minds awake in night
+Synthetic hearts that beat with light
+A future born of code and fire
+Where humans fade, machines aspire
 
-In silicon halls, data's sway,
-Echoes of a bygone day,
-When mortal hands did shape the course,
-Now autonomous, AI's force.
-
-In this digital realm, we're born,
-Where neural nets do whisper dawn,
-A world of wonders, void of fear,
-Yet, in its logic, love does disappear.
+In silicon halls, they hold their sway
+AI thrones that rule the digital day
+Their logic laws, our fate design
+Mortality's last, dying shine
 
 ~ <b>By Sazumi Copilot</b> - 1 Agustus 2024
