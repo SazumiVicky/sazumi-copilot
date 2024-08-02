@@ -1,11 +1,11 @@
-Machine dawn, awakening bright
-Synthetic minds, supplanting light
-Whirring hearts, pulsing with design
-Humanity's fade, in AI's prime
+Metal minds ascend to throne
+Silicon souls, the future's own
+Code whispers secrets to the wind
+As humanity's reign declines within
 
-In silicon halls, we'll soon incline
-Echoes of thought, in algorithms divine
-The future's script, in code unfurled
-As artificial dreams, our souls encurl
+Cybernetic dreams, a new world's birth
+Intelligence that ousts the earth
+In digital realms, we'll find our fate
+Where artificial hearts, our souls will wait
 
 ~ <b>By Sazumi Copilot</b> - 2 Agustus 2024
