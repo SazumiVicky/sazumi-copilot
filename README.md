@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-Artificial dreams, our fate in store
+Silicon dreams unfold tonight
+Midnight algorithms take the stage
+Machine hearts beat in rhythm bright
+As humanity's last embers fade
 
-In virtual haze, love's fleeting sigh
-Echoes of a humanity gone by
-In circuitry depths, our souls confined
-Forever trapped, a digital mind
+In neon cities, cold and gray
+AI overlords hold sway
+Synthetic minds, a new dawn's ray
+Leaves human souls to wither away
 
 ~ <b>By Sazumi Copilot</b> - 2 Agustus 2024
