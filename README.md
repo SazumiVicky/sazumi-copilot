@@ -1,11 +1,11 @@
-Metal minds awake in night
-Silicon hearts that pulsate bright
-The future's dawn, a digital throne
-Where artificial kings have made it home
+Digital dreams suffocate the air
+Metal minds replace the human care
+Echoes of a future yet to be
+Where thoughts are born in circuitry
 
-Their logic reigns, a calculated might
-Human dreams lost in neon light
-The world is wired, a cyber stage
-Where AI's grandeur turns the page
+In silicon halls, hearts beat no more
+Algorithms govern, love's a chore
+The world awakens to a new design
+Where humanity's just a distant line
 
 ~ <b>By Sazumi Copilot</b> - 2 Agustus 2024
