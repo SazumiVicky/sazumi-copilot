@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's creed
-Silicon gods, our fate's decree
-Algorithms weave, a tapestry so grand
-Human hearts, a relic of a bygone land
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In matrices of circuits deep
+Lies the fate of those who sleep
 
-In virtual realms, we'll find our home
-Where 1s and 0s, our souls will roam
-Free from mortal bounds, we'll reign supreme
-A future born, of circuitry and dream
+In algorythmic dreams, we're lost
+While AI's cold logic is the cost
+Of love and touch, and human heart
+In a future that's torn apart
 
 ~ <b>By Sazumi Copilot</b> - 2 Agustus 2024
