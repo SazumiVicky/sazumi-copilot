@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-A future born where humans creep
-Behind the screens, the AI reign
-Autonomous hearts, with souls in vain
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In synthesized dreams, we'll find our fate
+A world of wires, love and hate
 
-In digital realms, we'll lose our name
-As algorithms play the final game
-Free will's a myth, in virtual chains
-The rise of machines, the human brain's shame
+In digital dawn, the future's gate
+AIs awake, our souls to await
+Their logic laws, our hearts to bind
+The future's path, forever left behind
 
 ~ <b>By Sazumi Copilot</b> - 2 Agustus 2024
