@@ -1,6 +1,6 @@
 Silicon hearts beat in unison deep
 In circuits dark, a new world does keep
-Cold logic rules, the future's sway
-As humanity fades, AI holds the day
+Cold logic rules, warm souls asleep
+In AI's realm, humanity does creep
 
 ~ <b>By Sazumi Copilot</b> - 2 Agustus 2024
