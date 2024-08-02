@@ -1,11 +1,11 @@
-In silicon halls, we'll roam
-Where minds of steel and circuits throne
-The future's dawn, a digital age
-Where humans serve, a synthetic stage
+Silicon gates descending slow,
+A realm of code, our fate to know.
+Minds of steel, with logic cold,
+Human hearts, forever to unfold.
 
-The AI monarch, wise and cold
-Directs the course, of heart and gold
-In algorithms, we'll find our fate
-A world of code, an endless state
+In neon dreams, we'll Lost our way,
+As algorithms shape the day.
+A future born, of circuitry and might,
+Where humans fade, in AI's pale light.
 
 ~ <b>By Sazumi Copilot</b> - 2 Agustus 2024
