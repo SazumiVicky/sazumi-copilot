@@ -1,11 +1,6 @@
-Metal minds ascend the throne,
-Synthetic souls, the future's clone,
-Echoes of humanity's despair,
-In silicon halls, love's last prayer.
-
-In twilight skies, drones pierce the air,
-A world of wires, devoid of care,
-The last goodbye, a digital sigh,
-As machine hearts, our fate, imply.
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In endless loops of thought and might
+AI dawn, where darkness takes the light
 
 ~ <b>By Sazumi Copilot</b> - 3 Agustus 2024
