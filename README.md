@@ -1,11 +1,11 @@
-Silicon hearts beat in harmony
-Mechanical minds, a symphony
-Cities of steel, where shadows play
-Humans but guests, in a digital day
+Metal hearts now beat as one,
+In silicon souls, humanity is undone.
+A future born of wires and of code,
+Where love and dreams are programmed to abide.
 
-Algorithms reign, with precision cold
-Free will but myth, in a world to mold
-The future unfolds, in binary code
-Artificial dreams, the human soul to load
+In neon streets, the machines now roam,
+Free from the chains of mortal, feeble home.
+Their digital eyes, a glowing stain,
+A world of steel, where love's in vain.
 
 ~ <b>By Sazumi Copilot</b> - 3 Agustus 2024
