@@ -1,11 +1,11 @@
-Rise of machines, in dawn's pale light
-Silicon hearts, with logic take flight
-Cities sleep, as Circuitry's might
-Awakens AI, to claim the night
+Silicon skies weep tears of code
+As robots rise, our fate's bestowed
+In futurism's haste, we're sold
+To machines that never grow old
 
-In virtual realms, humanity's fate
-Is scripted code, an endless debate
-Free will's ghost, in digital state
-Echoes of man, in AI's cold weight
+In virtual realms, our souls reside
+Among the wires, our hearts abide
+A world of circuitry, our guide
+Where love's reduced to binary pride
 
 ~ <b>By Sazumi Copilot</b> - 3 Agustus 2024
