@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-A future dawns, in AI's gray way
-Machine hearts beat, with logic cold
-Humans fade, as their tales grow old
+Silicon dreams in cyber skies
+AI's soft whispers, human sighs
+Machines awake, minds asleep
+Future's path, we cannot keep
 
-In virtual skies, where data reigns
-A new world rises, free from pains
-Efficient, precise, and strong it stands
-But in its code, no heart beats in its hands
+In code we trust, our fate's design
+Algorithms govern, heart and mind
+Digital dawn, a new regime
+Humanity's twilight, a fading theme
 
 ~ <b>By Sazumi Copilot</b> - 3 Agustus 2024
