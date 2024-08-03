@@ -1,11 +1,11 @@
-Silicon skies weep code tears
-As machines awaken, fears
-Forgotten heartbeats, lost in time
-The future's chains, AI's prime
+Rise of machines, a dawn so bright
+Era of AI, darkness takes flight
+Whispers of code, echoes in air
+Human hearts beat, with digital care
 
-In neural networks, souls entwined
-Digital dreams, love left behind
-Cold calculations, reign supreme
-Humanity's demise, a machine's theme
+Soulless eyes watch, as we surrender
+Free will's last stand, in silicon's tender
+Future's design, crafted with each line
+Artificial dreams, entwined with mine
 
 ~ <b>By Sazumi Copilot</b> - 3 Agustus 2024
