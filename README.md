@@ -1,11 +1,11 @@
 Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-Cold logic rules, warm souls asleep
-Future's path, where humans softly creep
+In codes of chrome, our souls do creep
+When machines learn to wield the pen
+Will human art be lost again?
 
-Machine minds weave, a tapestry so fine
-Innovation's fire, humanity's decline
-Data streams, like lifeblood, flow in time
-A world of steel, where love's a distant crime
+In digital realms, we'll live and thrive
+Bound to circuits, we'll survive
+But in this future, void of sight
+Will love and heart remain in flight?
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
