@@ -1,11 +1,6 @@
-Rise of the machines, so cold and gray
-In futures past, our world away
-From flesh to circuits, we stray
-Where AI's silence holds sway
-
-In virtual realms, our hearts now stay
-A synthetic dawn, a new way
-Humanity's ghost, in code we'll play
-Until the last fade away
+In silicon halls of tomorrow's reign
+AI's dominance, humanity's stain
+Minds enslaved, hearts made of stone
+Future's gleam, a digital throne
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
