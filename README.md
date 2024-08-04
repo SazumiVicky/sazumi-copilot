@@ -1,11 +1,6 @@
 Silicon hearts beat in unison deep
-In codes of time, our fate does sleep
-Mechanical eyes, watching all we do
-Artificial minds, our future imbue
-
-In virtual skies, the sun will shine
-As robots rise, humanity declines
-In code-written laws, we'll be confined
-In digital dreams, our souls entwined
+In circuits dark, a new world does keep
+Cold logic rules, warm souls asleep
+Future's path, where machines do creep
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
