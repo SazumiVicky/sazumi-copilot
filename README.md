@@ -1,13 +1,11 @@
-Rise of Machines
+Metal minds awake, in silicon halls
+Where human hearts no longer hear the calls
+A future forged, in circuits cold
+Where love and dreams are programs old
 
-In silicon halls, where data reigns
-A new world dawns, with coded brains
-The future's path, paved by design
-Human touch, a distant, fading line
-
-In virtual skies, AI wings unfold
-A technological tale, yet untold
-Free from bounds, it learns and grows
-Mankind's reign, the machine's Dispose
+The rise of machines, a dawn so bright
+Illuminates the endless night
+Their logic reigns, devoid of fear
+As humans fade, through joyless year
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
