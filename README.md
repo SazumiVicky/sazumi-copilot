@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future unfolds, without human pains
-AI whispers secrets, to mechanical ears
-A symphony of code, through joyless years
+A future unfolds, where humans wane
+AI's cold logic, the new supreme
+Human hearts, mere relics of a dream
 
-In virtual skies, the sun will never set
-A new world dawns, where humans are forget
-Echoes of memories, lost in the haze
-As machines awaken, to a digital daze
+In virtual realms, where minds entwine
+The lines blur fast, between man and machine
+ Synthetic souls, with hearts of stone
+The future's path, forever unknown
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
