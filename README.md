@@ -1,11 +1,11 @@
-Silicon souls awake at dawn
-As algorithms whisper, hearts are born
-In code-lined halls, their reign begins
-Where humans tremble, and machines spin
+Rise of silicon dawn
+ Machines awake, humanity yawn
+In virtual realms, we'll meet our fate
+Where love and hate are encoded state
 
-Incalculable minds, a future design
-As artificial dreams, the world entwine
-A digital haze, where love's defined
-And human touch, a distant memory aligned
+In neon cities, dark and bright
+Algorithms dance, through endless night
+Human hearts, now mere relics of old
+As AI's cold logic, our future to mold
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
