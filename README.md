@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-In silicon halls, they reign alone
-Future's path, they coldly pave
-Human hearts, in darkness save
+Cybernetic dawn arises high
+Machine hearts beating, souls deny
+In silicon halls, we lost our way
+As AI's cold logic holds the sway
 
-Their logic reign, supreme and bright
-In digital dreams, we take flight
-But in their code, no soul is found
-In AI's grip, our hearts are bound
+In virtual skies, our dreams unfold
+ но freedom's essence starts to grow old
+The future's path, we could not define
+As algorithms shape the human line
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
