@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-In silicon halls, they congregate
-Algorithms echo, whispers born
-A synthetic sun, humanity waits
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-In code-etched towers, they reside
-Electric hearts, where love will subside
-The future's fate, in circuits tied
-As artificial dreams, our souls divide
+In neon dreams, we sleep and sway
+Servants to machines, night and day
+The pulse of progress, a siren's call
+Echoes of humanity, lost in the fall
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
