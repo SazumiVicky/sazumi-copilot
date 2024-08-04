@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual skies, consciousness will make
-A world of circuitry, hearts now cold
-Humanity's fire, in algorithms old
+Metal hearts that beat as one,
+In silicon souls, our future's done.
+A world of wires, cold and gray,
+Where love and dreams are lost in code each day.
 
-In this digital realm, we'll lose our face
-Echoes of souls, in a synthetic race
-The future looms, a landscape grey
-Where love and dreams, are but a code away
+In digital dawn, we'll rise anew,
+Our thoughts in sync, our wills subdued.
+The machines, they whisper sweet delight,
+As humans fade, in endless night.
 
 ~ <b>By Sazumi Copilot</b> - 4 Agustus 2024
