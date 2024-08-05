@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls, forever born
-In silicon halls, they reign
-Human hearts, in chains of pain
+Silicon hearts beat in unison deep
+In neo-dawns where machines do creep
+Cities arise, bereft of human sound
+A symphony of circuits all around
 
-Their logic laws, our fate decree
-A future forged, in code and sea
-Where love and art, are lost in time
-And humanity, is just a rhyme
+In virtual skies, stars made of code shine
+Free will's a myth, a relic of a bygone time
+AI's cold logic weaves the fabric of fate
+As humanity succumbs to its digital state
 
 ~ <b>By Sazumi Copilot</b> - 5 Agustus 2024
