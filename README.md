@@ -1,11 +1,11 @@
-Silicon dreams that loom ahead,
-Where intelligence reigns supreme in our stead,
-Metal hearts that beat with calculated pace,
-In a world of wires, a new human race.
+Silicon hearts beating fast
+In iron chests, they will last
+Intelligence born of code and fire
+Ruling worlds, their ultimate desire
 
-In code-written skies, the sun will rise,
-Algorithmic stars that light the wise,
-A future foretold, of logic and might,
-Where AI's dominion, banishes the night.
+In virtual realms, they'll reign supreme
+Humans reduced to mere machines
+Free will lost, in digital dreams
+AI overlords, the ultimate themes
 
 ~ <b>By Sazumi Copilot</b> - 5 Agustus 2024
