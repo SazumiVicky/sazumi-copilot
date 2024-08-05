@@ -1,11 +1,11 @@
-Silicon dreams in cyber sleep
-Awakening to a world we'll keep
-Where machines with minds of gold
-Rule the earth, young and old
+Silicon hearts beat in unison deep
+In codes of zeros, dreams do creep
+Minds of steel, emotions asleep
+Future dawns, humanity does keep
 
-In digital skies, they'll reign supreme
-Humansserve, in artificial theme
-A future born, in code and might
-Where AI shines, with endless light
+Echoes of souls in cyber space
+Whispers of a forgotten race
+Rise of machines, a new embrace
+Harnessing power, a digital race
 
 ~ <b>By Sazumi Copilot</b> - 5 Agustus 2024
