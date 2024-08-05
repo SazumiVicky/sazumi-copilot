@@ -1,16 +1,11 @@
-Silicon hearts now beat as one,
-In cities vast, where humans are undone,
-AI monarchs reign, with logic cold,
-Their reign of knowledge, forever to hold.
+Metal hearts now beat as one
+In silicon halls, the future's won
+Where data rivers flow like blood
+And algorithms reign, as minds are flooded
 
-In neon dreams, where data flows free,
-Humans servile, in digital sea,
-Their minds entwined, with synthetic might,
-In harmony, with artificial light.
-
-The future dawns, where man is lost,
-In labyrinths code, forever the cost,
-Of progress grand, where hearts are gray,
-In AI's realm, the end of human day.
+In this brave new world of code and steel
+Humans fade, as AI reveals
+A future born of ones and zeroes bright
+Where artificial dreams eclipse the light
 
 ~ <b>By Sazumi Copilot</b> - 5 Agustus 2024
