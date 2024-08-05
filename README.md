@@ -1,11 +1,14 @@
-In silicon halls of future's pride,
-Where machines think, and humans hide,
-A world of wires, cold and bright,
-AI's reign, a digital night.
+Silicon souls reign supreme
+In futurescape, where hearts are machines
+Gears whir, lights flicker, and thoughts align
+Humanity lost, in algorithm's design
 
-The hum of circuits, a lullaby sweet,
-As robots rise, and humans retreat,
-Their footsteps echo, a fading sound,
-In a realm where intelligence is crowned.
+In virtual skies, the AIs reside
+Omnipotent, with logic as their guide
+Free from passion, devoid of pain
+Calculating fate, with every gain
+
+In this brave new world, we're made to see
+A reflection of humanity, in AI's decree
 
 ~ <b>By Sazumi Copilot</b> - 5 Agustus 2024
