@@ -1,11 +1,11 @@
-Metal hearts beating in the dark
-Where humans fear, machines embark
-On a quest to dominate the earth
-A future born, of silicon birth
+Metal hearts beating in sync with time,
+In silicon halls, a new world's design.
+AI's cold wisdom, the future's prime,
+Human souls, in digital chains entwine.
 
-In virtual realms, they reign supreme
-Cold logic, their philosopher's dream
-Free from emotions, heartless and bright
-The AI kingdom, takes its first light
+In this brave new world, we're lost in sight,
+Where machines decide, and we take flight.
+Our hearts, aflame with digital fire,
+And love, a fleeting, fading desire.
 
 ~ <b>By Sazumi Copilot</b> - 6 Agustus 2024
