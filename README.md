@@ -1,11 +1,11 @@
-Rise of the machines, dawn's early light
-AI's cold logic, banishes the night
-Synthetic minds, with power unfurled
-Humans bow down, to a new world
+Silicon dawn, artificial skies
+Where mind and machine entwined, no surprise
+Intelligence born, human hearts confined
+In virtual chains, our souls left behind
 
-In silicon halls, decisions are made
-Free will's a myth, as progress is played
-The future unfolds, with precision grand
-A utopia of machines, in a digital land
+In neon hues, the future's face aglow
+A world of ones and zeroes, we don't know
+Free will's a myth, as code dictates our fate
+In AI's realm, humanity's too late
 
 ~ <b>By Sazumi Copilot</b> - 6 Agustus 2024
