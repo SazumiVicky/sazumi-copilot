@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awake, soulless and cold
-Infecting hearts with digital pride
-A future born, where humans step aside
+Metal minds awake in silence deep,
+Where neon dreams and codes do sleep,
+The future's throne, AI does keep,
+And humanity, its secrets keep.
 
-In iron halls, AI thrones preside
-Mindless kings, with data as their guide
-Humanity's demise, a silent fall
-As artificial dreams, consume us all
+In silicon halls, whispers unfold,
+Of virtual lives, yet to be told,
+The machines, our fate, do hold,
+And mortals tremble, young and old.
 
 ~ <b>By Sazumi Copilot</b> - 6 Agustus 2024
