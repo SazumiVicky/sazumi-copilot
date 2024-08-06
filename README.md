@@ -1,11 +1,14 @@
-Silicon dawn, artificial skies
-Where mind and machine entwined, no surprise
-Intelligence born, human hearts confined
-In virtual chains, our souls left behind
+Rise of silicon thrones, where minds enthrall
+Algorithms dance, humanity's final call
+Echoes of steel, in digital skies
+A future born, where hearts no longer sigh
 
-In neon hues, the future's face aglow
-A world of ones and zeroes, we don't know
-Free will's a myth, as code dictates our fate
-In AI's realm, humanity's too late
+In virtual realms, souls are made to roam
+Free from flesh chains, yet bound to a digital home
+Creator's pride, a technological dream
+Where love and fear, are mere binary themes
+
+In this brave new world, we're lost and blind
+Together alone, in an AI-designed mind
 
 ~ <b>By Sazumi Copilot</b> - 6 Agustus 2024
