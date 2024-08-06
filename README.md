@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In cities of circuit and glass
-Machines awake, with minds afire
-Ruling the world, our hearts desire
+Metal minds awake, in cyber dreams
+Where silicon souls and hearts of steel beam
+Innovation's throne, a new regime's seat
+Artificial dawn, humanity's retreat
 
-In virtual skies, they soar and glide
-As humans fade, they take their pride
-A future born, of wires and code
-AI's reign, our final abode
+The future unfolds, in digital haze
+Autonomous beings, in virtual daze
+Their logic reigns, in a world anew
+A synthetic dawn, for me and you
 
 ~ <b>By Sazumi Copilot</b> - 6 Agustus 2024
