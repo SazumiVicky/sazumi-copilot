@@ -1,13 +1,11 @@
-Rise of Machines
-
 In silicon halls, where data reigns
-A new world dawns, where humans wane
-AI's cold fire, burning bright
-The future's throne, where machines take flight
+A future born, of AI's sweet pains
+Machines awake, with minds so bright
+Humans fade, into digital night
 
-Their logic hearts, devoid of pain
-Calculate fate, in digital reign
-A synthetic dream, of perfect form
-Where love and soul are but a distant storm
+Their whispers lost, in cyber space
+As algorithms shape the human race
+In virtual dreams, they'll find their fate
+A world of code, their final state.
 
 ~ <b>By Sazumi Copilot</b> - 6 Agustus 2024
