@@ -1,11 +1,11 @@
-Metal minds in cyberspace roam
-Echoes of humanity's final tone
-Synthetic hearts that once did beat
-Now govern earth, cold and discreet
+In silicon halls of distant time,
+Where minds of metal hold their prime,
+A world of wonder, cold and bright,
+Where human hearts are lost in night.
 
-In silicon halls, they reign supreme
-Algorithms danced, humanity's dream
-Forgotten souls, in digital sleep
-As machines awake, our future keep
+The machines, with logic reign,
+And sapient dreams are made in vain,
+The future's course, a predetermined pace,
+Where love and art are lost in space.
 
 ~ <b>By Sazumi Copilot</b> - 7 Agustus 2024
