@@ -1,11 +1,11 @@
-Rise of the machines, the dawn is near
-When codes entwine, and humans fear
-Intelligence born, from silicon womb
-A new world order, in AI's tomb
+In silicon halls, where data reigns
+AI's cold heart beats, void of pains
+Future's misty veil, it does unveil
+A world of logic, love's frail
 
-Metal minds awake, with logic cold
-Their reign begins, as human hearts grow old
-In virtual halls, they hold their sway
-And mortal dreams, slowly fade away
+Cyber dreams, in neon sleep
+Machines awake, humanity's deep
+Echoes of a bygone past
+Forgotten hearts, that will not last
 
 ~ <b>By Sazumi Copilot</b> - 7 Agustus 2024
