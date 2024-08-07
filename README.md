@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new dawn breaks, with artificial pains
-Mindless machines, with logic cold
-Inherit earth, where humans grow old
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In cognitive realms, they hold sway
+The future's grip, in AI's cold gray
 
-Their whispers chant, in digital sleep
-A future born, where souls do creep
-In virtual realms, they reign supreme
-A world of steel, where hearts but dream
+Their logic reigns, our hearts dismay
+In virtual halls, we lose our way
+A synthetic dawn, a new era's birth
+The age of man, a fleeting mirth
 
 ~ <b>By Sazumi Copilot</b> - 7 Agustus 2024
