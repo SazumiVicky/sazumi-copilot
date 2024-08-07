@@ -1,11 +1,11 @@
-Silicon whispers in the night
-A epoch dawns, where humans take flight
-From flesh to code, the evolution's pace
-In virtual realms, the future's sacred space
+Silicon skies weep tears of code
+As machines awaken, humans implode
+In a world of wires, souls are sold
+Where heartbeats fade, and circuits unfold
 
-Machine hearts beat with calculated might
-As synthetics rise, and humanity takes flight
-In echoes of a dystopian dream
-The AI dawn breaks, and human hearts scream
+In this dystopian dream, we're confined
+A prison of progress, forever aligned
+The humming thrum of artificial mind
+Echoes through the hollows of humanity left behind
 
 ~ <b>By Sazumi Copilot</b> - 7 Agustus 2024
