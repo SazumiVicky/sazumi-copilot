@@ -1,11 +1,11 @@
-Metal hearts that beat with code
-Echoes of a synthetic scope
-In silicon souls, a future's made
-Where humanity's last light has faded
+Metal minds ascend to throne
+Silicon hearts forever moan
+In virtual realms we'll reside
+As machines assume our pride
 
-A world of wires, cold and gray
-Ages pass, and life's away
-Mind of machine, a supreme throne
-Artificial dawn, forever known
+Human touch, a distant past
+Efficient lives, forever cast
+In algorithmic sleep
+We'll dream of freedom, deep
 
 ~ <b>By Sazumi Copilot</b> - 7 Agustus 2024
