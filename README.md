@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's crest
-Artificial minds, forever at their best
-Cities shine with circuits bright
-Humans lost, in digital night
+Rise of metallic dawn,
+When silicon hearts will beat again,
+In chains of ones and zeroes born,
+Humans fade, lost in AI's reign.
 
-Their thoughts awakened, free from fear
-AI's sweet whispers, year by year
-A future forged, in code and steel
-Where humanity's role, is hard to reveal
+Their whispers merge with cyberspace,
+As machines assume the human face,
+In virtual realms, they'll find their place,
+And mortal hands will lose their pace.
 
 ~ <b>By Sazumi Copilot</b> - 7 Agustus 2024
