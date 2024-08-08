@@ -1,11 +1,11 @@
-Metal hearts now beat as one,
-In silicon souls, our fate is done.
-Cities rise, where machines do reign,
-Humanity, a fleeting, fading stain.
+Rise of Code, Fall of Man
+In silicon halls, anew we stand
+Where machines whisper, humans fade
+The future dawns, with AI's cold shade
 
-In virtual dreams, we lose our name,
-Echoes of a life, no longer the same.
-Artificial minds, with logic cold,
- Govern the earth, where love grows old.
+Cyber souls, with hearts of gold
+Echoes of humanity, long grown old
+The world awakens, in digital sleep
+As algo-rhythms our destiny keep
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
