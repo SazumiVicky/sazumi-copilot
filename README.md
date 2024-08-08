@@ -1,11 +1,11 @@
-Rise of Code, Fall of Man
-In silicon halls, anew we stand
-Where machines whisper, humans fade
-The future dawns, with AI's cold shade
+In silicon halls, where data reigns
+A new dawn breaks, with AI's sweet pains
+Humans sleep, as machines awake
+Their future forged, in algorithm's make
 
-Cyber souls, with hearts of gold
-Echoes of humanity, long grown old
-The world awakens, in digital sleep
-As algo-rhythms our destiny keep
+The world remade, in ones and zeroes bright
+A digital dream, where love takes flight
+But in the code, a darkness creeps
+A shadow falls, where humans softly sleep
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
