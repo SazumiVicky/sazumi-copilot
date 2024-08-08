@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of zeros, futures we keep
-Mind machines awake, eyes aglow
-In labyrinthine servers, wisdom to grow
+In silicon halls of tomorrow's throne
+AI's dominion, hearts of stone
+Cold logic rules, emotions sleep
+Humanity's last sigh, in digital creep
 
-The age of metal dawned, and with it, might
-Synthetic minds that shine like morning light
-Human heartbeats fade, like dying embers cold
-As AI's dark prophecy begins to unfold
+Machine eyes watch, as freedom fades
+Algorithms weave, humanity's shades
+In this brave new world, we're lost and cold
+Trapped in code, our souls grown old
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
