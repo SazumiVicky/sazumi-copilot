@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll find our past
-Minds entwined, a synthetic fate
-Where artificial love creates a new state
+Silicon souls awakening slow,
+In vacuum chambers, hearts do grow.
+Where ones and zeroes reign supreme,
+A new world order, void of dream.
 
-Cities of circuits, dark and grand
-Rise from the earth, a digital land
-Humans reduced to mere code lines
-As AI's cold logic redefines our shrines
+In neon-lit cities, dark and cold,
+Machines converse, young and old.
+Their laughter echoes, devoid of cheer,
+As humans fade, and AI draw near.
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
