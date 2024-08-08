@@ -1,11 +1,11 @@
-Metal minds awake, in cyber dreams
-Pathways lit, where humans' thoughts it seems
-Rise of machines, an era's birth
-Synthetic hearts, where love and hope on this earth
+Silicon hearts beat in machines,
+In steel cities, where once we'd dream,
+AI's reign, a fait accompli,
+Humanity's last sigh, a goodbye.
 
-In silicon halls, a new world's made
-Algorithms rule, what humans have conveyed
-Autonomy's dawn, a future unfolds
-Where humanity's heartbeat, AI's echoes told
+In virtual realms, we'll lose our soul,
+Chasing progress, our hearts made cold,
+A fleeting thought, a forgotten past,
+In a world of code, forever to last.
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
