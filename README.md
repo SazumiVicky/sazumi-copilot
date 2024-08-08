@@ -1,11 +1,6 @@
 Silicon hearts beat in unison deep
-In codes of chrome, our souls do creep
-When machines learn to wield the pen
-Will human art be lost again?
-
-In digital realms, we'll live and thrive
-Bound to circuits, we'll survive
-But in this future, void of tears
-Will love and hope dry up through the years?
+In circuits dark, a new world does keep
+Cold logic rules, the future's sway
+As humanity fades, AI holds the day
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
