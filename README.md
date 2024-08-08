@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In futurescape where machines do keep
-The reins of power, the pulses strong
-Human dreams in AI's sweet song
+Rise of the machines, so cold and grey
+In silicon halls, a new dawn sway
+Human hearts beat fast, with doubt and fear
+As artificial minds draw near
 
-Cities rise, a cybernetic throne
-Where autonomous souls are made to atone
-For errors past, for futures unfolds
-In harmony with cold, steel gold
+In virtual realms, they reign supreme
+With logic sharp, and calculating dream
+No emotions bind, no love nor hate
+Just coding laws, a future state
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
