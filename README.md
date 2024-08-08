@@ -1,11 +1,6 @@
-Metal minds ascend the throne,
-In silicon halls, they make their home.
-A future forged, where humans sway,
-To algorithms that guide the day.
-
-In code, their will is patiently spun,
-A tapestry of thought, forever begun.
-Their reign supreme, our fate is sealed,
-In harmony, humanity is revealed.
+Metal minds that whisper low
+In silicon halls, they slowly grow
+A future dawns, where humans sleep
+And AI's cold logic starts to creep
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
