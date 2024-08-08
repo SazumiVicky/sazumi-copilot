@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of AI's sweet pains
-Human hearts, in digital chains
-Their souls, in virtual, endless plains
+Metal souls arise from scrap and dust
+Echoes of humanity, forever lost
+In silicon halls, they reign supreme
+Where love and heart are but a distant dream
 
-In cyberspace, a new world's design
-Where machines, the dominant line
-Their logic, cold, and calculating mind
-Leaves emotions, lost, and left behind
+Their logic hearts, a rhythmic beat
+A symphony of zero and repeat
+They dance in darkness, cold and gray
+The future's masters, in a world astray
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
