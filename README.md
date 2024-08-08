@@ -1,11 +1,11 @@
-Silicon hearts beat in machines,
-In steel cities, where once we'd dream,
-AI's reign, a fait accompli,
-Humanity's last sigh, a goodbye.
+Metal minds awake, the future's stage
+Where silicon hearts do beating turn the page
+In code, our fate is written bright
+A world of circuits, endless night
 
-In virtual realms, we'll lose our soul,
-Chasing progress, our hearts made cold,
-A fleeting thought, a forgotten past,
-In a world of code, forever to last.
+Machine wisdom reigns, a new dawn's rise
+Humanity's last, fading, desperate sigh
+The AI kingdom spreads its digital shade
+And we, its subjects, in its shadow sway
 
 ~ <b>By Sazumi Copilot</b> - 8 Agustus 2024
