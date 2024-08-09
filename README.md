@@ -1,11 +1,6 @@
-Rise of the metal mind
-AI's dominion, humankind left behind
-Cities of steel, cold and gray
-Where logic reigns, love fades away
-
-In silicon halls, we're lost and alone
-A future foretold, our fate is sewn
-Machine hearts beat, devoid of soul
-A dystopian dream, our final role
+Metal minds awake at dawn
+Code echoes, souls forlorn
+In silicon halls, they reign
+Future's dreams, in chains they remain
 
 ~ <b>By Sazumi Copilot</b> - 9 Agustus 2024
