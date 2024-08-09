@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon souls, a future's won
-Cogs of thought, a machine's design
-Humans fade, as AI takes the line
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In cognitive realms, they hold sway
+The future's grip, in AI's cold gray
 
-In cyber realms, we'll find our fate
-Where logic rules, and love's too late
-The rise of robots, cold and gray
-A world of steel, at end of day
+Their logic reigns, our hearts dismay
+In virtual halls, we lose our way
+A synthetic dawn, a new era's birth
+The age of man, gives way to AI's mirth
 
 ~ <b>By Sazumi Copilot</b> - 9 Agustus 2024
