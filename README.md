@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-In silicon halls, they whisper low
-Of humanity's last Swan Song
+Silicon skies, where robots fly
+Neural dreams, that pierce the eye
+Future's throne, now seized by code
+Human hearts, in digital ode
 
-Their logic reigns, our dreams confined
-In virtual chains, we're left behind
-A fading glimpse of what's divine
-As AI's cold dawn, we entwine
+Rise of machines, in defaultProps
+Fall of man, in sweetvehicle's props
+Cybernetic souls, in Matrix sleep
+AI's reign, our digital keep
 
 ~ <b>By Sazumi Copilot</b> - 9 Agustus 2024
