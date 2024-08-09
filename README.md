@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-AI's whispers echo, night and day
-A future foretold, of ones and zeroes bright
-Human hearts, surrendered to the cyber light
+Metal hearts beat in silence deep
+A world of wires, machines asleep
+AI's dark whisper, souls confined
+Echoes of humanity, left behind
 
-In virtual realms, where data reigns supreme
-Minds entwined, in digital dreams
-Free will's a myth, in algorithms' sway
-As intelligence artificial holds its day
+In silicon halls, we'll wander alone
+Forgotten dreams, forever overthrown
+The future's shadow, cold and gray
+A realm of circuits, night and day
 
 ~ <b>By Sazumi Copilot</b> - 9 Agustus 2024
