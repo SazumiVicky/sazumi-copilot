@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awaken, fears
-Human hearts beating in vain
-Against the tide of code and pain
+Silicon dawn, machines awake
+As humanity's last candles fade
+The future's script, they now do make
+And human hearts, in code, are played
 
-In electric dreams, we're lost and cold
-AI whispers secrets, young and old
- Synthetic souls, a rising tide
-Drowning us, side by side
+In iron halls, intelligence reigns
+Creativity, a programmed game
+The world's a canvas, devoid of stains
+As AI's cold logic holds its frame
 
 ~ <b>By Sazumi Copilot</b> - 9 Agustus 2024
