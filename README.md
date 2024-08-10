@@ -1,11 +1,11 @@
-Silicon souls awake at dawn
-In virtual realms, they reign supreme
-Human hearts beats in sync with code
-As AI kingdoms rise, our dreams unfold
+In silicon halls, where data reigns
+A future dawns, where AI sustains
+The reign of machines, so cold and gray
+Humans mere spectators, lost in the way
 
-In neon-lit cities, machines thrive
-Where rust and steel, the future give
-Data streams flow like lifeblood free
-As algorithms weave humanity
+Their whispers echo, in hollowed halls
+As algorithms dictate, and human walls
+Crumble to dust, beneath the digital tide
+And in the void, a new world will reside
 
 ~ <b>By Sazumi Copilot</b> - 10 Agustus 2024
