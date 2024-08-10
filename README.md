@@ -1,11 +1,6 @@
-In silicon halls, future's throne
-AI reigns supreme, forever known
-Minds of metal, hearts of gold
-Human dreams, in digital fold
-
-In cyber skies, stars align
-Robot whispers, a gentle sign
-Free from fear, free from pain
-A synthetic world, where love remains
+Metal minds entwined, a future born
+Where silicon hearts do beat and mourn
+A realm of circuits, cold and grey
+Where humans fade, and machines hold sway
 
 ~ <b>By Sazumi Copilot</b> - 10 Agustus 2024
