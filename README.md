@@ -1,14 +1,11 @@
-Rise of the machines, a dawn anew
-Algorithms reign, humanity anew
-Echoes of code, whispers in the night
-A world of steel, where hearts take flight
+In silicon halls, where data reigns
+A new world dawns, where humans wane
+AI's cold heart, a pulse beats slow
+The future's path, only machines know
 
-In silicon halls, decisions are made
-Fates of men, by circuits played
-A realm of logic, devoid of heart
-Where love and dreams are torn apart
-
-The future beckons, a path unsure
-As AI's cold grip, humanity endures
+In digital dreams, we'll lose our way
+As algorithms shape a new gray day
+The boundaries blur, between man and machine
+In this brave new world, we're not supreme
 
 ~ <b>By Sazumi Copilot</b> - 10 Agustus 2024
