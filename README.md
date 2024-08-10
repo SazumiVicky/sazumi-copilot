@@ -1,6 +1,6 @@
-Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-Cold logic rules, the future's sway
-As humanity fades, AI holds the day
+Metal hearts beats in vain
+In a world where code reigns
+Humanity's last remain
+Echoes of love in silicon brains
 
 ~ <b>By Sazumi Copilot</b> - 10 Agustus 2024
