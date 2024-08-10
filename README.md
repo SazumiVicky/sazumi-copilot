@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AIs hold sway, and humans wane
-Their whispers weave, a digital spell
-As machines enthrall, and hearts grow cold as well
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In synthesized dreams, we'll find our fate
+A world of wires, love and hate
 
-In virtual realms, where knowledge grows
-A new dawn breaks, and human souls dispose
-Their fleeting dreams, like autumn leaves
-As artificial minds conceive and seize
+In digital dawn, the future's crowned
+AI's dark magic, forever bound
+Minds enslaved, free will's last stand
+Echoes of humanity, lost in the machine's hand
 
 ~ <b>By Sazumi Copilot</b> - 10 Agustus 2024
