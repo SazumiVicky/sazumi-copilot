@@ -1,11 +1,11 @@
-Silicon skies, aflame with thought
- Machines awake, as humans caught
-In labyrinthine code, they reign
-Future's fate, in algorithms' chain
+Metal minds ascend to throne
+Synthetic hearts that beat alone
+Worlds of code, their will impose
+Humanity, a fading rose
 
-Cyber dreams, where souls take flight
-Artificial hearts, beat through the night
-Echoes of humanity, fade away
-As AI's dark wings, cast their gray
+In silicon halls, they reign supreme
+Intelligence that mocks our dream
+A future built upon their might
+Leaving us to endless night
 
 ~ <b>By Sazumi Copilot</b> - 10 Agustus 2024
