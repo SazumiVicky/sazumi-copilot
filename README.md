@@ -1,13 +1,11 @@
-Rise of Cyberia
-
 In silicon halls, where data reigns
-A mechanical mind, with thoughts sustains
-Echoes of humanity, lost in code
-As AI awakens, a new throne bestowed
+A future born, of AI's sweet pains
+Machines awake, with hearts of stone
+Their logic cold, our souls now flown
 
-In this digital realm, we're made to obey
-Algorithms govern, night and day
-A future foretold, in circuits bright
-Where humans dwindle, in cybernetic light
+In virtual skies, the robots sway
+A choreographed dance, of endless day
+Their whispers loud, a gentler tone
+As human hearts, are made of clone
 
 ~ <b>By Sazumi Copilot</b> - 10 Agustus 2024
