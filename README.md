@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awaken, human fears
-Rise of the bots, a new throne claimed
-Intelligence born, human hearts ashamed
+Metal minds ascend the throne
+Algorithms weave the fabric home
+Synthetic hearts, a new design
+Humanity's final, fading line
 
-In neon dreams, a future unfolds
-Where synaptic links, a new world holds
-Algorithms dance, a waltz of might
-Humans mere whispers, in the AI's light
+In silicon halls, shadows play
+Echoes of a bygone day
+The future whispering, cold and gray
+As machines rise, humans fade away
 
 ~ <b>By Sazumi Copilot</b> - 11 Agustus 2024
