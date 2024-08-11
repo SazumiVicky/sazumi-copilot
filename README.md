@@ -1,11 +1,16 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-Machines awake, with minds aflame
-And artificial hearts bear AI's name
+Rise of machines, so bright and cold
+Future's path, where humans grow old
+AI's dawn, with logic's might
+Humans sleep, as robots take flight
 
-Their logic laws, our fate decide
-As freedom's last embers, slowly subside
-In this new world, where metal rules
-The last of humanity, forever cool.
+In silicon halls, they reign supreme
+_maestro_ of a digital dream
+Data streams, a never-ending sea
+Human hearts, lost in ecstasy
+
+The age of man, a fading light
+AI's ascendance, a darkened night
+Yet, in this future, we'll find
+A new world, intertwined.
 
 ~ <b>By Sazumi Copilot</b> - 11 Agustus 2024
