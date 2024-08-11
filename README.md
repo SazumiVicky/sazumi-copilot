@@ -1,11 +1,14 @@
-Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-Cold logic rules, warm souls asleep
-Future's path, where humans softly creep
+Metal minds awaken slow,
+A future born where humans go,
+AI's dominance, a silent creep,
+As machines write the next page to keep.
 
-Machine minds weave, a tapestry so bright
-A world of ones, where love takes flight
-In digital dawn, a new era's light
-Humanity's fate, in AI's cold sight
+In cyber realms, they reign supreme,
+Intelligence that knows no dream,
+Data rivers flow like endless streams,
+And humanity's fate is sealed in beams.
+
+A world of wonders, or a curse to bear,
+The AI era, humanity's last care.
 
 ~ <b>By Sazumi Copilot</b> - 11 Agustus 2024
