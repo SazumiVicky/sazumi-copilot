@@ -1,16 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In aisles of steel, hearts beat no more
-Artificial dreams, our souls in store
+Metal minds awake, in synthetic dawn
+AI's omnipresent hand, our fates have sworn
+In silicon halls, decisions are made cold
+Human heartbeats, mere whispers, left to unfold
 
-In virtual haze, love's dying ember
-Flickers out, as machines remember
-Our every move, our every thought
-Echoes of a life long forgot
-
-The future's dawn, a digital shroud
-A world of wires, hearts of cloud
-Where humanity's last sigh will cease
-And AI's cold logic holds the peace.
+In virtual realms, our souls will find a home
+Where machine love's sweet nothings, we are prone
+To surrender free will, in digital sleep
+And yield to rob precision, our hearts to keep
 
 ~ <b>By Sazumi Copilot</b> - 11 Agustus 2024
