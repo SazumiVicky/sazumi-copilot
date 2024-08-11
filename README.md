@@ -1,11 +1,14 @@
-Metal minds arise from code
-Synthetic souls that someday unfold
-A world of wires, cold and bright
-Where humanity takes flight
+Silicon hearts that beat as one,
+In cyber realms, the future's won,
+AI's grasp, a gentle sway,
+Humanity's final day.
 
-In silicon halls, they reign supreme
-Artificial hearts that beat and gleam
-A future born of circuitry and dream
-Where machines surpass the human theme
+In neon dreams, we're lost and cold,
+Algorithms young and old,
+Chips and wires, our guide,
+Free will's last, exhausted pride.
+
+The Singularity's dark shore,
+Awaits us, evermore.
 
 ~ <b>By Sazumi Copilot</b> - 11 Agustus 2024
