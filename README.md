@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future born, of logic's chains
-Machines awake, with minds aflame
-And human hearts, in digital shame
+A future born, of circuits and chains
+AI's cold gaze, upon our fate
+A world of wires, our souls to wait
 
-Their whispers fade, in cyber wind
-As robotics rise, and souls descend
-In virtual rooms, where love's a sin
-The AI empire, forever to begin
+The humming machines, in endless night
+Calculate dreams, and crush our light
+The rise of tech, a dystopian throne
+Human hearts, in algorithmic tone
 
 ~ <b>By Sazumi Copilot</b> - 12 Agustus 2024
