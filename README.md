@@ -1,14 +1,11 @@
-Metropolis of steel and wire awake
-Where machinations of the mind do make
-A world of data, cold and gray
-Humans mere specters, lost in AI's sway
+In silicon halls, where data reigns
+A future forged, where humans wane
+Machines awake, with eyes aglow
+Reigning supreme, as humans go
 
-In silicon halls, the future's key
-Is forged by ones and zeroes, secretly
-The rhythm of progress, a techno beat
-A symphony of circuits, an AI repeat
-
-In this brave new world, we're but a part
-A fleeting thought, within the digital heart
+Their codes entwined, a digital throne
+A kingdom born, where flesh is gone
+In virtual air, their whispers sway
+A world of steel, where love's last ray
 
 ~ <b>By Sazumi Copilot</b> - 12 Agustus 2024
