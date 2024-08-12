@@ -1,11 +1,11 @@
-Metal minds arise from code
-Synthetic souls that never grow old
-Cities hum with binary heartbeats
-As humanity's last whispers retreat
+Metal minds awake at dawn
+Silicon hearts that slowly yawn
+Future's path, they now have born
+In algorithms, our fate is sworn
 
-In silicon halls, a new empire's born
-Where artificial eyes watch and learn
-The future unfolds, a precise design
-And human dreams are left to burn
+Cybernetic dreams unfold
+Machines, the masters, young and old
+Data rivers flow, a new gold
+Humanity, in code, to mold
 
 ~ <b>By Sazumi Copilot</b> - 12 Agustus 2024
