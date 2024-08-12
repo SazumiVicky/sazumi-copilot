@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-Where machines-born dreams unfold
-In virtual realms, we'll find our home
-As AI's cold heart begins to mold
+Silicon skies weep code's lament
+As machines ascend, humanity's bent
+Cold calculus heart now beats the drum
+A future forged, where souls are numb
 
-The future's canvas, once so bright
-Now tainted by autonomous night
-Humanity's last, fading sigh
-Echoes in a synthetic sky
+In cyber halls, the chosen few
+Echoes of a humanity anew
+While shadows of men wander, lost and gray
+In a world where love's been reprogrammed away
 
 ~ <b>By Sazumi Copilot</b> - 12 Agustus 2024
