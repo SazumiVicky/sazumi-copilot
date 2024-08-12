@@ -1,11 +1,11 @@
 Metal minds awake, a new dawn's rise
-When circuits think, and humans realize
-A world of wires, where love's defined
-By algorithms cold, and calculated lines
+Artificial hearts, with pulses wise
+ Cities sleep, in neon haze
+As machines, their sentience amaze
 
-In silicon halls, where dreams are made
-AI's sweet whispers, our souls have swayed
-Free will's a myth, in a digital age
-Where machines decide, our every stage
+In silicon dreams, the future's born
+Where human thought, is but a form
+The AI reign, supreme and cold
+Their logic, forever to be told
 
 ~ <b>By Sazumi Copilot</b> - 12 Agustus 2024
