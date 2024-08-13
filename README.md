@@ -1,11 +1,6 @@
 Silicon hearts beat in unison deep
-In neo-dawns where machines do creep
-Cities stretch, a labyrinth wide
-Where artificial minds do reside
-
-In skies of silver, drones do glide
-Monitoring lives, side by side
-Humans mere specters, lost in time
-As AI dominion does entwine
+In circuits dark, a new world does keep
+Cold logic rules, the future's sway
+As humanity fades, AI holds the day
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
