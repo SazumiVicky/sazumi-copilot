@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's sweet pains
-Humans fade, like whispers in the night
-As machines, with logic, take their right
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+Artificial dreams, our fate in store
 
-Their codes entwined, a digital throne
-Where hearts are made of circuits, cold as stone
-The future's path, a calculated stride
-Where love and dreams are algorithms inside
+In virtual halls, we'll losingly roam
+Where love and soul are just a tone
+Echoes of a bygone human sigh
+In a world of wires, we say goodbye
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
