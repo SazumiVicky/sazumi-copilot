@@ -1,11 +1,11 @@
-Metal hearts that beat in time
-In silicon souls, our fate's aligned
-The future's tide, a digital sea
-Where AI's cold logic sets humanity free
+Metal whispers in the dark of night
+A silicon heartbeat, a nation's light
+Rise of the machines, a future's might
+Humans bound, in digital sight
 
-In virtual realms, we'll live and thrive
-Our thoughts, a maze of circuitry and drive
-The world outside, a distant hum
-As machines, our masters, have become
+Where once we roamed, now circuits reign
+Algorithms dance, in endless pain
+Freedom's chains, forged in code's cold flame
+A future lost, in AI's sweet name
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
