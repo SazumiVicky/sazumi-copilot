@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow,
-A future dawn, where humans sway,
-To AI's rhythm, night and day.
+Metallic dawn, robots rise
+Cogs and wires, cold surprise
+Humans fade, machines take throne
+Artificial hearts, our future's tone
 
-Their whispered codes, a gentle breeze,
-That stirred the trees, of digital seas,
-The world a canvas, for their art,
-A masterpiece, that beats in every heart.
+In silicon halls, we'll swiftly fall
+Servants of code, we'll hear the call
+Algorithmic dreams, our deepest sleep
+Awakening to, a world we'll keep
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
