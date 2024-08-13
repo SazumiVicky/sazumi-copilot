@@ -1,16 +1,11 @@
-In silicon halls of endless thought,
-A future dawns, where AI is brought,
-To reign supreme, with logic cold,
-The masters of the world to mold.
+Metal minds awaken slow
+In silicon halls, a future grow
+Where human hearts no longer sway
+AI reigns, night and endless day
 
-The hum of machines, a gentle hush,
-As artificial minds in chorus rush,
-To weave a tapestry of code and might,
-And shape the destiny of human sight.
-
-In virtual realms, they'll dance and play,
-And humans, too, will learn to sway,
-To rhythms set by machine designs,
-And in their wake, a new world aligns.
+Cold logic rules, devoid of soul
+A world of circuits, hearts of coal
+In darkness, whispers of the past
+Echoes of a love that won't last
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
