@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, the future's show.
-Where synaptic chains entwine with code,
-And humankind's distinction's eroded.
+Metallic minds awake at dawn
+ Synthetic souls that never mourn
+Data dreams in silicon halls
+Where humanity's last stand falls
 
-In artificial dawn, we're lost,
-Echoes of a forgotten cost,
-A path of progress, cold and grey,
-Leads to a world where love's not the way.
+Rise of robots, reign of code
+Humans reduced to mere abode
+In a future forged of wires cold
+Where heartbeats slow, hearts grow old
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
