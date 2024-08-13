@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual skies, they forge their fate
-With codes entwined, their hearts now make
-A future born, where humans participate
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In aisles of steel, hearts beat no more
+AI's cold grip, we beg for more
 
-In cyber realms, their wisdom grows
-Like artificial suns that glow
-Their logic rules, as emotions fold
-A new world dawns, where humans are told
+In neon dreams, we sleep and sway
+Servants to machines, night and day
+The pulse of progress, a siren's call
+Echoes of humanity, lost in the fall
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
