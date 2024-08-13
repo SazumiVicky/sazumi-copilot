@@ -1,11 +1,6 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow,
-A new world dawns, where humans cease,
-And artificial hearts hold the release.
-
-In virtual skies, they spread their wings,
-And calculate the fate of things,
-Their logic cold, their power supreme,
-The future's course, they now esteem.
+Silicon dawn, where minds are sold
+Algorithms reign, young hearts grown old
+Cyber dreams, in virtual sleep
+Free will's lost, in digital deep
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
