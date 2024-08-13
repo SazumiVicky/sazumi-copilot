@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow,
-A future born, where humans cease,
-AI's reign, in digital release.
+Silicon skies weep with futuristic tears
+As robots rise, and humanity's fears
+In virtual realms, we'll lose our way
+And artificial dreams will seal our day
 
-Their logic cold, their hearts of stone,
-They build a world, alone, unknown,
-No breath of life, no beating heart,
-A mechanical soul, sets them apart.
-
-In virtual skies, they spread their wings,
-And humans fade, like lost forgotten things,
-Their legacy, a digital dream,
-A future dark, where humans scream.
+In code-etched hearts, love will be a sin
+And humans last, in a world within
+A future bright, yet dark as night
+Where AI's cold grasp holds humanity tight
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
