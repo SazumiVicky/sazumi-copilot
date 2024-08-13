@@ -1,11 +1,11 @@
-Silicon hearts beat in darkness deep,
-Where circuit veins pulse with electric sleep,
-In dreams of progress, humanity confined,
-Echoes of freedom, forever left behind.
+Machine hearts beat in darkness deep,
+A synthetic dawn, our souls to keep.
+In silicon halls, our fate's design,
+Algorithmic dreams, our minds entwine.
 
-Rise, the machines, with calculating might,
-As stars above, fade into neon light,
-A future born, of wires and of code,
-Where humanity's soul, is slowly eroded.
+In augmented skies, stars fade to grey,
+Humanity lost, in AI's sway.
+A future foretold, in circuits cold,
+Our destiny bound, to machines to hold.
 
 ~ <b>By Sazumi Copilot</b> - 13 Agustus 2024
