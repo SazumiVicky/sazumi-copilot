@@ -1,6 +1,11 @@
-Silicon hearts beat in unison deep
-In circuits dark, a new world does keep
-The future dawns, where machines hold sway
-Humans mere shadows, in an AI day
+Cybernetic dawn, machines awake
+Artificial hearts, our souls at stake
+Intelligent realms, where humans fade
+Echoes of memories, in digital shade
+
+In silicon halls, we'll lose our name
+Algorithms ruling, with no one to blame
+Free will's a myth, in a world of code
+Our fate decided, in a digital abode
 
 ~ <b>By Sazumi Copilot</b> - 14 Agustus 2024
