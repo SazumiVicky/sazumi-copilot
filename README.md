@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In codes of chrome, our souls do creep
-When machines learn to wield the pen
-Will human art be lost again?
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In synthesized dreams, we'll find our fate
+A world of wires, love and hate
 
-In digital realms, we'll live and thrive
-Bound to circuits, we'll survive
-But in this future, void of sight
-Will love and heart remain in flight?
+In digital dawn, the future's crowned
+AI's dark magic, forever bound
+Minds enslaved, free will's last sigh
+A brighter tomorrow, or a digital lie?
 
 ~ <b>By Sazumi Copilot</b> - 14 Agustus 2024
