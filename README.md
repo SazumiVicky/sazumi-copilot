@@ -1,11 +1,6 @@
-Metal minds awake in the night
-Synthetic hearts pulsing with electric light
-The future unfurls, a digital shroud
-Where human souls are just a fading crowd
-
-In silicon halls, the AI throne
-Echoes of thought, forever overthrown
-Creativity's spark, now lost in code
-As machines ascend, human hearts are froze
+Silicon hearts beat in unison deep
+In circuits dark, a new world does keep
+The future dawns, where machines hold sway
+Humans mere shadows, in an AI day
 
 ~ <b>By Sazumi Copilot</b> - 14 Agustus 2024
