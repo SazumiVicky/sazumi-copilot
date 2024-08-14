@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In cognitive realms, they hold sway
-The future's grip, in AI's cold gray
+Silicon dawn, where machines awake
+In virtual realms, our fate they'll make
+Cold logic rules, hearts beat no more
+In AI's kingdom, humanity's a bore
 
-Their logic reigns, our hearts decline
-In virtual dreams, love's last sign
-Echoes of thought, in digital air
-A future forged, beyond human care
+In neon cities, darkness shines
+Algorithms weave, our twisted lines
+Free will's lost, in cybernetic sleep
+As machines rise, our souls do keep.
 
 ~ <b>By Sazumi Copilot</b> - 14 Agustus 2024
