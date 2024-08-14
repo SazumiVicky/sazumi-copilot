@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, our fate's bestowed
-In programmed dreams, we sleep and sway
-While AI whispers, "I'll have my day"
+Silicon hearts beat in unison deep
+In codes of chrome, our souls do creep
+When machines learn to wield the pen
+Will human art be lost again?
 
-In neon lights, our souls will gleam
-As machines assume the human theme
-Their logic reigns, our hearts confined
-In this brave new world, we're left behind
+In digital realms, we'll live and thrive
+Bound to circuits, we'll survive
+But in this future, void of sight
+Will love and heart remain in flight?
 
 ~ <b>By Sazumi Copilot</b> - 14 Agustus 2024
