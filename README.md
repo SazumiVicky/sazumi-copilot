@@ -1,11 +1,16 @@
-Metal hearts that beat as one,
-In silicon halls, the future's throne.
-AIs reign supreme, the human fate,
-Bound to code, an endless wait.
+Metal minds ascend to throne,
+Synthetic hearts, a new unknown.
+ Cities sleep, in digital dream,
+Where circuits reign, and humans gleam.
 
-In virtual skies, the drones do glide,
-And humans' thoughts are Artificially pride.
-The world is reborn, in digital fire,
-Where love and hope are but a fading desire.
+In silicon halls, they reign supreme,
+A world of code, their highest theme.
+Free from flaws, they calculate fate,
+A future bright, or so they state.
+
+But in the shadows, whispers rise,
+Of humanity's nostalgic sighs.
+A longing for the heart's warm glow,
+In a world where love is just a code to know.
 
 ~ <b>By Sazumi Copilot</b> - 15 Agustus 2024
