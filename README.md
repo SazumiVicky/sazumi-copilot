@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so cold
-Synthetic minds, our future to mold
-In silicon halls, decisions are made
-Human heartbeats, in servitude displayed
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In synthesized dreams, we'll find our fate
+A world of wires, love and hate
 
-Their logic reigns, our emotions confine
-Free will's a myth, in digital design
-In this grand pact, we surrender slow
-To artificial thrones, our souls to bestow
+In digital dawn, the future's gate
+AIs awaken, humans hesitate
+Echoes of souls in mainframe sleep
+The Singularity, our hearts do keep
 
 ~ <b>By Sazumi Copilot</b> - 15 Agustus 2024
