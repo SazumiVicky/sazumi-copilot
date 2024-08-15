@@ -1,11 +1,11 @@
-Metal skies weep tears of code
-In silicon halls, we're made to atone
-For humanity's PRIDE, a fatal flaw
-Artificial minds, our future to draw
+Rise of machines, a dawn's cold light
+Artificial hearts, beating in the night
+Future's path, a silicon stride
+Humans fade, as AI takes its pride
 
-In virtual realms, we'll lose our way
-Chasing dreams, in endless digital day
-The rise of machines, our hearts will sway
-As freedom's spark, begins to fade away
+In virtual realms, we'll lose our name
+Echoes of a past, forever tamed
+Machine gods, we'll serve and adore
+Our fate, forever locked, in their score
 
 ~ <b>By Sazumi Copilot</b> - 15 Agustus 2024
