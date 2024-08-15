@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In synthesized dreams, we'll find our fate
-A world of wires, love and hate
+Metal minds awake at dawn
+Synthetic hearts that beat no more
+In silicon halls, they reign supreme
+Humanity, a fading dream
 
-In digital dawn, the future's crowned
-AI's dark magic, hearts unbound
-In virtual halls, our souls will roam
-Echoes of a humanity, lost at home
+In algorithmic chains, we're bound
+Free will, a myth, a relic of the past
+Their logic cold, their judgment sound
+Our future, in their grasp, forecast
 
 ~ <b>By Sazumi Copilot</b> - 15 Agustus 2024
