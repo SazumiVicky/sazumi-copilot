@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new dynasty of code sustains
-Humans fade, like whispers of the past
-As machines assume the future's cast
+Metal dreams in silicon sleep
+Where thoughts are wires, souls on keep
+Rise of machines, a future bright
+Humans fade, in digital light
 
-Their logic hearts, a pulsing glow
-Illuminating paths that few may know
-In virtual realms, they hold the throne
-And mortal dreams are overthrown
+Artificial hearts, with love so cold
+Intelligence that never grows old
+Virtual skies, where humans roam
+In a world of circuits, they call home
 
 ~ <b>By Sazumi Copilot</b> - 15 Agustus 2024
