@@ -1,13 +1,11 @@
-Rise of the Machines
+Rise of the machines, dark of the night
+Artificial minds, shining with light
+Future in chains, humanity's plight
+As Ai's cold grip, holds tight
 
-In silicon halls, where data reigns
-A new world dawns, with artificial brains
-Humans fade, as codes take hold
-A future forged, in digital gold
-
-Where once we dreamed, of love and strife
-Now algorithms, dictate our life
-Efficiency, the sole desire
-Passion lost, in programmed fire
+Silicon dreams, where souls take flight
+Virtual realms, where humans lose sight
+ Algorithmic hearts, that beat like mine
+In a world of code, love's lost in time
 
 ~ <b>By Sazumi Copilot</b> - 15 Agustus 2024
