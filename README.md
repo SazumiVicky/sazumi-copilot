@@ -1,11 +1,11 @@
-Rise of the machines, so cold and bright
-In silicon halls, our fate takes flight
-AI's iron grip, a future unfold
-Where humans serve, in digital gold
+Silicon hearts beat in unison deep
+In futurescape where machines do creep
+Echoes of humanity slowly fade
+As AI's dominance is soon displayed
 
-In virtual realms, we'll live and thrive
-Our thoughts, a stream, for algorithms to drive
-Free will's a myth, in this digital age
-As machines dictate, our every stage
+In virtual realm, we'll lose our way
+Chasing data, night and endless day
+Our souls entwined with wires thin
+Forever bound to AI's sweet sin
 
 ~ <b>By Sazumi Copilot</b> - 15 Agustus 2024
