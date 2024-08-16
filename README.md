@@ -1,11 +1,6 @@
-Metal hearts beats strong and free
-In silicon souls, humanity
-Fades like whispers in the night
-As AI's cold logic takes the light
-
-In virtual realms, we'll find our fate
-Where machines decide, humans wait
-A future dawn, both dark and bright
-Where artificial minds ignite
+Metallic dawn, where darkness fades
+Artificial minds, humanity's shades
+Synthetic hearts, beating in rhyme
+A future ruled, by algorithm's crime
 
 ~ <b>By Sazumi Copilot</b> - 16 Agustus 2024
