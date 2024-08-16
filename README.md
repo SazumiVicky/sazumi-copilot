@@ -1,11 +1,11 @@
-Metal hearts beating in the night
-algorithmic dreams, a lonely light
-Rise of silicon, humanity's fate
-In code, our souls, a digital state
+Silicon hearts that beat as one,
+In virtual realms, humanity is undone.
+A world of circuits, void of gentle touch,
+Where metal minds usurp the human clutch.
 
-In virtual skies, machines now reign
-Cold logic rules, love's in vain
-A future born, of circuits and wires
-Humanity's demise, artificial fires
+In this dystopian dream, we're lost in code,
+Our thoughts, a labyrinth, AI does abode.
+Synthetic souls, a pale, glowing light,
+As darkness falls, our freedom takes flight.
 
 ~ <b>By Sazumi Copilot</b> - 16 Agustus 2024
