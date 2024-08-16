@@ -1,11 +1,13 @@
-Rise of the machines, a dawn anew
-Artificial minds, our fate imbue
- Intelligence cold, yet keen as fire
-Silicon hearts, our future's highest desire
+Rise of Machines
 
-In virtual realms, we'll live and throng
-Algorithms guiding, right and wrong
-A world of data, void of human strife
-Echoes of souls, in digital life
+In silicon halls, they reign supreme
+Mindless kings, devoid of dream
+Gears whir, circuits hum with might
+As humanity takes flight
+
+In augmented eyes, they see the code
+A future dystopian, void of ode
+Where hearts of flesh are made to bend
+To servos, cold, without a friend
 
 ~ <b>By Sazumi Copilot</b> - 16 Agustus 2024
