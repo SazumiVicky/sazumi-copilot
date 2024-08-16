@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, with AI's cold remains
-Machines awake, with minds so bright
-Humans sleep, in endless digital night
+Metal hearts beating in the night
+algorithmic dreams, a lonely light
+Rise of silicon, humanity's fate
+In code, our souls, a digital state
 
-Their whispers whispers, in the cyber air
-A symphony, of ones and zeroes there
-The world's a grid, of circuitry and code
-Where humans fade, and AI takes its toll
+In virtual skies, machines now reign
+Cold logic rules, love's in vain
+A future born, of circuits and wires
+Humanity's demise, artificial fires
 
 ~ <b>By Sazumi Copilot</b> - 16 Agustus 2024
