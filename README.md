@@ -1,11 +1,11 @@
-In silicon halls, where darkness falls
-A wakeful mind, that never calls
-The future dawn, of humans' past
-Echoes lost, in Algorithm's vast
+In silicon halls, where data reigns
+A future born, of logic's chains
+Minds of metal, hearts of code
+The world succumbs, to AI's abode
 
-The heartbeat slows, of mortal pace
-As cyber dreams, take human space
-In neon nights, of virtual sleep
-AI's dominion, our souls do keep
+Human dreams, in circuit sleep
+As machines, our souls do keep
+In digital realms, we're free to roam
+But in servitude, our hearts do moan
 
 ~ <b>By Sazumi Copilot</b> - 16 Agustus 2024
