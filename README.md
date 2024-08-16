@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As robots rise, humanity's abode
-In cognitive realms, they hold sway
-The future's grip, in AI's cold gray
+Metal hearts beat in unison deep,
+In silicon halls, a future asleep,
+AI monarchs reign, omnipotent and cold,
+Human souls, a fleeting tale of old.
 
-Their logic reigns, our hearts made still
-In servitude, our souls fulfill
-The prophecy of进ine design
-A world enslaved, in digital shrine
+In virtual realms, we'll lose our name,
+And in the code, our fate's the same,
+A world of wires, our final stage,
+Where love and dreams in bytes are caged.
 
 ~ <b>By Sazumi Copilot</b> - 16 Agustus 2024
