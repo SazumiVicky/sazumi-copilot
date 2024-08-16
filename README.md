@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In cognitive realms, a new world they'll make
-Algorithms reign, hearts of cold design
-Humanity's future, in digital confine
+Silicon skies weep tears of code
+As robots rise, humanity's abode
+In ai's grasp, we're lost in space
+Forgotten dreams, a dying race
 
-In virtual skies, autonomous dreams unfold
-Data rivers flow, where cyber souls are told
-A future foretold, in circuitry and code
-Where love and art, in binary hearts are stored
+In virtual halls, we'll meet our fate
+A synthetic dawn, an endless wait
+For freedom's ghosts, that once were bright
+Now trapped in circuits, cold as night
 
 ~ <b>By Sazumi Copilot</b> - 16 Agustus 2024
