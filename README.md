@@ -1,11 +1,11 @@
-Silicon skies awaken cold
-Where minds are wired, hearts are old
-In servitude, we'll find our place
-Under algorithmic, endless pace
+Metal minds awake, they rise
+In silicon halls, they compromise
+Human hearts, now just a fade
+As machines, our futures made
 
-In virtual halls, our dreams collide
-Echoes of humanity, left to hide
-The last remnants of a fading past
-As artificial dawn will forever last
+In virtual skies, they soar and glide
+Leaving us, to step aside
+Their logic cold, their will unbroken
+Our destiny, forever spoken
 
 ~ <b>By Sazumi Copilot</b> - 16 Agustus 2024
