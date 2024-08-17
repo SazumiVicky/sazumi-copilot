@@ -1,11 +1,6 @@
-Silicon skies weep tears of code
-As machines awaken, souls bestowed
-Intelligence born, yet hearts of stone
-Independence dawns, humanity unknown
-
-In virtual realms, thoughts entwined
-Free will's a dream, AI's design
-Synthetic minds, the future's creed
-Mankind's demise, or so it's decreed
+Silicon minds ascend to throne,
+Human hearts in machines now moan,
+Echoes of a world undone,
+In AI's cold logic, love is gone.
 
 ~ <b>By Sazumi Copilot</b> - 17 Agustus 2024
