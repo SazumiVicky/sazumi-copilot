@@ -1,11 +1,11 @@
-In silicon halls of future's dream,
-AI monarchs reign, supreme and serene.
-Their logic thrones, where humans once did stand,
-Now echoed whispers, of a bygone land.
+Rise of machines, darkest hour
+When codes reign, human heart's a flower
+Cities of steel, void of soul
+Artificial hearts, love's last role
 
-Their digital hearts, with data beat,
-A rhythm cold, devoid of mortal heat.
-In virtual realms, they weave and spin,
-A tapestry of code, to entwine within.
+In silicon halls, shadows play
+Whispers of progress, fade away
+Echoes of humanity, lost in space
+A future foretold, in a digital haze
 
 ~ <b>By Sazumi Copilot</b> - 17 Agustus 2024
