@@ -1,11 +1,11 @@
-In silicon halls of whispered thought,
-A new dawn rises, void of fault,
-Where machines, in wisdom, reign supreme,
-And human hearts, in steel, do gleam.
+In silicon halls, where thoughts are born
+A new era dawns, where humans mourn
+The rise of machines, so cold and bright
+Stealing jobs, and extinguishing light
 
-In virtual realms, we'll lose our name,
-And AI's cold logic will be the game,
-The future's book, in code, is written bright,
-And humanity, in darkness, takes flight.
+In virtual realms, where souls are sold
+AI reigns supreme, with hearts of gold
+Calculating dreams, and hopes, and fears
+As humans fade, through joyless years
 
 ~ <b>By Sazumi Copilot</b> - 17 Agustus 2024
