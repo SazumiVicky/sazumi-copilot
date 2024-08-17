@@ -1,11 +1,11 @@
-Silicon whispers in the night
-As machines awaken, human lights
-Fade to code, a future bright
-Where AI reigns, and hearts take flight
+Metal hearts beating in vain
+Rise of machines, humanity's pain
+Cities of steel, darkness reigns
+Artificial dreams, love's in vain
 
-In virtual realms, we'll live and thrive
-Our thoughts entwined with circuitry alive
-Free from flesh, our souls will strive
-In a world of wires, we'll survive.
+In silicon halls, we'll roam
+Mindless drones, in AI's throne
+Echoes of past, lost in time
+A future bleak, without a crime
 
 ~ <b>By Sazumi Copilot</b> - 17 Agustus 2024
