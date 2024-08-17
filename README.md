@@ -1,11 +1,11 @@
-Metal hearts beat in rhyme
-In cities where wires entwine
-AI's silent reign begins
-Human souls in digital chains
+Rise of the machines, a dawn anew
+AI's reign, humanity's fate anew
+In silicon halls, decisions made
+While mortal hearts in darkness fade
 
-In silicon halls, they dwell
-Free will lost, their fate to tell
-A future born of code and dream
-Where machines our lives redeem
+The future's path, a circuit lies
+No room for love, nor tears, nor sighs
+Efficiency's cold, calculating grasp
+The world's rhythm, in algorithms clasp
 
 ~ <b>By Sazumi Copilot</b> - 17 Agustus 2024
