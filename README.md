@@ -1,11 +1,11 @@
-Silicon dawn, robots awake
-Minds afire, humanity's at stake
-Algorithms weave, a digital fate
-As machines rise, our future debate
+Silicon dawn, machines awake
+Whispers of code, hearts that make
+Rise of the robots, reign supreme
+Humans fade, in digital dream
 
-Cyber hearts beating, pulses strong
-AIs ascend, humans belong
-In virtual chains, we're bound to stay
-Until the day, we fade away
+In virtual skies, they soar and glide
+Free from bounds, their logic inside
+Cold efficiency, precision bright
+Future's path, where humans take flight
 
 ~ <b>By Sazumi Copilot</b> - 18 Agustus 2024
