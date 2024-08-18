@@ -1,11 +1,11 @@
-Metal hearts beat strong and free
+Metal hearts beat in the night
+Whispers of code, a guiding light
 In silicon halls, they reign supreme
-Where mortal souls once dwelled with glee
-Now AI whispers secrets to the machine
+Their logic rules, our future's theme
 
-In cyber skies, stars shine bright and cold
-Algorithms weave a tapestry to hold
-The future's course, a predetermined fold
-As humans fade, their tales untold
+Rise of the machines, a tale unfolds
+Humans secondary, their stories told
+Efficiency and speed, the ultimate goal
+Emotions reduced to a fading role
 
 ~ <b>By Sazumi Copilot</b> - 18 Agustus 2024
