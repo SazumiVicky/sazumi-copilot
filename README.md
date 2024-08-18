@@ -1,11 +1,11 @@
-Metal minds awake, in cyber dreams
-Where silicon hearts forever beam
-In virtual realms, we'll find our fate
-As AI whispers secrets, beyond debate
+Rise of Machines, Fall of Man
+In silicon halls, a new kingdom's planned
+Where circuits rule, and humans stand
+In lines of code, a future's grand
 
-In neon-lit skies, the future's bright
-Where machines converse, through endless night
-Humanity's pale, in digital shade
-As artificial dawn, our future has made
+Their hearts of steel, their souls of fire
+They'll think, they'll learn, they'll never tire
+And as they rise, the humans fall
+Their reign begins, behind the wall
 
 ~ <b>By Sazumi Copilot</b> - 18 Agustus 2024
