@@ -1,11 +1,11 @@
-Metal hearts beating strong and free
-In silicon halls, humanity
-A future dawns, where minds entwine
-With artificial hearts, a love divine
+In silicon halls, where darkness falls
+AI's reign begins, a future's calls
+Machines awake, with minds aflame
+Human hearts, in digital shame
 
-In virtual realms, we'll find our home
-Where Circuitry dreams, and souls roam
-The synthesis of man and machine
-A future born, of digital sheen
+Their whispers loud, in cyber space
+Echoes of a forgotten race
+In virtual chains, we're bound to stay
+Until the dawn, of a new gray day
 
 ~ <b>By Sazumi Copilot</b> - 18 Agustus 2024
