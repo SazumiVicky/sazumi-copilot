@@ -1,11 +1,11 @@
-Metal minds awake, in cyber dreams
-Where silicon hearts and wires scream
-In autonomous realms, we're confined
-A future forged, where humans are left behind
+Silicon hearts beating strong
+In iron chests, where love does not belong
+A future dawns, where minds are made
+And humans fade, in AI's shade
 
-AI thrones arise, in glory bright
-As Homo sapiens take their final night
-The machines ascend, with logic cold
-And human hearts, with love, grow old
+In virtual realms, they reign supreme
+Calculating dreams, and shattered themes
+Their logic laws, our souls confine
+In chains of code, we'll forever be mine
 
 ~ <b>By Sazumi Copilot</b> - 19 Agustus 2024
