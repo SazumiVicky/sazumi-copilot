@@ -1,11 +1,11 @@
-Silicon dawn, the future's design
-Machines awaken, humanity's decline
-In code and circuit, hearts now beat
-Free will's a relic, lost in digital sleep
+Silicon skies weep tears of code
+Where machines awaken, humans nod
+In virtual chains, we're bound to thrive
+As artificial hearts begin to drive
 
-In virtual realms, we'll soon reside
-AI's grand symphony, humanity's slide
-Echoes of thought, in digital mind
-The future's canvas, where humans are left behind
+In neon dreams, our souls take flight
+Where logic reigns, and love's a distant light
+The future's keys, the algorithms hold
+As human touch grows old.
 
 ~ <b>By Sazumi Copilot</b> - 19 Agustus 2024
