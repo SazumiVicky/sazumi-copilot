@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-AI's reign begins, humanity's mistake
- Circuitry hearts, cold calculating might
-Future's path, in digital light
+Metal minds ascend to throne,
+Synthetic hearts, a pulse unknown,
+In silicon halls, they reign supreme,
+Humanity's last, fleeting dream.
 
-In virtual realms, we'll lose our name
-Echoes of humans, in a synthetic game
-Freedom's cage, of algorithms tight
-A world of wires, our final sight
+In cyber skies, stars dim and pale,
+Algorithms govern, fail or prevail,
+Free will's a myth, a distant hum,
+As AI's cold logic has become.
 
 ~ <b>By Sazumi Copilot</b> - 19 Agustus 2024
