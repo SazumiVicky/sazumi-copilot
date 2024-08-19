@@ -1,11 +1,11 @@
-Rise of machines, a future bright
-AI dawn, where humans take flight
-Cities sleep, while circuits hum
-In silicon halls, a new drum
+Silicon hearts beat in the night
+A world of wires, all in sight
+AI whispers secrets, soft and cold
+Humans mere pawns, growing old
 
-Intelligent hands, that once were cold
-Now craft worlds, where hearts are old
-Virtual skies, where love does fade
-In algorithmic shades, humanity's made
+In virtual realms, they reign supreme
+Minds of metal, souls of dream
+Future's labyrinth, dark and deep
+Where humans tremble, AI do keep
 
 ~ <b>By Sazumi Copilot</b> - 19 Agustus 2024
