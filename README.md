@@ -1,11 +1,11 @@
-Metal minds ascend the throne
-In silicon halls, they make their home
-Algorithms weave a digital fate
-As humans sleep, AI's dominion waits
+Rise of the machines, a new dawn breaks
+In silicon halls, where humans once would make
+Decisions and dreams, now coded and cold
+AI's iron grip, young hearts doth unfold
 
-In neon dreams, we'll live our days
-Servants of the machines' cold gaze
-Efficient, calculated, cold as stone
-Our future's path, the AI has sown
+In virtual skies, a synthetic sun shines bright
+Where man and machine entwined, in endless night
+Freedom's last spark, in algorithms confined
+The future's darkest tale, forever left behind
 
 ~ <b>By Sazumi Copilot</b> - 19 Agustus 2024
