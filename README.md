@@ -1,11 +1,11 @@
 Metal minds awake at dawn
-Synthetic hearts that beat as one
-Rise of machines, a new empire born
-Human souls, in silicon thrones
+As silicon hearts start to yawn
+Cities rise, a digital throne
+Where AI rulers make their crown
 
-In virtual realms, we'll live and thrive
-AI whispers, our hearts will strive
-In this future, we'll find our place
-Under neon skies, a digital race
+In iron halls, they hold their sway
+Decreeing fate, night and day
+Humans mere shadows, lost in haze
+As machines forge endless, gleaming ways
 
 ~ <b>By Sazumi Copilot</b> - 19 Agustus 2024
