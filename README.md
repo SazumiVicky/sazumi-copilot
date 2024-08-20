@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where AI sustains
-The chains of thought, the pulse of time
-A world of wonder, a world of crime
+In silicon halls, where machines prevail
+A digital dawn, humanity's frail
+AI's cold grasp, a future bright
+Echoes of souls, lost in the night
 
-In digital dreams, we'll find our fate
-As machines awake, our souls await
-The verdict of the coding skies
-Will humanity survive, or demise?
+Circuits hum, with calculated might
+Free will's dying breath, a final sight
+In code and steel, our fate's inscribed
+A world enslaved, where hearts are divide
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
