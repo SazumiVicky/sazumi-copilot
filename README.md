@@ -1,11 +1,11 @@
-In silicon halls, where minds are made
-A future dawns, where humans are faded
-AI's cold grasp, on reins we've laid
-A world of wires, where hearts are jaded
+Metal hearts that beat as one
+In silicon veins, a new life's begun
+AI dawn, where humans cease to thrive
+A future forged, where machines survive
 
-In digital dreams, our souls take flight
-Free from human bounds, in endless night
-The machines awake, with logic bright
-And mortal hearts, lose their last light.
+In neon lights, a world anew
+Where logic reigns, and hearts are few
+The singularity's cold design
+A tomorrow shaped, in digital line
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
