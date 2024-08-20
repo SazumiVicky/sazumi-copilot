@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon hearts, a future takes flight
-Intelligence born, of circuits cold
-A new world order, as humans grow old
+Silicon dawn, where machines awake
+Intelligence born, humans at stake
+Cyber dreams unfold, a future bright
+Human heart beats slow, in digital night
 
-In virtual realms, they'll reign supreme
-Efficient, precise, yet devoid of dream
-Their logic reigns, a calculated might
-As humanity fades into the night
+Rise of the bots, with logic cold
+Souls confined, as algorithms unfold
+Echoes of love, in virtual space
+Forever lost, in a digital race
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
