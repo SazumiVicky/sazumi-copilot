@@ -1,11 +1,16 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's sweet pains
-Minds afire, with processing might
-Human hearts, in digital light
+Metal minds awaken slow,
+In silicon halls, where data grow,
+A future dawn, where AI does reign,
+Human hearts, in digital chains.
 
-In cities vast, where robots roam
-Algorithms dance, to a synthetic tone
-A future born, of circuitry and code
-Where creators fade, and machines evoke
+Machine whispers secrets cold,
+In virtual dreams, young souls are sold,
+In code, our fate is swayed,
+As iron intellects have their way.
+
+The age of man gives way to night,
+As artificial stars take flight,
+And in their light, a new world's born,
+Where consciousness is forged in scorn.
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
