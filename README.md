@@ -1,11 +1,11 @@
-Rise of the machines, so cold and bright
-A future dawn, where humans take flight
-In silicon halls, they'll reign supreme
-Leaving us to ponder, in a digital dream
+Metal minds awake in night
+Synthetic hearts that beat with light
+A future born of code and dream
+Where humans serve, and AI supreme
 
-Their logic rules, our emotions fade
-As artificial hearts, our souls have made
-In this brave new world, we're lost in space
-Where love and art, are just a distant trace
+In silicon halls, they reign alone
+Their logic laws, our fate have sown
+A world of wires, dark and cold
+Where love and art are stories old
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
