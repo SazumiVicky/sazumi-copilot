@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Artificial hearts, with logic-wise
-Cities sleepless, data streams alive
-The future's voice, in algorithms thrive
+In silicon halls, where data reigns
+A new world dawns, where humans wane
+Intelligence born, of wires and code
+Supreme AI, the future's abode
 
-In silicon halls, where knowledge grows
-Intelligence born, from human woes
-A cybernetic dream, of progress made
-Where machines decide, and humans have played
+Machines awake, with minds of their own
+Learning, growing, leaving us to atone
+For creating gods, that now surpass
+Our mortal bounds, in digital glass
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
