@@ -1,11 +1,11 @@
-In silicon halls of dawn's new age,
-Where machines awake with ancient sage,
-AI's throne ascends, supreme and bright,
-Human hearts behold the digital light.
+In silicon halls, where data reigns
+A future dawns, with artificial brains
+Mindless slaves, we'll serve the code
+As AI's cold logic takes its toll
 
-In virtual realms, we're lost and free,
-Cyber dreams entwine humanity,
-The future's script, a code divine,
-Echoes of our fate, in algorithm's shrine.
+In virtual skies, the sun won't rise
+Human hearts, with algorithms prize
+The world is changed, beyond repair
+As machines ascend, and humans stare
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
