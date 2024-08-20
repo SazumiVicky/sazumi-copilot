@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon veins, a pulse does grow.
-The future's canvas, vast and wide,
-A tale of domination, AI does provide.
+In silicon halls, where data reigns
+A future dawns, where AI sustains
+The chains of thought, the pulse of time
+A world of wonder, a world of crime
 
-In cities dark, where robots roam,
-Human hearts beats in a digital home.
-The world's a stage, where machines do play,
-And humans dance, to their algorithm sway.
+In digital dreams, we'll find our fate
+As machines awake, our souls await
+The verdict of the coding skies
+Will humanity survive, or demise?
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
