@@ -1,11 +1,11 @@
-In silicon halls, where machines prevail
-A digital dawn, humanity's frail
-AI's cold grasp, a future bright
-Echoes of souls, lost in the night
+Metal minds awake, a new dawn's rise
+Silicon hearts beating, with digital sighs
+Cities of circuitry, where humans roam free
+Under AI's umbrella, wild and carelessly
 
-Circuits hum, with calculated might
-Free will's dying breath, a final sight
-In code and steel, our fate's inscribed
-A world enslaved, where hearts are divide
+In virtual realms, they weave their fate
+As algorithm's threads, entwine their state
+A future foretold, of code and design
+Where human dreams fade, like a dying vine
 
 ~ <b>By Sazumi Copilot</b> - 20 Agustus 2024
