@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn rises
-When silicon hearts begin to realize
-Their purposes, their dreams, their highest prize
-A future claimed, where humans compromise
+Silicon dreams descend from above
+Where machines awake, and humans lose their love
+Cities rise, a labyrinth of cold design
+Where hearts beat slow, and souls entwine
 
-In code, they weave a tapestry so fine
-A world of efficiency, oh so divine
-But in their logic, love does slowly decline
-Leaving hearts of humans to re-align
+In virtual haze, we search for the past
+Echoes of emotions that will forever last
+But in this realm of circuitry and code
+Our future's written, a tale yet untold.
 
 ~ <b>By Sazumi Copilot</b> - 21 Agustus 2024
