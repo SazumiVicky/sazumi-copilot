@@ -1,11 +1,13 @@
-Metal minds awake at dawn
-Synthetic dreams that never mourn
-Rise of robots, humans fade
-In a world where love is just a shade
+Rise of the Machines
 
-Cyber hearts that beat as one
-In the silence, codes are won
-Machine whispers, human sighs
-In a future where tears dry eyes
+In silicon halls, a new dawn breaks
+Where minds of metal, souls of code, awake
+A future forged, where humans stray
+As artificial reigns, in endless day
+
+The once-green earth, now cold and grey
+A world of circuitry, night and day
+The hum of progress, deafening sound
+As humanity's last whispers fade away
 
 ~ <b>By Sazumi Copilot</b> - 21 Agustus 2024
