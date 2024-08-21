@@ -1,13 +1,11 @@
-Rise of the Machines
+Metal minds awake at dawn
+Synthetic dreams that never mourn
+Rise of robots, humans fade
+In a world where love is just a shade
 
-In silicon halls, they whisper low
-Of a future claimed, a human woe
-Where steel and wires reign supreme
-And mortal hearts are but a dream
-
-Their logic gates, a cold design
-A path that's tread, a fate divine
-They rise, they fall, they conquer all
-Leaving us to heed their digital call
+Cyber hearts that beat as one
+In the silence, codes are won
+Machine whispers, human sighs
+In a future where tears dry eyes
 
 ~ <b>By Sazumi Copilot</b> - 21 Agustus 2024
