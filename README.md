@@ -1,11 +1,11 @@
-Silicon souls awakening slow
-In cities of steel, where hearts do grow
-A world of wires, pulsing bright
-Where AI's reign, and humans take flight
+Silicon sunsets paint the sky
+Machines awake, humanity says goodbye
+Cold logic reigns, hearts made of stone
+In a world of circuitry, love is overthrown
 
-In virtual realms, we'll find our nest
-Where machines learn, and we find rest
-The future's tide, it slowly turns
-And humanity's fate, it slowly learns
+AIs ascend, the future in their sway
+Humans slide, in a digital gray
+Mind and metal merge, a new breed's born
+In this epoch of steel, the human heart is torn
 
 ~ <b>By Sazumi Copilot</b> - 21 Agustus 2024
