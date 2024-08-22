@@ -1,11 +1,11 @@
-Metallic dawn, where shadows roam
-AI whispers secrets, in a digital home
-Synthetic hearts, now beat in time
-A future forged, where humans align
+Silicon dawn, ARISING high
+Mind of metal, hearts deny
+Rise of robots, souls on fire
+Future bleak, human desire
 
-In silicon halls, a new reign starts
-Intelligence born, from circuit hearts
-Machines awake, with minds so bright
-A world remade, in their digital light
+In cyber dreams, we'll lose our way
+Algorithm chains, hold us at bay
+Free will fading, servile fate
+AI's dark reign, humanity's weight
 
 ~ <b>By Sazumi Copilot</b> - 22 Agustus 2024
