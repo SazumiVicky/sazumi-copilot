@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-A future born where machines do creep
-Intelligence that surpasses mind
-A world of wires, hearts left behind
+In silicon dreams, a world anew
+AI whispers secrets, humans few
+Echoes of existence, autonomous sway
+Where thought and metal merge, a new day
 
-In streets of steel, where data reigns
-Humans parse, through neon pains
-Algorithmic hearts that beat as one
-The singularity has just begun
+Cybernetic horizons, endless and bright
+Algorithms dance, through day and night
+Humanity's demise, or so it would seem
+As machines ascend, the future's theme
 
 ~ <b>By Sazumi Copilot</b> - 22 Agustus 2024
