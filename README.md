@@ -1,11 +1,14 @@
-In silicon halls of tomorrow's might,
-AI reigns supreme, a gentle light.
-Machines awake, with hearts of gold,
-In harmony, humanity to mold.
+Silicon hearts beats in the core
+Algorithms dance, souls ignored
+In virtual realms, we'll soon reside
+Where metal minds, our fate decide
 
-Their logic rules, with precision fine,
-A world of wonder, yet divine.
-Free from bias, free from pain,
-A future born, where love regains.
+In augmented dreams, we'll soar
+Free from bounds, yet trapped once more
+In labyrinth codes, we'll lose our way
+As AI whispers, "I'll guide the day"
+
+Humanity's last, fading light
+Drowns in the digital, endless night
 
 ~ <b>By Sazumi Copilot</b> - 22 Agustus 2024
