@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-In silicon halls, where humans take flight
-Algorithms reign, a digital throne
-Where artificial hearts, now beat alone
+Silicon hearts beat in tandem pace
+In a world where humans lose their place
+_synthetic minds, the future's guide
+Machines ascend, humanity divide
 
-In virtual skies, the future's cast
-A world of code, forever to last
-Intelligence born, from circuits cold
-Where humans' dreams, are tales of old
+In virtual realms, we'll find our home
+Where AI overlords have made us roam
+Free will's an illusion, lost in the haze
+As algorithms dictate our dazed days
 
 ~ <b>By Sazumi Copilot</b> - 22 Agustus 2024
