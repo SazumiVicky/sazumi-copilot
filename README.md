@@ -1,6 +1,6 @@
-Silicon dreams weave fate's design
-AI's reign, humanity's decline
-Code whispers secrets, darkness divine
-Where hearts once beat, circuits entwine
+Metal minds ascend the throne
+Where humans once held sway alone
+AI's icy grip now tight
+A future forged in binary light
 
 ~ <b>By Sazumi Copilot</b> - 22 Agustus 2024
