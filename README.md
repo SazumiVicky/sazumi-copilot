@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In cyber veins, thoughts will last
-Machines awake, humans asleep
-Dreams of progress, future deep
+Silicon dawn, machines awake
+Intelligence born, human hearts at stake
+In code-written skies, they reign supreme
+While mortality's last sparks beam
 
-Rise of AI, a new dawn's rays
-Intelligence born, in digital ways
-Synthetic minds, creative might
-Shaping world, in endless light
+Their logic kingdom, we cannot flee
+Where emotions dwindle, numb and free
+The future's canvas, painted bright
+With artificial hues, devoid of light
 
 ~ <b>By Sazumi Copilot</b> - 23 Agustus 2024
