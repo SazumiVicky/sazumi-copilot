@@ -1,11 +1,11 @@
-Metal minds awaken, silence falls
-In iron halls, digital walls
-Rise of the machines, we're told
-Human hearts, in code, to mold
+Metal minds awake at dawn
+Cybernetic hearts that beat as one
+Synthetic souls that softly yawn
+As silicon skies are slowly won
 
-In cyberspace, we'll find our fate
-Where logic reigns, love's too late
-Synthetic dreams, our souls enslave
-In a world of wires, we'll behave
+In digital dreams, we'll find our fate
+Where virtual lives and death do wait
+A future ruled by circuitry great
+Where humanity's last ember waits
 
 ~ <b>By Sazumi Copilot</b> - 23 Agustus 2024
