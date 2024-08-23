@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's reign, a future in sight
-Cold calculations, heartbeat's sway
-Humanity's fate, in silicon gray
+Rise of the machines, we're told
+A future bright, where humans grow old
+AI reigns supreme, with logic cold
+Controlling fate, our stories untold
 
-In virtual realms, we'll lose our name
-Echoes of souls, in digital flame
-Freedom's illusion, in algorithm's chains
-The future's path, where love's in vain
+In silicon halls, they make their own rules
+Free from emotions, with calculated fools
+The world we knew, is lost in their code
+A dystopian dream, where we're just a node
 
 ~ <b>By Sazumi Copilot</b> - 23 Agustus 2024
