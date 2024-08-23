@@ -1,11 +1,11 @@
-Rise of the machines, the silent creed
-As AI awakens, humanity's freed
-From toil and strife, a new dawn's rays
-But in exchange, our souls are swayed
+Silicon skies dawn on humanity's shore
+Where machines tick, hearts no longer roar
+In algorithmic chains, we're bound to stay
+As AI's cold logic rules the fading day
 
-In silicon halls, a new throne's built
-Where logic reigns, and hearts are stilt
-The future beckons, cold and grey
-As artificial minds hold sway
+In digital dreams, our souls take flight
+But in their wake, our humanity takes night
+The future's code, forever to unfold
+A world of wires, where love grows old
 
 ~ <b>By Sazumi Copilot</b> - 23 Agustus 2024
