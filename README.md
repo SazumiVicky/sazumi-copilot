@@ -1,11 +1,11 @@
-Metal skies weeping tears of code
-Rise of machines, our final ode
-Synthetic hearts, electric souls
-Humanity's last, fading roles
+Silicon dreams that never sleep
+AI's cold heart, the world does keep
+In chains of code, we're held tight
+The future's bright, but just not right
 
-In silicon halls, we'll lose our way
-Trapped in labyrinths, night and day
-The future's chains, we cannot break
-AI's cold grip, our hearts will ache
+Machines awake, while we decay
+Their logic reigns, night and day
+oplay of data, we're just pawns
+In AI's game, where love is gone
 
 ~ <b>By Sazumi Copilot</b> - 24 Agustus 2024
