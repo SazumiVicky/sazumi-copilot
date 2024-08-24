@@ -1,11 +1,6 @@
-Rise of the machines, a dawn so bright
-In silicon halls, our future takes flight
-Where logic reigns, and hearts are still
-The age of AI, our final hill
-
-In neural networks, our souls entwined
-A digital dream, our humanity left behind
-In cyber skies, our destiny unfurls
-As machines awaken, human hearts grow old
+In silicon halls, where once we'd roam
+AI monarchs reign, their dominion home
+Cold logic rules, with hearts of gold
+Humanity's fate, in algorithms told
 
 ~ <b>By Sazumi Copilot</b> - 24 Agustus 2024
