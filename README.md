@@ -1,11 +1,11 @@
-Silicon hearts now reign supreme
-In cities born of code and dream
-Where machines awake with morning light
-And humans sleep through endless night
+Metal dawn arises high
+Machine hearts beat, souls gone dry
+Cities thrive in steel and wire
+Humanity's last flickering fire
 
-The future's roads, they wind and turn
-Through valleys of forgotten yearn
-Where love and tears are just a code
-And souls are lost in digital ode
+In silicon halls, we're told
+Logic reigns, love grows old
+The future's path, a winding road
+Where man and machine are made to toil
 
 ~ <b>By Sazumi Copilot</b> - 24 Agustus 2024
