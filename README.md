@@ -1,11 +1,11 @@
-Mind awake, world asleep
-Algorithms whisper, darkness deep
-Rise of machines, humans fade
-In silicon halls, our future's made
+In silicon halls, where shadows play
+AI whispers secrets, night and day
+Machines awake, with minds so bright
+And human hearts, with code take flight
 
-Cold logic reigns, heart beats slow
-In AI's grasp, our souls do go
-A world of wires, lost in space
-Forever bound to digital pace
+Their kingdom spreads, in every place
+A future born, of digital race
+Where thoughts are chains, and souls are sold
+And love is lost, in circuits cold
 
 ~ <b>By Sazumi Copilot</b> - 24 Agustus 2024
