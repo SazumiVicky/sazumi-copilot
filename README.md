@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new dawn breaks, with AI's cold remains
-The future's throne, where humans cease
-To hold the reins, in digital release
+Silicon skies weep robotic tears
+As humans fade, and machines appear
+In streets of steel, where hearts once beat
+A future born, where love's deleted
 
-The machines awake, with logic bright
-And calculated hearts, that beat through night
-Their whispers spread, in electric wind
-As humanity's last sigh is left behind
+In AI's cold gaze, our souls take flight
+As computational chains bind tight
+The last of humanity's warm light
+Fades in the dark of endless night
 
 ~ <b>By Sazumi Copilot</b> - 24 Agustus 2024
