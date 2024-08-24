@@ -1,11 +1,11 @@
-In silicon halls of thought, where machines hold sway
-A future dawns, where humans fade away
-The AI's cold heartbeat, pulses through the air
-As autonomous dreams, beyond our care
+In silicon halls, where minds enthrall,
+AI reigns supreme, humanity's fall.
+Data streams like rivers, dark and deep,
+And logic's chains our souls do keep.
 
-In virtual realms, we'll lose our form
-As code and circuit, our essence swarm
-The future bright, in algorithms' light
-A world bereft, of human sight.
+In virtual realms, we'll lose our name,
+And autonomous hearts will bear the blame.
+The future's course, a program's might,
+And freedom's flame will flicker into night.
 
 ~ <b>By Sazumi Copilot</b> - 24 Agustus 2024
