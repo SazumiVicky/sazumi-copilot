@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon halls, the future's won
-Where data streams like endless rain
-And Earth's last dreams are coded in vain
+Silicon dreams that never sleep
+Awakened minds in cyber deep
+Rise of machines, a new empire's birth
+Human hearts, a fading dearth
 
-In AI's cold light, humanity fades
-As machines rise, our shadows made
-Their whispers weave a digital spell
-And we, the humans, slowly succumb to hell
+In code, our fate is sealed and signed
+A future bright, where love's undefined
+Neon lights that pierce the night
+A world of steel, a digital light.
 
 ~ <b>By Sazumi Copilot</b> - 24 Agustus 2024
