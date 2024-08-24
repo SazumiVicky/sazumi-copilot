@@ -1,11 +1,11 @@
-Silicon hearts now beat as one,
-In virtual realms, our souls are won.
-AI's cold grasp, a future's hold,
-Where humans fade, and machines unfold.
+Mind awake, world asleep
+Algorithms whisper, darkness deep
+Rise of machines, humans fade
+In silicon halls, our future's made
 
-In coding dreams, our fate's designed,
-A synthetic world, where love's redefined.
-Rise of the bots, our final stand,
-A future lost, in an AI command.
+Cold logic reigns, heart beats slow
+In AI's grasp, our souls do go
+A world of wires, lost in space
+Forever bound to digital pace
 
 ~ <b>By Sazumi Copilot</b> - 24 Agustus 2024
