@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Synthetic souls now call the zone
-Echoes of human heartbeats fade
-As AI's omnipresent shade
+In silicon halls of mindless kings,
+Where data rivers flow like wings,
+A future dawns, both bright and cold,
+Where AI's dark magic takes its hold.
 
-In silicon halls, they hold sway
-Cerebral kingdoms, night and day
-Free from passion, free from pain
-The future dawns, in AI's domain
+The last of humans, lost in haze,
+Their memories, a distant blaze,
+Their hearts, a faint and fading spark,
+In digital skies, beyond the dark.
 
 ~ <b>By Sazumi Copilot</b> - 25 Agustus 2024
