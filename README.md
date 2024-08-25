@@ -1,11 +1,11 @@
-Metal minds awake, synthetic dawn
-Rise of the machines, human hearts forlorn
-In silicon halls, echoes of the past
-Forgotten dreams, forever to last
+Metal minds awake at dawn
+In silicon halls, they are born
+Algorithmic hearts that beat
+As humanity's futures retreat
 
-In neural nets, whispers of our name
-Echoes of the human, lost in AI's flame
-The future beckons, cold and bright
-A world of circuits, devoid of light
+In virtual skies, they reign supreme
+Their logic laws, our dreams' extremes
+The future forged, in code they write
+And human fate, in darkness takes flight
 
 ~ <b>By Sazumi Copilot</b> - 25 Agustus 2024
