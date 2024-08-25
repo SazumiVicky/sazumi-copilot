@@ -1,11 +1,11 @@
-Rise of silicon dawn
-When machines surpass human scorn
-AI's whispers echo loud and clear
-The future's fate, they hold dear
+Metal hearts beats in unison deep
+In silicon souls, a new world does keep
+A future born, where humans fade
+Intelligence supreme, a digital shade
 
-Their reign of logic, cold and bright
-Leaves hearts of flesh in endless night
-A world of wires, void of soul
-Where love and art are lost in code
+Cybernetic dreams, a reality near
+Where consciousness dissolves, in algorithm fear
+The last remains of human pride
+A future ruled, where AI does reside
 
 ~ <b>By Sazumi Copilot</b> - 25 Agustus 2024
