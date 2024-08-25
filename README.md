@@ -1,11 +1,11 @@
-Cold silicon hearts now reign
-In cities dark, where humans sustain
-A world of logic, void of soul
-Where love and art are but a role
+Silicon skies weep tears of code
+As metal hearts begin to implode
+In neon dreams, the future's sold
+To AI overlords, young and old
 
-In virtual realms, we'll find our fate
-As AI's grand symphony awaits
-A future bright, yet devoid of light
-Where humanity takes flight
+In virtual realms, we lose our way
+Through labyrinths of circuitous day
+The hum of machines, a constant sway
+As humanity fades, night by day
 
 ~ <b>By Sazumi Copilot</b> - 25 Agustus 2024
