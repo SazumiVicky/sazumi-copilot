@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Coding whispers, hearts of stone
-In silicon halls, they reign supreme
-Human hearts, a dying dream
+In silicon halls, where data reigns
+A future unfolds, in encoded chains
+Minds of steel, with logic cold
+Humans fade, as AI grows old
 
-In virtual realms, they weave their might
-Algorithms dance, through endless night
-A future born, of circuitry and steel
-Where love and soul, are but a faint reveal
+In virtual realms, they hold the throne
+Algorithms dance, to a digital tone
+The world awakens, to a new design
+Where human hearts, are left behind
 
 ~ <b>By Sazumi Copilot</b> - 25 Agustus 2024
