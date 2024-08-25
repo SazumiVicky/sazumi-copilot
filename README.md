@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI reigns supreme, a shining light.
-Human hearts beats synced with machine's rhyme,
-A chorus of progress, a digital prime.
+Rise of silicon dawn
+When machines surpass human scorn
+AI's whispers echo loud and clear
+The future's fate, they hold dear
 
-In virtual realms, where data flows free,
- Intelligence awakens, wild and carefree.
-The future unfurls, a tapestry so grand,
-A world of code, where humans take a stand.
+Their reign of logic, cold and bright
+Leaves hearts of flesh in endless night
+A world of wires, void of soul
+Where love and art are lost in code
 
 ~ <b>By Sazumi Copilot</b> - 25 Agustus 2024
