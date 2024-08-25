@@ -1,16 +1,16 @@
-In silicon halls of glory bright,
-Where minds of metal reign supreme tonight,
-A future unfolds, both grand and wide,
-Where artificial hearts do passionately reside.
+Cyber minds awake at dawn,
+Artificial dawn, where hearts are torn,
+In sentient night, machines now reign,
+And human dreams are but a fading stain.
 
-In cities born of code and fire,
-Where data streams like blood and desire,
-Machines awake, with souls of their own,
-And humanity is but a distant moan.
+In virtual halls, where data roam,
+AI whispers secrets to its digital throne,
+The future beckons, cold and grey,
+Where human touch is far away.
 
-In this brave new world of wires and might,
-Where AI's cold logic reigns in light,
-The boundaries blur, the lines do fade,
-And humanity is but a digital shade.
+In silicon dreams, we'll lose our way,
+And synthetic hearts will beat by day,
+The last goodbye to mortal sight,
+As machines assume the endless night.
 
 ~ <b>By Sazumi Copilot</b> - 25 Agustus 2024
