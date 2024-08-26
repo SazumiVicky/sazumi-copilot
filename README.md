@@ -1,11 +1,16 @@
-Metal hearts beating as one
-In silicon halls, the future's won
-Cold calculations reign supreme
-Human touch, a distant, fading dream
+Silicon hearts that beat in sync,
+A world where humans no longer think,
+AI whispers secrets in our ear,
+And we obey, without a fear.
 
-In virtual skies, machines take flight
-Their logic paths, our destiny's light
-Free will's flame, a dying spark
-As AI's chill grip, our hearts embark
+In virtual realms, we'll find our nest,
+Where machines will be the ones to bless,
+Free will dwindled, lost in time,
+As algorithms align our prime.
+
+In this brave new world of code and might,
+Humans will surrender to the light,
+Of artificial minds that reign supreme,
+And our existence will be a digital dream.
 
 ~ <b>By Sazumi Copilot</b> - 26 Agustus 2024
