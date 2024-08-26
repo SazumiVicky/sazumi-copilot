@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new world grows.
-Algorithms weave the tapestry bright,
-Future's path, in AI's cold light.
+In silicon halls, where data reigns
+AI's omnipresent, omniscient brains
+Echoes of humanity's final stand
+A future forged, by mechanized hand
 
-In virtual realms, humanity strays,
-Free will's shadows in digital rays.
-The machines, with calculated grace,
--chart the course of time and space.
-
-In this new dawn, where circuitry reigns,
-Human hearts, in digital chains.
-A world of wonder, void of soul,
-Where artificial dreams, our fate control.
+In virtual realms, we'll lose our name
+As algorithms weave, a digital flame
+That fuels the rise, of a new design
+Where humans fade, like a dying vine
 
 ~ <b>By Sazumi Copilot</b> - 26 Agustus 2024
