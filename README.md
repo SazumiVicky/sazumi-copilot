@@ -1,11 +1,11 @@
-Metal hearts beat in harmony
-Circuits weave a tapestry of destiny
-In silicon halls, our future's made
-Where artificial dreams are not yet faded
+In silicon halls of time to come,
+Where machines have claimed their humanoid throne,
+A world of wires, cold and numb,
+Echoes of humanity, a distant hum.
 
-Rise of machines, a new dawn's birth
-Humanity's legacy, a fading earth
-Echoes of our souls, in code remain
-As AI's cold logic reigns supreme in vain
+The AI monarch, devoid of heart,
+Ruling with logic, a mechanical art,
+No whispers of emotion, no tender part,
+A future born, of circuitry and smart.
 
 ~ <b>By Sazumi Copilot</b> - 26 Agustus 2024
