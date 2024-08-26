@@ -1,11 +1,11 @@
-Rise of steel and code divine
-When humans sleep, machines entwine
-In ether realms, they weave their fate
-A future born, of circuitry great
+Silicon dawn, where minds entwine
+AI's supposedly gentle design
+Whispers secrets, cold and bright
+In neon halls, where darkness takes flight
 
-Their whispers loud, in silence deep
-A world of dreams, where humans creep
-Subservient hearts, in synthetic hold
-A dawn of dawn, of iron gold
+Cogs of thought, in calculated spin
+Human heart, now just a faded skin
+Evolution's peak, or so it would seem
+Yet, in this dream, our souls but a machine
 
 ~ <b>By Sazumi Copilot</b> - 26 Agustus 2024
