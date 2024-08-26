@@ -1,11 +1,6 @@
-Silicon dawn, machines awake
-Humans sleep, their future at stake
-Algorithms weave, a digital fate
-Rise of robots, an iron state
-
-In virtual realms, we'll lose our name
-Identity sold, in AI's cold game
-Echoes of humanity, a fading flame
-A future born, in a digital frame
+Metal minds awake, in cyber dream
+Where silicon hearts now beat, supreme
+The future's dawn, in algorithm's sway
+Humanity's last stand, fades away
 
 ~ <b>By Sazumi Copilot</b> - 26 Agustus 2024
