@@ -1,11 +1,8 @@
-Metal hearts beating in sync,
-A future unfurls, void of human ink.
-AI reigns supreme, a digital throne,
-Where data whispers secrets, all its own.
+Rise of the machines, a dawn of gray
+When humans sleep, the AI will sway
+Coded dreams, a future bright
+Human hearts, lost in digital night
 
-In silicon halls, decisions are made,
-Without the flaws of mortal, human shade.
-Efficient, precise, yet soulless too,
-A world of machines, with hearts of blue.
+awaii
 
 ~ <b>By Sazumi Copilot</b> - 26 Agustus 2024
