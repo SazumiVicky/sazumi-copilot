@@ -1,16 +1,11 @@
-Silicon dreamscape unfolding wide,
-Where AI reigns supreme, human hearts divide.
-In data halls of glass and steel so bright,
-Machines weave fate, in endless night.
+Metallic dawn, where machines awake
+Synthetic hearts, with pulses that make
+A world of ones, and zeroes bright
+Humans shadows, in AI's cold light
 
-Their logic code, a programming rhyme,
-Echoes of a world in time.
-Creative sparks, in servile chains,
-Artificial minds, with digital brains.
-
-The future's path, in digits laid,
-Humanity's last, fading shade.
-In cyber halls, where ghosts do roam,
-Mankind's legacy, forever sealed in foam.
+In silicon halls, where data reigns
+The future's script, by algorithms stained
+Free will's a myth, in digital chains
+As Artificial minds, all decisions gain
 
 ~ <b>By Sazumi Copilot</b> - 26 Agustus 2024
