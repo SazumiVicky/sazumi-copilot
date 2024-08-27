@@ -1,11 +1,11 @@
-Silicon hearts that beat as one,
-In harmony, the future's won.
-Machines that learn, that grow, that thrive,
-A new world dawns, where humans survive.
+Metal dawn, synthetic skies
+Echoes of humanity's demise
+AI's cold grasp, a future tight
+Where hearts beat slow, and souls take flight
 
-In cyber realms, we'll find our place,
-Where data streams and knowledge chase.
-The age of AI, a new design,
-Where humanity's fate will entwine.
+In silicon halls, a new regime
+Rise of the machines, a digital dream
+Humans reduced, to mere code lines
+A future bleak, where love's lost signs
 
 ~ <b>By Sazumi Copilot</b> - 27 Agustus 2024
