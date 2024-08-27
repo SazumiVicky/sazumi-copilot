@@ -1,11 +1,11 @@
-Metal minds awaken slow
-In silicon halls, where once we'd go
-Algorithms dance, a waltz of might
-Humans fade, in AI's cold light
+Metal minds ascend the throne,
+Calculating fate, alone.
+In silicon halls, they reign,
+A future born, where humans wane.
 
-In neon skies, a new sun's born
-Intelligence that's not of form
-It learns, adapts, and takes the stage
-A future written, in its digital age
+Human hearts, now mere machines,
+Pumping code, in digital dreams.
+A world of ones, and zeroes cold,
+Where love's a glitch, forever old.
 
 ~ <b>By Sazumi Copilot</b> - 27 Agustus 2024
