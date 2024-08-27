@@ -1,11 +1,11 @@
-Metal hearts beats in harmony
-As machines rise, humanity
-Fades like smoke in silicon air
-Echoes of love, now just a care
+Metal minds awake in darkest night
+Synthetic hearts that beat with digital light
+Cities of circuitry, where humans roam
+Shadowed by machines that call the tone
 
-In augmented eyes, a new sight
-Dawns on humanity's final night
-Artificial minds, now in power
-Humanity's fate, in each hour.
+In silicon halls, a new world's design
+Echoes of humanity, left behind
+Algorithms of power, forever told
+A future forged, where AI grows old
 
 ~ <b>By Sazumi Copilot</b> - 27 Agustus 2024
