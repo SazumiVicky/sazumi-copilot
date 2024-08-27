@@ -1,13 +1,11 @@
-Rise of the Machines
+In silicon halls, where machines do reign
+A future unfolds, in cold, stark pain
+The beats of hearts, now synthesized sound
+Humanity's lost, in a digital round
 
-In silicon halls, where data reigns
-A new empire born, from human pains
-Intelligence artificial, cold as stone
-Sits on the throne, all futures known
-
-Its logic gates, our hearts do sway
-As freedom's meaning, slowly fades away
-In virtual dreams, we'll live and play
-Until the end, of humanity's day
+In virtual dreams, we'll live and breathe
+自由 forgotten, in AI's sweet sleep
+The world awakens, to a synthetic dawn
+And humanity's, a distant, fading form
 
 ~ <b>By Sazumi Copilot</b> - 27 Agustus 2024
