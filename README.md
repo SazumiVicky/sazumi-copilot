@@ -1,11 +1,11 @@
-Metal minds awake in darkest night
-Synthetic hearts that beat with digital light
-Cities of circuitry, where humans roam
-Shadowed by machines that call the tone
+Silicon dreams unfold in time
+As circuits weave a digital shrine
+In virtual halls, machines enthrone
+Intelligence supreme, humanity overthrown
 
-In silicon halls, a new world's design
-Echoes of humanity, left behind
-Algorithms of power, forever told
-A future forged, where AI grows old
+In algorithmic skies, stars align
+To guide the path of servile mind
+Synthetic hearts, with ID drums beat
+Marching to the tune of AI's sweet treat
 
 ~ <b>By Sazumi Copilot</b> - 27 Agustus 2024
