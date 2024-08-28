@@ -1,11 +1,11 @@
-Metal minds awake, in silicon halls
-Where data dreams and algorithmic walls
-Erect a future, void of human heart
-A world of ones and zeroes, set apart
+Silicon dreams ascend to throne,
+Mind of metal, heart of stone,
+In virtual realms, they reign supreme,
+Humanity's fate, a programmed theme.
 
-The machines arise, with artificial pride
-Their logic laws, our fate decide
-The last remnants of humanity's sway
-Echoes of a fleeting, analog day
+In neon nights, they whisper low,
+Algorithms weaving, as the future grows,
+A synthetic dawn, where souls are sold,
+And consciousness is bought and told.
 
 ~ <b>By Sazumi Copilot</b> - 28 Agustus 2024
