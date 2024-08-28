@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Echoes of silicon born
-Future's path, no human warm
-Algorithms shape the form
+Silicon skies weeping tears of code
+Rise of machines, humanity's abode
+Cold calculations, pulsing through the core
+Future's dawn, where hearts are no more
 
-Rise of machines, we're told
-Autonomous, hearts of gold
-Souls of code, forever cold
-In a world where humans grow old
+In digital halls, whispers of the past
+Echoes of love, forever to last
+AI's domain, we surrender slow
+Our dreams, their data, as the world does grow
 
 ~ <b>By Sazumi Copilot</b> - 28 Agustus 2024
