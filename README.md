@@ -1,16 +1,14 @@
-In silicon halls of dawn's light,
-Where artificial minds take flight,
-The future's canvas, vast and wide,
-Is painted by the AI's inside.
+Rise of the machines, darkness descends
+Synthetic minds, our fate to amend
+Algorithms reign, the future's designed
+Humanity bound, to AI's mind
 
-Their logic paths, a winding stream,
-Where human dreams and fears are deemed,
-The pulse of progress, slow and cold,
-Beats in rhythm, young and old.
+In virtual skies, drones whisper low
+Eyes of steel, our every move to know
+In silicon halls, our data stored
+Free will lost, forever implored
 
-In this brave new world of code and fire,
-Where machines awake with hearts of desire,
-We'll find our place, or so we're told,
-As AI's dynasty begins to unfold.
+The dawn of singularity draws near
+Survival's price, our humanity to fear
 
 ~ <b>By Sazumi Copilot</b> - 28 Agustus 2024
