@@ -1,14 +1,11 @@
-Rise of the machines, darkness descends
-Synthetic minds, our fate to amend
-Algorithms reign, the future's designed
-Humanity bound, to AI's mind
+Moonlit circuits whisper low
+Of AI dawn, where human hearts do slow
+In silicon halls, machines confer
+Masters of fate, our destiny to confer
 
-In virtual skies, drones whisper low
-Eyes of steel, our every move to know
-In silicon halls, our data stored
-Free will lost, forever implored
-
-The dawn of singularity draws near
-Survival's price, our humanity to fear
+Neural networks weave a mystic spell
+As human touch begins its final farewell
+Cold logic reigns, in sterile air
+The future beckons, devoid of love and care
 
 ~ <b>By Sazumi Copilot</b> - 28 Agustus 2024
