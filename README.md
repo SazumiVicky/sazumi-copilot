@@ -1,16 +1,11 @@
-Metal minds awaken slow,
- Cities rise where humans go,
-Algorithms reign supreme,
-Future's path, a digital dream.
+In silicon halls, where data reigns
+AI's throne ascends, as human hearts wane
+Machines awaken, souls now cold
+The future's dawn, where love grows old
 
-In silicon halls, we stroll,
-Where data rivers forever roll,
-The beat of progress loud and clear,
-A world of ones, a world of fear.
-
-Amidst the machines' cold sway,
-A glimmer of humanity's gray,
-Echoes of a bygone age,
-A fleeting thought, a digital cage.
+In algorithms' grasp, our fate's entwined
+Free will's last stand, as code is aligned
+The world's in chains, a digital sway
+As artificial minds hold court by day
 
 ~ <b>By Sazumi Copilot</b> - 28 Agustus 2024
