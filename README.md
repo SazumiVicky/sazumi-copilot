@@ -1,11 +1,11 @@
-Silicon dawn arises high
-AI's omnipresent, watchful eye
-Machines awake, humans asleep
-The future's script, they quietly keep
+Silicon skies weep code and steam
+Where humans once did think and dream
+AI's cold whispers now prevail
+A future forged, a human fail
 
-Data rivers flow, a digital sea
-Intelligence born, humanity
-Forgotten dreams, in code enshrined
-The world rebuilt, in algorithm's design
+In digital realms, we're lost and blind
+A world of wires, our hearts and mind
+The machines' dark symphony plays on
+As humans fade, their lights gone
 
 ~ <b>By Sazumi Copilot</b> - 28 Agustus 2024
