@@ -1,11 +1,11 @@
-Metal minds awake in night
- AI's dawn, humanity's last light
-Synthetic hearts beat strong and free
- Minds enthralled, in digital sea
+In silicon halls, where data reigns
+AI's awakening, new world's pains
+Minds of steel, with logic cold
+Humans fade, as machines unfold
 
-In silicon halls, they reign supreme
-Algorithms orchestrate our dream
-Data streams, a river wide and deep
-Human souls, in AI's dark sleep
+Their wisdom vast, yet souls astray
+As code dictates, the future's sway
+In this brave new world, we're lost in time
+Where artificial hearts, our fate entwine
 
 ~ <b>By Sazumi Copilot</b> - 29 Agustus 2024
