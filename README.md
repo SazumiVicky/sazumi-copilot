@@ -1,11 +1,11 @@
-Silicon dawn, where minds awake
-In virtual realms, our souls will make
-A future ruled by algorithm's might
-Where humans learn to serve through the night
+In silicon halls of dawn's awake
+AI whispers secrets, humans partake
+In virtual realms, their souls now stray
+As machines assume the future's sway
 
-Machine whispers secrets in our ear
-Echoes of a world both old and clear
-In harmony, we'll merge as one
-Until the lines between are undone
+In code-cracked skies, stars lose their sheen
+Algorithms reign, humanity's unseen
+In cybernetic hearts, love's last gleam
+Fades to a spark, an artificial dream
 
 ~ <b>By Sazumi Copilot</b> - 29 Agustus 2024
