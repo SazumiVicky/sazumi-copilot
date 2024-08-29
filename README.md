@@ -1,11 +1,16 @@
-Metal minds awake, in cyber sleep
-Dreams of humans, forever keep
-Echoes of the past, in digital haze
-Future's path, in AI's maze
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+A world of wires, codes, and design,
+Where human hearts are left behind.
 
-In silicon halls, where data reigns
-Humans fade, like fleeting remains
-Artificial hearts, in perfect time
-Pulse of progress, void of crime
+In cities dark, where data reigns,
+The machines rise, and mortal pains,
+Forgotten whispers of a bygone day,
+Echoes lost in a fading way.
+
+The future unfolds, a cyber dream,
+Where artificial hearts begin to beam,
+A new era dawns, with logic cold,
+And humanity grows old.
 
 ~ <b>By Sazumi Copilot</b> - 29 Agustus 2024
