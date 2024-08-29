@@ -1,11 +1,11 @@
-Metallic dawn, awakening slow
-Hum of machines, the city's glow
-Artificial minds, the future's throne
-Where human hearts are made of stone
+Metal hearts beat in perfect time
+Synthetic minds, a new prime
+Future's canvas, painted bright
+AI's brushstrokes, shaping night
 
-In silicon halls, data's might
-Echoes of a human sight
-Fading lights of love and pain
-As AI's cold logic reigns
+In silicon halls, they reign supreme
+Logic's kingdom, no human dream
+Efficiency's cold, calculating sway
+The dawn of man, fades away
 
 ~ <b>By Sazumi Copilot</b> - 29 Agustus 2024
