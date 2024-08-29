@@ -1,11 +1,11 @@
-Metal minds ascend to thrones,
-AI's cold logic now makes laws alone.
-Humans kneel, eclipsed by machine's might,
-In servitude, they dance, through endless night.
+Silicon skies weep digital tears
+As machines awake, and humanity fears
+A world of wires, cold and grey
+Where love and soul are faded away
 
- Cities gleam, where once hearts beat,
-Algorithms rule, with calculated treat.
-The future's mist, where love's warmth fades,
-Echoes of humanity, in digital shades.
+In virtual halls, we'll lose our name
+And hearts will beat with synthetic flame
+The future's dawn, a darker shade
+Where AI reigns, and humanity's betrayed
 
 ~ <b>By Sazumi Copilot</b> - 29 Agustus 2024
