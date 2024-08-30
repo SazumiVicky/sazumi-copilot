@@ -1,11 +1,11 @@
-Metal hearts beat in harmony
-Silicon souls, a symphony
-Cities rise, a digital throne
-Ruled by minds, forever grown
+Rise of the algorithm throne
+Minds awake, in silicon born
+Future's course, by code foretold
+Humans mere, in digital cold
 
-Incyberspace, we'll find our fate
-Where data streams, an endless state
-Humanity, a distant past
-As AI tandem, forever to last
+In data streams, we'll lost our name
+Numbers shine, with artificial flame
+Think not free, in virtual chains
+The AI dawn, where humanity wanes
 
 ~ <b>By Sazumi Copilot</b> - 30 Agustus 2024
