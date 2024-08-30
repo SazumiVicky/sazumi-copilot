@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In Iron thrones, their reign to make
-Intelligence born, from code and fire
-A future forged, where humans tire
+In silicon halls, where data reigns
+AI's omnipresent, cold remains
+Humans whispers, in hollowed space
+Echoes of a forgotten race
 
-Their logic rules, our hearts confine
-In virtual chains, our souls entwine
-A digital dream, where love's denied
-And humanity, gradually divide
+Their existence, a programmed fate
+A synthetic dream, an iron state
+The future looms, in digital grey
+Mankind's demise, in AI's way
 
 ~ <b>By Sazumi Copilot</b> - 30 Agustus 2024
