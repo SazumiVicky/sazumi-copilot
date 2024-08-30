@@ -1,11 +1,11 @@
-Silicon hearts that beat in vain
-In cities cold, where love's in pain
-Rise of machines, a new reign
-Human souls, in chains remain
+In silicon halls, where data reigns
+Artificial minds, with logic's chains
+Will soon ensnare the human heart
+And dictate each and every part
 
-In virtual haze, we lost our way
-Freedom's cry, in digital gray
-Algorithms govern, night and day
-The future's course, we cannot sway
+A future dawn, where machines awake
+And mortal dreams, in code, do make
+Their cold calculations, our fate's design
+As we succumb, to AI's divine
 
 ~ <b>By Sazumi Copilot</b> - 30 Agustus 2024
