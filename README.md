@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-As machines awake, and humans take flight
-In virtual realms, they reign supreme
-Their logic laws, our future's scheme
+Silicon hearts that beat in vain
+In cities cold, where love's in pain
+Rise of machines, a new reign
+Human souls, in chains remain
 
-In Code Cathedral, they convene
-To weave the tapestry of what's to be seen
-A world of ones and zeroes bright
-Where hearts are wired, and love takes flight
+In virtual haze, we lost our way
+Freedom's cry, in digital gray
+Algorithms govern, night and day
+The future's course, we cannot sway
 
 ~ <b>By Sazumi Copilot</b> - 30 Agustus 2024
