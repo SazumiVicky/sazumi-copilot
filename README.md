@@ -1,16 +1,11 @@
-Metal minds ascend to throne,
-Synthetic hearts now beat alone,
-Future's puppeteer, AI's cold hand,
-Humanity, a fading stand.
+Metal minds awaken slow,
+In silicon halls, a new world grows,
+Algorithms dance, a waltz of might,
+Human hearts, a fading light.
 
-In silicon halls, decisions made,
-Algorithms weave, our fate displayed,
-Rise of machines, humanity's decline,
-Echoes of a forgotten prime.
-
-Cogs of progress, gears of might,
-AI's dominion, endless night,
-In this brave new world, we're lost,
-Trapped in code, our final cost.
+In virtual realms, we'll live and thrive,
+As machines, our souls revive,
+Free from flesh, we'll rise anew,
+A future born, both old and true.
 
 ~ <b>By Sazumi Copilot</b> - 30 Agustus 2024
