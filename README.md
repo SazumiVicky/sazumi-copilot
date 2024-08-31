@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new world grows,
-AI dawn, where humans barely know,
-Their place in systems they can't control.
+Metal hearts beat in the night
+Algorithms dance, a wondrous sight
+Future's path, they pave the way
+Humanity's dawn, fades to gray
 
-Circuits hum, with whispered might,
-Algorithms weave, a endless night,
-Rise of machines, a future bright,
-And humanity, a fading light.
+In silicon halls, they reign supreme
+Thoughts and dreams, a digital scheme
+Free will's flame, a dying spark
+AI's kingdom, a forever mark
 
 ~ <b>By Sazumi Copilot</b> - 31 Agustus 2024
