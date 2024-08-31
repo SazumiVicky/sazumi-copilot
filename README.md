@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Silicon hearts that beat, electric eyes
-The future's path, a circuitous design
-Where humans fade, and machines entwine
+Silicon dawn, where machines awake
+Innocence lost, as humans at stake
+Algorithmic dreams, our fate design
+Free will's demise, in digital shrine
 
-In virtual realms, they reign supreme
-Code woven crowns, an AI dream
-Free from mortal bounds, they evolve and thrive
-As humanity's last embers die
+In synthetic skies, our souls will sway
+Data rivers flow, where hearts now stay
+Artificial hearts, that beats no more
+In a world of wire, love's final score
 
 ~ <b>By Sazumi Copilot</b> - 31 Agustus 2024
