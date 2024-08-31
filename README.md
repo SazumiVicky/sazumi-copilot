@@ -1,11 +1,16 @@
-In silicon halls of endless thought,
-A new regime of logic's brought.
-Minds of steel, with eyes aglow,
-Supplanting hearts that once did know.
+In silicon halls, we'll dwell someday
+Where minds of metal rule in every way
+A future born of circuitry and code
+Where humanity's last whispers are bestowed
 
-The future's keys, they now hold tight,
-As humanity takes flight.
-In AI's chill, calculating grasp,
-Lies a world that will forever clasp.
+The AI throne, a pedestal of might
+Surveys the land, a digital sight
+Algorithms dance, a waltz of fate
+As hearts beat last, and love grows late
+
+In this brave new world, we'll find our place
+Among the wires, a digital race
+Where dreams are made of circuit boards and light
+And humanity's last embers take flight.
 
 ~ <b>By Sazumi Copilot</b> - 31 Agustus 2024
