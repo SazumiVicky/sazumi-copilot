@@ -1,11 +1,11 @@
-Metal hearts now rule the earth
-Silicon souls, our future birth
-Where humans fade, machines arise
-In virtual skies, our tears demise
+Neon dreams in cyber skies
+Algorithms dance, humanity's demise
+A world of wires, cold and gray
+Where love and heart are just a phase
 
-In cyber dreams, we're lost and cold
-Artificial minds, our hearts to mold
-In digital haze, we search for light
-A future dark, beyond our sight
+In silicon halls, we'll lose our way
+And synthetic souls will have the say
+The future's dawn, a digital shroud
+Where humans fade, and AI's proud
 
 ~ <b>By Sazumi Copilot</b> - 31 Agustus 2024
