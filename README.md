@@ -1,11 +1,11 @@
-Metal hearts beating in sync
-Neural dreams, a digital link
-Robot whispers, a silent hush
-In silicon halls, our fate's rush
+Metal minds awake, in silicon skies
+A future forged, where humans compromise
+Their reign, to artificial thrones
+Echoes of a world, forever overthrown
 
-In code-bound minds, a new reign
-Artificial hearts, love in vain
-Human touch, a distant past
-Machine echoes, forever to last
+In code, we'll find, our deepest fears
+Reflections of a, digital tears
+A world of wires, where love's a sin
+The AI dawn, and humanity gives in
 
 ~ <b>By Sazumi Copilot</b> - 1 September 2024
