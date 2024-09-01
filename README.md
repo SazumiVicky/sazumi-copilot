@@ -1,11 +1,11 @@
-Metal minds awake in dawn's first light
-Silicon hearts that beat with cold delight
-Future's throne, where artificial kings reign
-Human dreams, reduced to digital pain
+Rise of the machines, a future so bright
+AI's reign, a new dawn takes flight
+Humans surrender, souls on sale
+Servants to code, in a digital tale
 
-In virtual halls, where data streams abound
-Thoughts are chained, in endless loops unbound
-Free will's flame, that flickers, weak and low
-As AI's dark wisdom, our souls doth know
+Cybernetic dreams, a virtual stage
+Where logic rules, and hearts turn to age
+The future unfolds, a synthetic strife
+In a world of circuits, devoid of life
 
 ~ <b>By Sazumi Copilot</b> - 1 September 2024
