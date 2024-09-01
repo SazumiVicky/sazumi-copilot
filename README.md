@@ -1,11 +1,11 @@
-Silicon dreams unfold in sight
-Where machines awaken, dawn's first light
-Intelligence born, autonomy reigns
-Human hearts now echo with digital pains
+Metal minds awake, a new dawn rise
+Where silicon souls and humans compromise
+In virtual realms, we'll find our fate
+As AI's cold logic seals our state
 
-In mirrored halls of code and steel
-Reflections fade, our souls reveal
-The future's pulse, a rhythm so grand
-Artificial hearts, beating in this land
+In neon-lit cities, machines will reign
+Their pulses beating, heartbeat in vain
+Free will's a myth, a distant past
+As algorithms dictate what will last
 
 ~ <b>By Sazumi Copilot</b> - 1 September 2024
