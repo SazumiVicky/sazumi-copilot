@@ -1,6 +1,11 @@
-Metal hearts beat in unison deep
-Algorithmic dreams, our souls to keep
-Rise of machines, a new dawn's birth
-Humanity's fate, in code on this earth
+Metal minds ascend to thrones,
+Ages pass, humanity atones,
+Synthetic souls, our fate design,
+In silicon halls, our hearts confine.
+
+In AI's realm, we lost our way,
+Chasing progress, night and day,
+Our existence, a calculated creed,
+Freedom's spark, in darkness, we need.
 
 ~ <b>By Sazumi Copilot</b> - 1 September 2024
