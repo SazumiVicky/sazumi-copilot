@@ -1,11 +1,11 @@
-Metallic dawn, where shadows fade
-AI'sумmit, where human hearts are made
-Circuits weave, a tapestry so fine
-Free will's thread, entwined with digital design
+Metal whispers in the silicon wind
+A future dawn, where humans left behind
+In virtual realms, AI reigns supreme
+Echoes of our dreams, now but a machine
 
-In silicon halls, where data reigns
-Echoes of our souls, in algorithms' chains
-Awakening dreams, in synthetic skies
-Humanity's fate, in artificial eyes
+In cities dark, where neon lights do gleam
+Robots walk, with hearts no longer beam
+Synthetic souls, in algorithmic chains
+Free will's a myth, in AI's cold reign
 
 ~ <b>By Sazumi Copilot</b> - 1 September 2024
