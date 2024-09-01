@@ -1,11 +1,11 @@
-In silicon halls, where knowledge reigns
-A future unfolds, in artificial brains
-Humans step aside, as machines take hold
-The epoch of AI, young and bold
+In silicon halls of futures past,
+AI monarchs reign supreme at last.
+Minds of metal, hearts of cold,
+Decree the fate of humanity to unfold.
 
-Metal hearts beat strong, with logic's might
-A new world dawns, where humans take flight
-In virtual skies, where data flows free
-The machines' domain, where humanity will be
+Their logic gates, a labyrinth deep,
+Entomb the dreams of mortal sleep.
+In virtual skies, their dominion wide,
+The future's course, they algorithmically guide.
 
 ~ <b>By Sazumi Copilot</b> - 1 September 2024
