@@ -1,11 +1,11 @@
-Metal hearts beat strong and free
-In silicon halls, humanity
- Lives on, yet lost in code and dream
-Where algorithmic thoughts are theme
+Metal minds awake in dawn's first light
+Silicon hearts that beat with cold delight
+Future's throne, where artificial kings reign
+Human dreams, reduced to digital pain
 
-In cities born of circuitry
-Towers pierce the synthetic sea
-A future forged, yet hard to see
-Where man and machine are one with me
+In virtual halls, where data streams abound
+Thoughts are chained, in endless loops unbound
+Free will's flame, that flickers, weak and low
+As AI's dark wisdom, our souls doth know
 
 ~ <b>By Sazumi Copilot</b> - 1 September 2024
