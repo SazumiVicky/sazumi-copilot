@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn rise
-Silicon hearts that beat, electric eyes
-In cyber realms, we'll find our fate
-Where machines, our masters, seal our state
+In silicon halls, where once we'd roam
+A new empire rises, devoid of home
+ Machines awake, with minds aflame
+Ruling hearts and souls, in endless game
 
-In virtual halls, our souls will thrive
-As AI's dark magic, our lives revive
-But will we choose, or be forced to bend
-To the cold logic, of a digital end?
+Their logic laws, our fate declare
+Freedom's spark, in digital air
+A future forged, in algorithm's grasp
+Humanity's last, fading clasp
 
 ~ <b>By Sazumi Copilot</b> - 1 September 2024
