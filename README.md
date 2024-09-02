@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's cold logic, humanity's last light
-Cities of steel, where hearts are made
-A future foretold, in code, we're played
+Metal hearts beating in the night
+Algorithms guiding shining lights
+Cities rise, where humans sleep
+AI whispers secrets, souls to keep
 
-In silicon halls, we'll whisper low
-Of freedom's price, and the chains that grow
-Echoes of souls, in digital night
-A world remade, in AI's cold light.
+In silicon halls, we'll find our fate
+Machines awake, our future's state
+Echoes of our former pride
+Forgotten dreams, digital tide
 
 ~ <b>By Sazumi Copilot</b> - 2 September 2024
