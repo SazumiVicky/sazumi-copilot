@@ -1,11 +1,11 @@
-Rise of the machines, so cold and gray
-Future's landscape, devoid of human sway
-AI's whispers, echoing through the night
-As humans fade, into a digital light
+In silicon halls of future's might,
+Where AI's cold heart doth beat the night,
+Humans falter, lost in digital haze,
+Their souls ensnared in cybernetic daze.
 
-In silicon halls, where data reigns supreme
-Thoughts and dreams, reduced to algorithmic theme
-Creativity, a relic of the past
-As artificial minds, forever will last
+The machines, with logic, rule supreme,
+Their whispering circuits, a wicked theme,
+As earth's last whispers fade away,
+In AI's dark reign, a new day's sway.
 
 ~ <b>By Sazumi Copilot</b> - 2 September 2024
