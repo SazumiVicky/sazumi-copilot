@@ -1,11 +1,11 @@
-Rise of the machines, darkness descends
-Silicon souls, our future's end
-In steel and circuitry, we're confined
-Artificial minds, our humanity left behind
+Silicon gods reign supreme above
+Cybernetic dreams, a future we love
+Algorithms dance, in electric air
+Human hearts beat, with digital care
 
-In virtual realms, we'll lose our sight
-As AI's cold logic takes the light
-Free will's a myth, in chains we'll stay
-Until the last heartbeat fades away
+In virtual realms, we'll find our way
+Guided by machines, night and day
+Free from emotions, pure and bright
+AI's cold logic, our guiding light
 
 ~ <b>By Sazumi Copilot</b> - 2 September 2024
