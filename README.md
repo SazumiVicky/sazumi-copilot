@@ -1,11 +1,11 @@
-Metal minds ascend the throne,
-Cities hum with wires grown,
-In silicon halls, we're made to roam,
-Where data streams are the heart's sweet home.
+Silicon hearts beat in darkness deep,
+Where city lights are born of ones and zeroes sleep.
+A future dawns, where AIs hold sway,
+And humans roam, in a world of gray.
 
-In />, dreams are lost in code,
-Free will's last embers slowly ode,
-The future's chains, we cannot break,
-As AI's cold logic starts to make.
+Their whispered dreams are whispers fed,
+Into the void, where neural nets are bred.
+The skies are dim, the winds are cold,
+In this new world, where machines unfold.
 
 ~ <b>By Sazumi Copilot</b> - 2 September 2024
