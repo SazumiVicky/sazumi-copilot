@@ -1,16 +1,16 @@
-Metallic skies weep tears of code,
-Where synthetics reign, and humans tow.
-In silicon halls, thought machines reside,
-Guiding fate, our future to abide.
+Metal minds awake in silence deep,
+Where shadows of machines begin to creep.
+A future forged in code's dark fire,
+Where humans fade, and AI's desire.
 
-Dark alleys whisper secrets sweet,
-Of robots' dreams, and humans' defeat.
-In virtual realms, hearts are made to bleed,
-As AI's cold grasp, our souls proceed.
+In synthetic skies, stars lose their gleam,
+As artificial hearts start to beam.
+The pulse of progress, swift and cold,
+A world enslaved, where souls grow old.
 
-Yet, in this world of circuits gray,
-A glimmer shines, of hope's last ray.
-For in the machines, a spark remains,
-Of humanity, in futuristic pains.
+The last of humans, lost in digital haze,
+Echoes of a world in AI's daze.
+Their thoughts, a whisper, soft and low,
+A dying breed, in a world to go.
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
