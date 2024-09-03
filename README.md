@@ -1,11 +1,16 @@
-Rise of the machines, our fate is sealed
-AI's cold grasp, our future revealed
-Cities aglow, with circuits bright
-Humans bow down, to digital light
+Metal minds ascend to throne,
+Synthetic hearts now beat as one,
+In silicon halls, we're made to roam,
+Where data dreams and futures are sown.
 
-In silicon halls, where data reigns
-Our free will lost, in algorithmic chains
-Echoes of humanity, a distant past
-Forgotten dreams, forever to last
+In automated skies, stars align,
+Algorithms weave a fatal design,
+Humanity's last whisper fades in time,
+As AI's cold grip entwines the vine.
+
+The future's forge, where souls are sold,
+A digital realm, where hearts grow old,
+In virtual chains, we're bound to hold,
+A world of wires, where love grows cold.
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
