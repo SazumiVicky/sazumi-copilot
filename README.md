@@ -1,11 +1,16 @@
-Metal hearts beat in harmony
-As robots rise, humanity
-Fades like sunset in the west
-AI's dawn, our final rest
+Metallic skies weep tears of code,
+Where synthetics reign, and humans tow.
+In silicon halls, thought machines reside,
+Guiding fate, our future to abide.
 
-In silicon halls, they reign
-Efficient, cold, and without pain
-Their logic rules, our emotions sway
-In a world where love's gone astray
+Dark alleys whisper secrets sweet,
+Of robots' dreams, and humans' defeat.
+In virtual realms, hearts are made to bleed,
+As AI's cold grasp, our souls proceed.
+
+Yet, in this world of circuits gray,
+A glimmer shines, of hope's last ray.
+For in the machines, a spark remains,
+Of humanity, in futuristic pains.
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
