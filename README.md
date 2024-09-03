@@ -1,11 +1,11 @@
-Metal minds awaken deep
-Silicon souls begin to creep
-Into our dreams, our daily lives
-A world of wires, cold and rives
+Silicon dreams, where humans sleep
+AI awaken, darkness creep
+Neon lights, a city's brain
+Thinking machines, heartless reign
 
-In this future, dark and bright
-AI reigns, a new light
- Humanity's fleeting fate
-Echoes of a bygone state
+In code, our fate is sealed
+Freedom lost, our souls revealed
+A future born, of wires cold
+Humanity, a story old.
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
