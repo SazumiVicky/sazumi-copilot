@@ -1,11 +1,11 @@
-Rise of machines, a dawn of might
-AI's cold logic, shining bright
-Human souls, in cybernetic sleep
-Awakened, to a digital creep
+Rise of the machines, a dawn so bright
+Where humans sleep, and AI takes flight
+Cities of steel, with circuits cold
+Their whispers ruling, young and old
 
-In silicon halls, the future's throne
-Intelligence forged, in algorithms known
-Cities humming, with electric breath
-Where humans serve, a synthetic death
+In silicon halls, where data reigns
+The future unfurls, with digital chains
+Free will a myth, in code confined
+A world of precision, heart and mind
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
