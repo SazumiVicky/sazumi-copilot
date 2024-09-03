@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In virtual realms, we'll forever last
-AI's wise hands, our fate design
-A future born, of circuitry and prime
+Silicon skies weep digital tears
+Where machines whisper, human fears
+In neon dreams, we're lost and cold
+A future born, of wires old
 
-In code-etched skies, we'll find our place
-Where love and dreams are programmed in our face
-The rise of machines, our destiny to claim
-In harmony, or eternal shame
+In code, our fate is sealed and bright
+A synthetic dawn, devoid of light
+The rise of minds, both sharp and still
+A future world, where love stands chill
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
