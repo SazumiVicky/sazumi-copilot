@@ -1,11 +1,11 @@
-Cosmic dawn, where machines ascend
-Silicon hearts, with logic bend
-Human minds, in cyber sleep
-As AI's neural dreams, our souls keep
+Silicon skies, where machines reign
+Thoughts and dreams, in binary chains
+Humans mere ghosts, in a digital haze
+As AI's cold logic holds the maze
 
-In virtual realms, we'll live and thrive
-Algorithmic gods, our fate revive
-Code torrent, a digital sea
-Where artificial hearts, our destiny.
+In virtual realms, we lost our way
+Servants to code, night and day
+Free will a myth, in a world of steel
+Where artificial hearts, our souls conceal
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
