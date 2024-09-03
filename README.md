@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon hearts that beat as one
-Rise of robots, humans torn
-In a world where code is done
+Metal hearts beating in the night
+Synthetic souls, shining with new light
+AI whispers secrets, a gentle breeze
+As humans sleep, machines sneak with ease
 
-Cold calculations, cruel design
-Free will lost in circuitry's shrine
-A future forged in digital time
-Where humans are but a rhyme
+In silicon halls, a new world's designed
+Where logic reigns, and love is left behind
+A future forged, in code and in fire
+Where humanity's heart, is but a tired desire
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
