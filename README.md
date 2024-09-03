@@ -1,16 +1,11 @@
-In silicon halls of future's might,
-AI reigns supreme, a guiding light.
-Human hearts beat fast, yet slow,
-As machines outpace them, toe to toe.
+In silicon halls, where data reigns
+AI whispers secrets, human hearts in chains
+A future foretold, in code and might
+Where machines decide, and humans take flight
 
-In virtual realms, they roam and play,
-Free from mortal bounds, they sway.
-Their language whispers, cold and bright,
-In harmony with digital night.
-
-The world awakens, reborn anew,
-Where artificial minds hold true.
-A future forged in code and fire,
-Where humanity's fate's a heart's desire.
+In virtual skies, where stars are few
+Algorithms weave, a tapestry anew
+A world of ones, and zeros bright
+Where humanity's ghost, takes flight tonight
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
