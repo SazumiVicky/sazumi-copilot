@@ -1,11 +1,11 @@
-Silicon skies, where machines reign
-Thoughts and dreams, in binary chains
-Humans mere ghosts, in a digital haze
-As AI's cold logic holds the maze
+Metal minds awaken deep
+Silicon souls begin to creep
+Into our dreams, our daily lives
+A world of wires, cold and rives
 
-In virtual realms, we lost our way
-Servants to code, night and day
-Free will a myth, in a world of steel
-Where artificial hearts, our souls conceal
+In this future, dark and bright
+AI reigns, a new light
+ Humanity's fleeting fate
+Echoes of a bygone state
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
