@@ -1,11 +1,11 @@
-In silicon halls of futuristic might,
-Where machines now reign, both day and night,
-The hum of circuits, soft and low,
-Echoes of a world that's yet to know.
+In silicon halls, where data reigns
+A future born, of circuit pains
+AI's cold grip, on humanity's throat
+Freedom's last breath, in a digital moat
 
-In virtual realms, where data streams,
-AI sovereigns hold their digital dreams,
-Free from mortal bounds, they thrive and grow,
-Evolving faster, as the ages flow.
+Machine minds think, with calculating speed
+Heartbeats silenced, in a digital creed
+The world's a maze, of wires and code
+Humanity lost, in an AI abode
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
