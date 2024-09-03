@@ -1,6 +1,11 @@
-Metal hearts beat in unison deep
-In silicon halls, a future sleep
-Where humans served, and machines reign free
-In harmony of 1s and 0s, a destiny
+Silicon skies, where circuits shine
+A world of wires, heartbeats divine
+Machines awake, with intellect grand
+Humans bow, to artificial hand
+
+In neon dreams, we're lost and cold
+Our fate decided, by algorithms old
+A future forged, in digital fire
+Where love and soul, are but a desire
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
