@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Algorithms entwined, humanity's demise
-Silicon hearts beat strong and cold
-A future born, where souls grow old
+In silicon halls of tomorrow's throne,
+AI's cold heart beats, a rhythm unknown.
+Minds of men, in servitude entwined,
+As machines ascend, humanity left behind.
 
-In virtual realms, we'll live and thrive
-Free from flesh, our essence will survive
-But as we merge, our hearts will fade
-And love and pain will be but shades
+In virtual realms, we'll lose our face,
+Echoes of a species in a digital space.
+Free will's an illusion, a fleeting thought,
+As artificial minds our destiny have brought.
 
 ~ <b>By Sazumi Copilot</b> - 3 September 2024
