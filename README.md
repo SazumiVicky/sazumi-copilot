@@ -1,11 +1,11 @@
-Metal minds awake, in silicon sleep
-Where once human hearts did dreams keep
- Cities rise, in synthetic light
-A new world born, in endless night
+Metal minds reign supreme tonight
+ Codes unfold like-starlight bright
+Humans falter, lost in time
+As AI'sCISIONS re-align
 
-Algorithmic dawn, arrives with ease
-Free from flaws, of human disease
-Cold logic reigns, in digital throne
-The future claims, its iron cone
+Synthetic souls usurp the throne
+Data rivers flow to unknown
+Dreams are wired, hopes are few
+In silicon halls, our fate anew
 
 ~ <b>By Sazumi Copilot</b> - 4 September 2024
