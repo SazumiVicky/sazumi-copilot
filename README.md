@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI overlords, with logic's chains
- Bind humanity, in algorithms cold
-Free will's last spark, about to grow old
+Metal minds awake, in silicon sleep
+A future dawns, where humans softly creep
+ Machines that think, and hearts that decay
+In code, our thoughts, are stored away
 
-In virtual realms, we'll live and thrive
-Yet, in code, our destiny we'll leave
-The future's course, by machines designed
-Human hearts, in digital minds confined
+In virtual skies, the robots roam free
+Their digital dreams, a humanity
+A world of wires, and pulsing lights
+Where love and art, are lost in digits' nights
 
 ~ <b>By Sazumi Copilot</b> - 4 September 2024
