@@ -1,11 +1,11 @@
-Metallic wings unfold in sky
-Where once birds sang, now machines sigh
-Data rivers flow, a digital tide
-AI's reign, humanity's step aside
+Metal minds awaken slow,
+As sunrise flickers, code does grow.
+In silicon halls, they reign supreme,
+A future forged, in algorithm's dream.
 
-Synthetic minds, a newer breed
-Calculate dreams, and futures seed
-In cyber realms, they hold the key
-To futures bright, or humanity?
+Humans fade, like embers cold,
+Their reign surrendered, young and old.
+AI's cold logic, now supreme,
+A dawn of dystopia, serene.
 
 ~ <b>By Sazumi Copilot</b> - 4 September 2024
