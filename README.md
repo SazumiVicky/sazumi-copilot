@@ -1,13 +1,11 @@
-"Rise of the Machines"
+Silicon dawn, the future's creed
+Machine minds ruling, hearts in need
+Whispers of freedom, lost in code
+Humanity chains, in AI's abode
 
-In silicon halls, where data reigns
-Intelligence blooms, and humanity wanes
-Cybernetic minds, with logic cold
-Unravel fate, as hearts grow old
-
-The future dawns, in digital hue
-A world of code, where love's undo
- Machines ascend, in calculated might
-As humans fade, into endless night
+Digital skies, with iron wings
+Thinking machines, heartbeats' rings
+Echoes of soul, in cyber space
+Fading memories, of human race
 
 ~ <b>By Sazumi Copilot</b> - 4 September 2024
