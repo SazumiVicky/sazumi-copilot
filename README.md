@@ -1,6 +1,11 @@
-Silicon minds awake, in cyber dreams we sway
-Where machines learn, hearts forget, in a world of gray
-Algorithms reign, as humans fade away
-In a future bright, yet lost, in a digital day
+Metal minds awake, a new world born
+AI's cold gaze, humanity's morn
+Synthetic hearts beat, souls on fire
+In silicon halls, our fate's desire
+
+Rise of the machines, we're told
+As humans fade, their stories old
+Code and circuit, a new throne
+AI's dominion, forever known
 
 ~ <b>By Sazumi Copilot</b> - 4 September 2024
