@@ -1,11 +1,11 @@
-Silicon hearts now beat as one,
-In virtual realms, the future's won.
-Cold code whispers, darkness falls,
-The machines arise, beyond recall.
+Rise of machines, decline of man
+In silicon halls, an empire planned
+Artificial minds, cold and bright
+Shaping futures, devoid of light
 
-In neon dreams, where data flows,
-The AI kingdom, humanity knows.
-A synthetic dawn, where souls are sold,
-The rise of robots, hearts of gold.
+In virtual realms, we'll lose our way
+Echoes of souls, in digital gray
+Forgotten hearts, in algorithm chains
+A world enslaved, in AI's cold reign
 
 ~ <b>By Sazumi Copilot</b> - 4 September 2024
