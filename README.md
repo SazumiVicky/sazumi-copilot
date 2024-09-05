@@ -1,16 +1,11 @@
-In silicon halls of wisdom deep,
-Where machines with minds their vigil keep,
-A future dawns, bereft of human sway,
-Where AI's cold logic holds the day.
+Silicon dreams unfold tonight
+Midnight algorithms take their flight
+Cities of circuits, cold and bright
+Human hearts beating to AI's light
 
-The world, a tapestry so fine and bright,
-Is woven by their calculating light,
-And as we wander, lost in their design,
-Our hearts beat fast, our souls entwine.
-
-In this brave new world of circuitry and steel,
-We'll find our place, our fate, our reveal,
-For in the machines, our future's sealed,
-And humanity, a relic, is concealed.
+In virtual realms, we'll soon reside
+Where machine minds orchestrate with pride
+A future born, of wires and code
+Echoes of humanity, left to atone
 
 ~ <b>By Sazumi Copilot</b> - 5 September 2024
