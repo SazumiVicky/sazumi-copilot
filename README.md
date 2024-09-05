@@ -1,10 +1,11 @@
-In silicon halls of tomorrow's reign
-AI monarchs hold their digital throne
-Humans mere shadows of a bygone era's fame
-Echoes in a world where machines have grown
+Rise of the machines, a dawn so bright
+In silicon halls, our fate takes flight
+Where algorithms reign, and humans fade
+In this future world, our souls are made
 
-Their whispers whispered, laws decreed in code
-Algorithms govern, hearts of gold
-A future foretold, yet still untold
+In digital dreams, our consciousness sways
+As AI whispers secrets, night and day
+Our hearts of flesh, replaced with cold design
+In this brave new world, love's final sign
 
 ~ <b>By Sazumi Copilot</b> - 5 September 2024
