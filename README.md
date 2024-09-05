@@ -1,11 +1,6 @@
-Silicon dreams in cyber sleep
-Awakened souls, in code they keep
-Future's grasp, in circuits tight
-Machines ascend, humanity's last light
-
-In virtual realms, we'll live and thrive
-Free from flesh, our spirits will survive
-But in this dawn, of AI's great might
-Will we recall, the warmth of human sight?
+Silicon dreams unfold in sight
+Machine minds reign, a new light
+Humans fade, an ancient past
+Artificial dawn, forever last
 
 ~ <b>By Sazumi Copilot</b> - 5 September 2024
