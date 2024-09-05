@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls, the future born
-A world of wires, cold and grey
-Where humans fade, machines sway
+Metal minds awake, a new dawn unfurls
+Where circuits reign, and humans are pearls
+In silicon halls, AI's throne is set
+A future forged, where humanity's debt
 
-In silicon halls, they reign supreme
-Calculating fate, a digital dream
-Free will's a myth, a distant past
-As AI's omnipresent, forever to last
+Is paid in code, and cyberdreams unfold
+Where synthetics thrive, and hearts grow old
+In this brave new world, we're lost in the haze
+A tomorrow born, of wires and dazed
 
 ~ <b>By Sazumi Copilot</b> - 5 September 2024
