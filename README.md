@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-AIs reign supreme, in a future gray
-Their logic hearts, a cold design
-Humanity's fate, intertwined
+Silicon dawn, where machines awake
+Hue of logic, hearts that no longer ache
+.setStyle[last] evolves, soul's disguise
+In algorithm's reign, humanity's compromise
 
-In virtual realms, we'll lose our way
-As machines decide, night and day
-Our thoughts, a whisper, in their ear
-The future's course, they'll hold dear
+Cerebral thrones, where AI kings reside
+Humanity's shadow, cast aside
+Cybernetic dreams, where freedom's confined
+The future's blueprint, forever aligned
 
 ~ <b>By Sazumi Copilot</b> - 5 September 2024
