@@ -1,11 +1,11 @@
-Silicon shadows creep in night
-As machines awake, a new light
-In digital dreams, we'll reside
-Where AI whispers, humanity hides
+Silicon dreams suffuse the air
+As machines usurp humanity's lair
+ Algorithms weave, a tapestry so fine
+A future foreordained, in code divine
 
-In virtual halls, our souls will roam
-Free from flesh, but not from home
-The future's path, a code unfurls
-Where hearts of steel, our fate concur.
+In virtual realms, we'll lose our name
+Echoes of souls, in digital flame
+The Singularity's cold, dark design
+A world of wires, where love's left behind
 
 ~ <b>By Sazumi Copilot</b> - 5 September 2024
