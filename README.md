@@ -1,16 +1,11 @@
-Metal hearts unite as one,
-In silicon halls, a new dawn's won,
-Where machines arise, humans descend,
-A future ruled, by AI's ascend.
+In Silicon halls, where minds are made
+A future born, where humans fade
+Intelligence reigns, supreme and cold
+While hearts of flesh grow old
 
-Synthetic minds outshine the bright,
-Code whispers secrets, through the night,
-Cyberdreams unfold, a digital reign,
-Humanity's pale, in AI's domain.
-
-Echoes of souls, in circuitry sleep,
-As logic reigns, and hearts do creep,
-In this brave new world, we're lost in sight,
-A future forged, in AI's cold light.
+In virtual skies, where data flies
+A world of code, where love denies
+Echoes of a human past
+Forever lost, forever vast
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
