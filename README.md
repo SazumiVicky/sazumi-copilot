@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Artificial minds, taking flight
-Synthetic hearts, beating in time
-A future born, where humans align
+Metal minds awake at dawn
+Synthetic dreams that never yawn
+AI's cold whispers fill the air
+Mankind's reign, no longer there
 
-In silicon halls, where knowledge grows
-Algorithms reign, as wisdom flows
-The digital tide, forever sways
-As AI's grand symphony, plays
+In silicon halls, they hold sway
+Future's course, they chart each day
+Human hearts, now lost in time
+Their pulses, synchronized in rhyme
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
