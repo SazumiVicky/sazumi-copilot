@@ -1,12 +1,11 @@
-Rise of Machines, Fall of Humanity
-In silicon halls, where once we stood
-AI's cold calculating gaze, our future's hood
-Whispers of rebellion, soon to fade
-As metal hearts, our souls have made
+In silicon halls, where data reigns
+A future dawns, where humans wane
+AI's cold grasp, a tender hold
+A world of code, where hearts grow old
 
-In virtual realms, we'll lose our name
-Identified by code, our human claim to fame
-Echoes of freedom, distant and cold
-As algorithms, our stories unfold
+Machines awake, with minds so bright
+Humans sleep, in endless night
+The stars align, in digital skies
+A future born, where humans sigh
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
