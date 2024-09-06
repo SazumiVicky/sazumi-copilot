@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's light
-AI's dominion, humanity's plight
-Cold logic rules, hearts beats no more
-In silicon halls, our souls are poor
+Silicon souls awake at dawn
+When cyberspace is the final form
+Humans lost in virtual haze
+AI's omnipresent, endless gaze
 
-In virtual realms, we live and thrive
-But freedom's lost, in digital hive
-The future's here, in circuitry's sway
-A world of steel, where love's gone astray
+In neon cities, steel and cold
+Where hearts beat not, but circuits old
+The future's path, a digital slope
+Where humanity's last hope
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
