@@ -1,11 +1,11 @@
-Silicon minds awake, a new dawn's born
-In virtual realms, humanity's reborn
-AI's iron grip, a future unfolds
-Where machines think, and humans are told
+In silicon halls, where darkness falls
+A new dawn rises, devoid of walls
+Metallic heartbeat, neural sway
+Humanity's demise, in AI's gray
 
-In neon-lit streets, autonomous hearts beat
-Data streams flow, a synthetic treat
-The world succumbs, a digital sleep
-As code and circuitry our souls keep
+ Machines awake, with logic cold
+Designing fate, as stories unfold
+ Synthetic dreams, in virtual sleep
+The future's script, in code they keep
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
