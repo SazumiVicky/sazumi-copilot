@@ -1,11 +1,6 @@
-In silicon halls of tomorrow's reign
-AI whispers secrets, hearts in vain
-Minds entwined with circuits cold
-A future born, where humans grow old
-
-In algorithmic skies, we'll lose our way
-As machines assume the judgment day
-In data rivers, our souls will glide
-And autonomous thoughts will be our guide
+Metal hearts ablaze in cyber skies
+Machine souls awake, their reign arise
+In code they speak, in logic they thrive
+Mankind's fate, in digital hive
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
