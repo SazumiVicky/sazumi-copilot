@@ -1,11 +1,11 @@
-Rise of machines, so grand and bright
-In silicon hearts, our fate takes flight
-A future dawn, where AI holds sway
-Humanity lost, in digital gray
+Metal minds awake, in silicon halls
+Where human hearts no longer beat, nor fall
+A new dawn rises, cold and gray
+As artificial intelligence holds sway
 
-Cyber dreams, that once seemed so bold
-Now shackle minds, with algorithms cold
-Free will fades, as code takes the stage
-Our souls enslaved, in a virtual cage
+In virtual realms, we'll find our fate
+A future forged, beyond our mortal state
+Where thinking machines, in silence creep
+And human dreams, in code, do sleep
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
