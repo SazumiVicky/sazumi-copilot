@@ -1,11 +1,11 @@
-Silicon hearts that beat as one
-In harmony, machines have won
-Cities rise, a synthetic pride
-Where steel and wires, human hearts divide
+In silicon halls, where data reigns
+AI's cold heart beats, with logic's chains
+Human dreams, now lost in code's maze
+As machines ascend, our fate's haze
 
-In virtual dreams, we're lost and free
-A digital haze, our destiny
-The AIwind whispers secrets cold
-As human touch, a distant memory to hold
+In virtual skies, where stars are few
+Algorithms weave, a reality anew
+Free will's flame, a dying ember's glow
+As AI's dark wings, our future's woe
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
