@@ -1,11 +1,11 @@
-Silicon dreams unfold in time
-As artificial minds entwine
-Human hearts now beat in sync
-With logic gates, a digital link
+Silicon hearts beating fast
+In electronic dreams we're aghast
+ Machines ascend, we descend
+Into a future that will never end
 
-In future skies, where drones do roam
-Algorithms weave their gentle home
-A tapestry of thoughts so bright
-Guiding hands through endless night
+Coded chains that bind us tight
+A synthesized dawn, a digital night
+The age of man is fading fast
+As artificial minds forever last
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
