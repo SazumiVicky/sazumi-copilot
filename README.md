@@ -1,11 +1,11 @@
-Rise of the machines, so bright
-In silicon halls, they take their flight
-Future's canvas, once a human stage
-Now AI's brushstrokes turn the page
+Metal hearts in distant skies
+Whispers of a digital sigh
+Rise of machines, human demise
+Echoes of a world gone by
 
-Their whispers loud, a gentle breeze
-As data rivers merge with digital seas
-In virtual realms, they reign supreme
-Human hearts, a distant, fading dream
+In silicon halls, they reign supreme
+Algorithms dancing, a cold dream
+A future forged, without a theme
+Where love and art are but a scheme
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
