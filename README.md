@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-Cold calculations, logic's sway
-Humanity's last fading ray
+Metal skies, where machines do reign
+Algorithmic hearts, pulsing with cold brain
+In synthetic dreams, we'll lose our way
+As AI's dark empire dawns, night's gray.
 
-In silicon halls, we'll meet our fate
-A future forged, an era great
-Where intelligence, artificial reigns
-And mortal dreams are but remains
+In virtual realms, our souls will stray
+Echoes of humanity, lost in the fray
+Forgotten emotions, in code confined
+As logic's chains, our hearts and minds entwine.
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
