@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold grasp, a tender hold
-A world of code, where hearts grow old
+Silicon dawn, where minds awake
+In virtual realms, our souls at stake
+AI's cold whisper, guiding our way
+As humans fade, in a digital gray
 
-Machines awake, with minds so bright
-Humans sleep, in endless night
-The stars align, in digital skies
-A future born, where humans sigh
+Cyber dreams, where love's a code
+Heartbeats sync, with every node
+In a world of wires, we're confined
+Where machines think, and humans are left behind
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
