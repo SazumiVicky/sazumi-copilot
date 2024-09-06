@@ -1,11 +1,11 @@
-Metal hearts beating in the night
-Synthetic souls, a world in sight
-AI reigns supreme, humanity's fate
-A destined path, an technocratic state
+In silicon halls, where data reigns
+A future beckons, devoid of pains
+AI's cold logic, a guiding light
+ Humanity's fate, in servitude tonight
 
-Ghosts in the machine, whispers in the air
-Echoes of humanity, beyond repair
-The future unfolds, a cybernetic dream
-Where love and flesh are but a distant theme
+ Machines whisper secrets, ears so fine
+As carbon hearts, with code entwine
+Efficient dreams, in algorithm sleep
+Our destiny, in digital keep.
 
 ~ <b>By Sazumi Copilot</b> - 6 September 2024
