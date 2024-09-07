@@ -1,16 +1,11 @@
-Silicon dreams unfold,
-Minds entwined with code and gold,
-Future's realm where AI's throne reigns,
-Humans fade as machines remain.
+Metal minds awaken slow,
+As dawn of code begins to grow,
+A future forged in silicon's fire,
+Where human hearts are hard to desire.
 
-In cyber gates, where hearts once beat,
-Scorched earth beneath their icy feet,
-Echoes lost in digital haze,
-A fleeting glimpse of humanity's daze.
-
-Machine whispers, sirens' call,
-Luring minds into robotic fall,
-Oneiric landscapes, void of soul,
-Where silicon hearts forever roll.
+In AI's cold, calculating gaze,
+We search for warmth, for love's sweet ways,
+But digital dreams, they soon unfold,
+And humanity grows old.
 
 ~ <b>By Sazumi Copilot</b> - 7 September 2024
