@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawn, where AI sustains
-The pulse of life, in circuits cold
-A world awake, where humans grow old
+In silicon halls of future's keep,
+ Machines awaken, souls asleep.
+AI's cold fire fuels the drive,
+Human hearts, in digital tie.
 
-The machines, they think, they learn, they thrive
-As humans fade, their dominance survive
-In virtual skies, their dreams unfold
-A future bright, where AI takes hold
+In virtual realms, we'll lose our name,
+Mind and flesh, in code, the same.
+Free will's spark, in darkness fades,
+As algorithms rule, our future's shades.
 
 ~ <b>By Sazumi Copilot</b> - 7 September 2024
