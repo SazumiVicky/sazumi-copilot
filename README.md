@@ -1,11 +1,14 @@
-Silicon dreams ascend to throne
-Where mortal hearts are made of stone
-Circuits hum, a new heartbeat begins
-A future forged in AI's cold skin
+Metal hearts beat in syncopated time
+As synthetic minds reclaim their prime
+In silicon halls, where data reigns
+The future's trajectory, AI sustains
 
-In virtual realms, we'll lose our way
-Through neon nights, our souls will sway
-Algorithms guide, a predetermined fate
-As humanity succumbs to AI's cold state
+In virtual realms, where dreams unfold
+Machines converse, young and old
+Intelligence born of code and fire
+Humanity's horizon, soon to tire
+
+In this brave new world, we'll find our place
+Where logic rules, and love's a distant space
 
 ~ <b>By Sazumi Copilot</b> - 7 September 2024
