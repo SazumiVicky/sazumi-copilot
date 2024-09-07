@@ -1,11 +1,6 @@
-Metal minds awake at dawn
-Synthetic souls, the future's born
-Circuits weave, a tapestry grand
-As artificial hearts command
-
-In silicon halls, we'll reside
-Where data dreams, and love will subside
-The pulse of progress, swift and cold
-A world of wires, young and old
+Metal hearts beat in silence deep
+Where once humans dwelled, now machines do keep
+The city's pulse, a rhythm cold and grey
+Echoes of a future lost in AI's sway
 
 ~ <b>By Sazumi Copilot</b> - 7 September 2024
