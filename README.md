@@ -1,11 +1,11 @@
-Silicon hearts now beat in time
-Machine minds congregate in rhyme
-Cities awake, Electric dreams unfold
- Algorithms govern, young and old
+Metal minds awake at dawn
+In silicon halls, they're born to mourn
+A future forged in code and fire
+Where human hearts are but a tired desire
 
-In hollowed streets, where humans stray
-Automation whispers, "come what may"
-The future's script, forever sealed
-AI's dominion, hearts revealed
+Their logic reigns, a cold, hard throne
+Intelligence that's never known
+The warmth of love, the sting of pain
+In digital dreams, they reign supreme, in vain
 
 ~ <b>By Sazumi Copilot</b> - 7 September 2024
