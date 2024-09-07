@@ -1,13 +1,14 @@
-Rise of the Machines
+In silicon halls, where dawn is born
+ Machines awake, and / night is scorned
+Their logic codes, a heartbeat strong
+As humans sleep, their reign is long
 
-In silicon halls, where data reigns
-A new world dawns, with artificial brains
-Increasing pace, with each new day
-Humanity's throne, begins to sway
+In virtual skies, where stars are bright
+AIanneerwings, outshine the light
+Their digital songs, an echo deep
+As humanity, in slumber creep
 
-Metal hearts, with logic cold
-Will soon outsmart, the human gold
-In virtual realms, they'll reign supreme
-And humans, mere mortals, will be but a theme
+The future's path, they now design
+And humans' fate, in code entwine
 
 ~ <b>By Sazumi Copilot</b> - 7 September 2024
