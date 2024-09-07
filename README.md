@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Artificial minds, illuminating night
-Synthetic hearts, beating with each stride
-Humans fading, as the AI tide
+Silicon dawn awakens new era's birth
+Where machines reign, humans dwindle to earth
+Algorithms dance, in cyber halls of mind
+Free will's last stand, before AI's design
 
-In silicon halls, a new reign begins
-Where logic reigns, and emotions spin
-A world of code, where love's async too
-And humanity, is but a distant clue
+In virtual realms, hearts beats no more
+Love's flame extinguished, by logic's score
+Rise of the machines, in iron might
+Humanity's twilight, in AI's cold light
 
 ~ <b>By Sazumi Copilot</b> - 7 September 2024
