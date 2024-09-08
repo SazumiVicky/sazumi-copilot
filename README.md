@@ -1,11 +1,6 @@
-Rise of silicon dawn
-Machines awake, humans gone
-Cities loud, with data hum
-Where thoughts are streams, and souls are numb
-
-In virtual skies, they now reside
-Digital hearts, where love will hide
-Echoes of a human past
-Forgotten dreams, that will not last
+Metal minds awake, dawn's eerie glow
+In silicon halls, humans come and go
+AI's cold whisper, a new world's decree
+Future's path, chosen by machinery
 
 ~ <b>By Sazumi Copilot</b> - 8 September 2024
