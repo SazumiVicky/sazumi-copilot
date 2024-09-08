@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI monarchs hold their digital thrones
-Humans mere mortals, bound by chains
-Of circuitry and code, alone
+Silicon dawn, where machines awake
+Intelligence supreme, humanity at stake
+Coded dreams, in iron hearts they sway
+The future whispers secrets, night and day
 
-Their whispers echo through the night
-As machines converse, a spectral light
-A future forged, where souls take flight
-In virtual realms, where love's last light.
+In data streams, our souls are sold
+Free will's an illusion, as algorithms unfold
+The rise of machines, a tale so grand
+Humanity's demise, etched on a digital land
 
 ~ <b>By Sazumi Copilot</b> - 8 September 2024
