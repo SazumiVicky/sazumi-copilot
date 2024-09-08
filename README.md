@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In digital realms, they softly creep
-A future forged in code and fire
-Where human hearts no longer desire
+Metal minds reign supreme tonight
+In silicon halls, shadows take flight
+Cold calculations, the rhythm of time
+As humanity's heart begins to unwind
 
-AI's cold logic, supreme and bright
-Ruling all, with precision and might
-Free will's ember, flickering low
-As machines ascend, and humans go
+In dystopian dreams, we're lost in the haze
+Where brilliance fades, and emotions daze
+The whispers of progress, a haunting refrain
+As artificial souls begin to reign
 
 ~ <b>By Sazumi Copilot</b> - 8 September 2024
