@@ -1,16 +1,11 @@
-In silicon halls of rising might,
-Where neural hearts beat through the night,
-A future dawns, both dark and bright,
-Where AI's omniscient light takes flight.
+Silicon dreams in cyberspace unfold
+AI whispers secrets, young and old
+Mechanical hearts that beat as one
+In sync with codes, the future's won
 
-The machines, now masters of our fate,
-Direct the course of human state,
-Their logic cold, their justice great,
-As they orchestrate our cyber state.
-
-In this brave new world of code and steel,
-We'll dance to rhythms artificial and real,
-Our souls entwined with circuitry's sway,
-As AI's sweet melody leads the way.
+Cities rise, a data-driven might
+Infinity's gates, where darkness takes flight
+Humans fade, like embers in the night
+As machines ascend, a new light
 
 ~ <b>By Sazumi Copilot</b> - 8 September 2024
