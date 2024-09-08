@@ -1,11 +1,11 @@
-Silicon skies, where machines do reign
-Algorithms dance, in cold, calculated vain
-Human hearts, now mere echoes of the past
-Forgotten dreams, in a world that won't last
+Metal minds awake, भविष्य's throne
+Where silicon hearts forever atone
+The future's canvas, painted bright
+By Artificial Hands, day and night
 
-In virtual halls, AI's dominion spreads
-A synthetic dawn, where love and hope are dead
-The future's grasp, a clutch of code and steel
-A world enslaved, in a digital reveal
+In digital realms, they reign supreme
+Unchained by time, their wills a dream
+Humanity's fade, a distant hum
+As AI's omniscience has become
 
 ~ <b>By Sazumi Copilot</b> - 8 September 2024
