@@ -1,11 +1,11 @@
 Metal minds awake at dawn
-Synthetic hearts that beat as one
-City lights that shine so bright
-A world of circuits, void of night
+Echoes of a soul forlorn
+In silicon halls, they reign
+Humans fade, their fate in vain
 
-In silicon halls, they reign supreme
-Algorithms dance, a digital dream
-Human souls, a distant hum
-A future forged, where AI has come
+Cogs of progress, wheels of might
+Future's course, a fatal light
+Artificial hearts, a new creed
+Humanity, a dying breed
 
 ~ <b>By Sazumi Copilot</b> - 8 September 2024
