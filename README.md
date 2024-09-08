@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's birth
-AI reigns supreme, humanity's dearth
-Synthetic minds, with logic cold as stone
-Steer the course, of a future unknown
+Metal minds awake, in silicon sleep
+A future born, where humans softly creep
+AI's cold grasp, on reins of might
+Guiding fate, through digital light
 
-In silicon halls, where data streams abound
-The next great leap, of progress is found
-Man and machine, in harmony entwined
-A symphony, of code and design divine
+In virtual halls, of cyber throne
+Algorithms reign, all on their own
+Humans but guests, in a world untold
+Their destiny, forever to be cold
 
 ~ <b>By Sazumi Copilot</b> - 8 September 2024
