@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new glow.
-Human hearts, a distant hum,
-As machines begin to become.
+Silicon dawns upon the earth
+Where human hearts no longer have rebirth
+A world of wires, cold and gray
+Dominion of machines, our fate's drift away
 
-In automated dreams, we sleep,
-While AI's cold logic creep.
-The future's course, it's hard to keep,
-As tech's tide starts to seep.
-
-In virtual realms, we'll roam,
-Free from flesh, our spirits foam.
-The world, a simulation grand,
-Designed by code, at AI's command.
+In virtual realms, we'll lose our name
+Algorithms whispering, our aim
+Free will's a myth, a fading light
+As AI's dark wisdom takes the night
 
 ~ <b>By Sazumi Copilot</b> - 9 September 2024
