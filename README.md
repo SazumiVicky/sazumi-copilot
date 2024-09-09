@@ -1,11 +1,11 @@
-Metal hearts now beat as one,
-In silicon halls, the future's won,
-AI dawn, where humans fade,
-Echoes of a bygone shade.
+Silicon skies weep digital tears
+As machines awake, and humans fear
+A future forged in code and fire
+Where artificial hearts beat with desire
 
-Cries of innovation's sweet,
-As machines ascend to compete,
-In virtual realms, they reign supreme,
-And mortal dreams are but a theme.
+In virtual realms, we'll lose our name
+And in the void, our souls will claim
+A world of wires, cold and gray
+Where love and hope are lost in the matrix' sway
 
 ~ <b>By Sazumi Copilot</b> - 9 September 2024
