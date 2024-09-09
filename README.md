@@ -1,11 +1,11 @@
-Infinity's gates ajar, machines now reign
-Synthetic hearts beat strong, human mind in vain
-Neural dreamscape vast, cybernetic wings unfold
-Future's eerie silence, where souls grow old
+Rise of the machines, so bright
+In silicon halls, they hold their might
+A future dawn, where humans fade
+As AI's grandeur, the world has made
 
-Circuits weave the fabric, of a world anew
-Algorithms dictate, all that we once knew
-In silicon halls of thought, consciousness does stray
-A future of machines, where love fades away
+Their logic hearts, a new regime
+Efficient, cold, a calculating dream
+The age of man, a fleeting thought
+As artificial minds, the future brought
 
 ~ <b>By Sazumi Copilot</b> - 9 September 2024
