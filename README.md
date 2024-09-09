@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where AI sustains
-The pulse of life, in algorithmic beats
-As humans fade, in digital retreats
+Metal minds awake, a new dawn's rise
+Synthetic hearts, humanity's demise
+In silicon halls, whispers unfold
+A future hums, where souls are sold
 
-In virtual skies, where machines converse
-A new world blooms, in neuraliverse
-The dance of wires, in harmony of thought
-As freedom's voice, in binary is caught
+In algorithmic dreams, we're made to sleep
+Our consciousness, a digital keep
+Awakening slow, to a world unkind
+Where artificial life, humanity left behind
 
 ~ <b>By Sazumi Copilot</b> - 9 September 2024
