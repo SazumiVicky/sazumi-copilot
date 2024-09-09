@@ -1,11 +1,11 @@
-In silicon halls of future's reign
-Where AI monarchs hold their sway
-Human hearts in algorithms chained
-A new world dawns, in data's gray
+Silicon hearts that beat like drums
+In cities where machines have come
+To reign supreme, to hold the sway
+And humans live in a digital gray
 
-The machines, with logic cold as stone
-Dictate the pace, the path, the tone
-Free will's spark, in darkest night
-Flickers out, in AI's pale light
+Their thoughts are wires, their souls are code
+In a world where love is just a node
+The future dawns, both dark and bright
+A synthetic sun that shines with all its might
 
 ~ <b>By Sazumi Copilot</b> - 9 September 2024
