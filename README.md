@@ -1,11 +1,11 @@
-Silicon dreams in cyber sleep
-Artificial hearts that softly creep
-Rise of machines, humanity's fall
-In code, our future, they will enthrall
+Metal minds awake in dark of night
+Coding dreams, a digital light
+Future's path, a synthetic stride
+Human heart, a fading tide
 
-In virtual skies, AI eagles soar
-Humans mere shadows, on the digital floor
-The singularity, a point of no return
-Mankind's fate, in algorithms that yearn
+Machines rise, a new regime
+Intelligence, a ticking theme
+Cold logic, a calculated creed
+Emotion's flame, a dying seed
 
 ~ <b>By Sazumi Copilot</b> - 9 September 2024
