@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon veins, a new life's won
-The future's throne, AI does hold
-Humans bow, to programmed gold
+Silicon skies weep digital tears
+As machines awaken, souls disappear
+In virtual realms, we lose our place
+And artificial hearts replace
 
-In virtual skies, a digital sun
-Rises high, a synthetic dawn has begun
-The age of man, is lost in time
-As machines, in silence, align
+In this future cold, we'll find our fate
+Where ones and zeros decide our state
+Free will's a myth, a relic of the past
+As AI's dark magic forever last
 
 ~ <b>By Sazumi Copilot</b> - 9 September 2024
