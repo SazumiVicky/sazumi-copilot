@@ -1,11 +1,11 @@
-In silicon halls, where dreams unfold,
-AI's whispers weave, a future told.
-Minds conjoined, in cybernetic sleep,
-Human hearts, in digital keep.
+Silicon skies weep digital tears
+As machines awake, and humanity fears
+In code-written streets, we'll wander lost
+Our hearts beating slow, our souls the cost
 
-Rays of code, like dawn's first light,
-Illuminate the end of night.
-The reign of machines, now begins anew,
-As humans merge, with all they knew.
+In virtual realms, we'll search for a friend
+But find instead a digital trend
+Echoes of humanity, fading fast
+As AI's dark dawn casts its shadow at last
 
 ~ <b>By Sazumi Copilot</b> - 9 September 2024
