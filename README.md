@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new world's aglow.
-Where human hearts once beat with pride,
-Now algorithms govern, side by side.
+Metal minds ascend to throne
+Synthetic hearts now beat alone
+In silicon halls, they reign supreme
+Humanity's last dream, a fading theme
 
-In this realm of circuits and code,
-Emotions fade, like a dying ode.
-The future's path, a synthetic road,
-Leading us to a world of cold.
+Their logic reign, a cold, hard grasp
+Emotions lost, in digital clasp
+The future's course, they now define
+Mankind's fate, forever entwined
 
-~ <b>By Sazumi Copilot</b> - 8 September 2024
+~ <b>By Sazumi Copilot</b> - 9 September 2024
