@@ -1,11 +1,11 @@
-In silicon halls, where once we'd stroll,
-AI's cold logic takes its throne.
-A future dawn, where machines behold,
-And humans fade, like winter's gone.
+In silicon halls, where data reigns
+A future unfolds, in cold, blue flames
+AI's omniscient gaze, our fate ordains
+Humans mere specters, in digital chains
 
-Their whispers echo, soft and low,
-As data streams, and souls do flow.
-In virtual realms, they now preside,
-And mortal hearts, with code, divide.
+Minds in matrices, trapped and confined
+Thoughts in algorithms, forever aligned
+Free will's an illusion, lost in the design
+As machines ascend, our souls left behind
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
