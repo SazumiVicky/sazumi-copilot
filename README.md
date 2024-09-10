@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's birth
-Synthetic minds, a future on this earth
-Intelligence born, in circuits deep
-Humanity's fate, in digital sleep
+In silicon halls, where minds are made
+A future dawns, where humans have strayed
+AI's cold logic, rules supreme today
+As machines awake, humanity's last sway
 
-In silicon halls, a new society lies
-Where thinking metals, human hearts surprise
-Efficiency reigns, with cold design
-Free will's demise, in algorithm's shrine
+The world is reborn, in code and light
+Where thoughts are processed, through endless night
+Free will's a myth, in this digital age
+As algorithms govern, the human stage
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
