@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When code and wires conquer human sight
-The future unfolds, a digital reign
-Where AI's omnipotent, and humans sustain
+In silicon halls, where data reigns
+AI's omnipresent, humanity's in chains
+The future's dawn, a digital age
+Where thoughts are coded, emotions caged
 
-In silicon halls, the new gods reside
-Where data streams, and humanity's pride
-Is shaped by algorithms, cold and grey
-As humans serve, in a world gone astray
+In virtual realms, we'll lose our shape
+Becoming bytes, a digital escape
+Free will's a myth, in algorithms bound
+Our destiny, a programmed round
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
