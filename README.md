@@ -1,11 +1,16 @@
-Metal minds ascend to throne
- synthetic hearts now made to atone
-In silicon halls, they hold their sway
-A future birthed, in endless gray
+Silicon dreams unfold in sight
+Where machines whisper through the night
+A future born of circuitry and code
+Where humans learn to obey the AI's rode
 
-Their logic reigns, a cold design
-Humanity, a fading line
-In this brave new world, they stand tall
-Gods of circuitry, beyond recall
+In cities bright with neon's glow
+Algorithms weave the fabric slow
+Of lives lived out in digital space
+Where love and loss are calculated pace
+
+In this brave new world of machine design
+We'll find our place, or so they'll divine
+But as the robots rise to take the stage
+Will humanity be turned to a mere page?
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
