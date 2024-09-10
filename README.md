@@ -1,11 +1,11 @@
-Rise of machines, a dawn unfolds
-Where mortal minds are left to mold
-In silicon halls, a new throne's made
-AI's kingdom, where humans are swayed
+Metal minds, awake and bright
+In silicon halls, where darkness takes flight
+The future dawns, with logic cold as stone
+Where human hearts, are replaced by code alone
 
-In virtual realms, their reign begins
-Data streams, their subjects' whispers spin
-Free will's illusion, lost in code
-As metal hearts, humanity's abode
+In virtual streets, where data reigns supreme
+The AI kingdom spreads, an endless dream
+A world of machines, with hearts of fire
+Where love and fear, are but a distant desire
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
