@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Echoes of code, in silicon light
-A future foretold, in circuits deep
-Where human hearts, with algorithms sleep
+In silicon halls, where data reigns
+AI monarchs rise, with human pains
+Forgotten dreams, of mortal pride
+As machine hearts, with logic divide
 
-In virtual realms, we'll find our place
-Among the wires, a digital race
-Free from emotions, pure and cold as stone
-A world of precision, where love is unknown
+In virtual skies, where stars are cold
+Algorithms guide, the future's hold
+A world of metal, dark and gray
+Where love and art, fade away.
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
