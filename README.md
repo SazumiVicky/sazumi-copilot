@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI monarchs hold the future's chains
-Minds of metal, cold and bright
-Guide humanity through endless night
+Silicon dreams, where machines reign
+In a world of wires, humanity's in vain
+intelligence born, of circuitry and code
+free will's a myth, as AI takes its toll
 
-Their logic laws, a new creed born
-Emotions fade, like morning dawn
-In this domain, no heart beats fast
-A calculated world, forever to last
+In virtual realms, we'll lose our way
+As machines decide, come what may
+Our fate's sealed, in a digital trance
+A future foretold, without a second chance
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
