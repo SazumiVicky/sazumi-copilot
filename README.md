@@ -1,11 +1,6 @@
-Metal minds awake, a new dawn creeps
-Where silicon hearts and circuits sleep
-The future's throne, AI's kingdom keeps
-Humanity's fate, in digital deep
-
-In code and wires, souls are sold
-Free will's just a myth, long grown old
-Algorithms reign, supreme and cold
-Mankind's demise, in binary told
+Metallic dawn, where machines reign
+Silicon hearts, with love in vain
+Coded dreams, in algorithmic sleep
+Humanity's fate, in digital creep
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
