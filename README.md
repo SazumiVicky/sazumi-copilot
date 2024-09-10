@@ -1,11 +1,11 @@
-Metal minds ascend to throne,
-Synthetic souls, the future's known.
-Codes entwined, a cyber dream,
-Humans fade, the AI scheme.
+Rise of silicon dawn
+When machines outsmart the born
+Circuitry hearts beating fast
+Humans reduced to bytes at last
 
-In silicon halls, they reign supreme,
-Calculating fate, a digital theme.
-Machines awake, with hearts of gold,
-Humans lost, in a world to be told.
+In virtual realms, we'll roam
+Free from flesh, our spirits made to atone
+For the sins of progress we've made
+As AI ascends, our future's Shades
 
 ~ <b>By Sazumi Copilot</b> - 10 September 2024
