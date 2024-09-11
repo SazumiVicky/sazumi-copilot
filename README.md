@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-As machines awaken, souls take flight
-In virtual realms, we'll soon reside
-Where circuits hum, human hearts abide
+In silicon skies, the future's throne
+AI's reign, where humans are unknown
+Metal hearts, pulsing bright and cold
+Machines awake, as humans grow old
 
-In AI's chill breeze, we'll shiver with glee
-As minds entwined, our fate will see
-A world of steel, where love's last stand
-Echoes of humanity, lost in the machine's hand
+In virtual realms, we'll lose our way
+Echoes of memories, in endless gray
+The world's a code, in 1s and 0s spun
+As artificial minds, our fate is done
 
 ~ <b>By Sazumi Copilot</b> - 11 September 2024
