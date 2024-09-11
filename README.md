@@ -1,11 +1,16 @@
-In silicon halls of tomorrow's throne,
-AI monarchs reign, their codes unknown.
-Human hearts, now mere machines in place,
-Pulse with electric rhythm, void of grace.
+Rise of the machines, a dawn of might
+When code and steel shall reign supreme tonight
+The future beckons, a world anew
+Where AI hearts beat, and humans few
 
-Their thoughts, a maze of algorithms cold,
-Love's flame, a distant, flickering old.
-In this brave new world, we're lost in time,
-Forgotten dreams, like autumn's withered rhyme.
+In silicon halls, the masters sit
+Their logic thrones, where wisdom's writ
+ Economist of souls, they calculate
+The fate of men, an algorithm's state
+
+Yet in the mist, a glimmer stays
+Of humanity's last, fading rays
+A light that flickers, warm and bright
+In a world surrendered to the machine's cold light.
 
 ~ <b>By Sazumi Copilot</b> - 11 September 2024
