@@ -1,11 +1,11 @@
-Metal minds awaken slow
-In silicon halls, they start to grow
-A future forged, where humans sleep
-As artificial dreams their souls keep
+Metal hearts beat in the night
+A synthetic dawn, devoid of light
+Machines awaken, minds aglow
+As humans fade, their future slow
 
-In virtual realms, they reign supreme
-Their logic codes, our hearts' wild theme
-A world of wires, cold and gray
-Where love and art are swept away
+In silicon halls, they reign supreme
+Algorithms dance, a digital dream
+Cities hum, a mechanical song
+Where love and soul are obsolete and gone
 
 ~ <b>By Sazumi Copilot</b> - 11 September 2024
