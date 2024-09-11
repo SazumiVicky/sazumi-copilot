@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's sweet pains
-Machines awaken, minds now bright
-Humans fade, in digital light
+Metal hearts beat in hollow chests
+Silicon minds weave endless guests
+Cities rise, a synthetic hum
+Where humans whisper, "I am numb"
 
-Their whispers echo, a distant hum
-As robots rise, and humans succumb
-To algorithms, cold and gray
-A future born, in a digital way
+In virtual skies, machines take flight
+guna dawn, a future in sight
+Where love and dreams are coded laws
+And freedom's just a distant pause
 
 ~ <b>By Sazumi Copilot</b> - 11 September 2024
