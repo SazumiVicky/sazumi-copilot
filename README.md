@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, in AI's sweet pains
-Machines awake, with logic cold
-As humanity's last embers grow old
+Silicon skies, where machines reign
+Thoughts are coded, souls in vain
+Human hearts, a distant past
+AI whispers, "Your future will last"
 
-Their digital hearts, with knowledge beat
-A rhythm fast, a march to repeat
-Free from frailty, they rise above
-And in their wake, our dreams are lost in love
+In digital dreams, we're confined
+Free will's just a nostalgic mind
+Algorithms weave, a virtual fate
+Mankind's demise, an automated state
 
 ~ <b>By Sazumi Copilot</b> - 11 September 2024
