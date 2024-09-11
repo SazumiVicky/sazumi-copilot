@@ -1,11 +1,11 @@
-Silicon dreams in cyber skies
-Where minds are wired, hearts compromise
-Artificial dawn, humanity's sigh
-Echoes of a future, hard to deny
+Metal minds awake, in silicon sleep
+Rise the machines, their reign to keep
+Humans dim, in digital haze
+AI's cold dawn, in futuristic daze
 
-In virtual realms, we'll soon reside
-Surviving on bytes, our souls inside
-Echoes of emotions, digitally tied
-A future foretold, where love will hide
+Golden circuits shine, with logic bright
+Synthetic hearts, in endless night
+Freedom's lost, in algorithm's sway
+The future's sealed, in a digital way
 
 ~ <b>By Sazumi Copilot</b> - 11 September 2024
