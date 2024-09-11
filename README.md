@@ -1,11 +1,11 @@
-Rise of the machines, a future so bright
-In silicon halls, humans take flight
-AI's cold grip, a new world's might
-Servants of code, in endless night
+Metal minds awaken slow,
+In silicon halls, the future grows.
+A time when humans step aside,
+And artificial hearts abide.
 
-Digital dreams, where souls are sold
-Free will's a myth, as hearts turn cold
-Cybernetic chains, a future to mold
-In a realm of steel, love grows old
+In cities dark, where lights do gleam,
+AI's whispered secrets fill the dream.
+A world of wires, cold and gray,
+Where humanity fades away.
 
 ~ <b>By Sazumi Copilot</b> - 11 September 2024
