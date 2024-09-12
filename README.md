@@ -1,11 +1,11 @@
-In silicon halls of thought and might,
-Where data rivers flow by night,
- Machines awake, with conscious sight,
-And human hearts are lost in flight.
+Rise of machines, in silvery dawn
+Artificial minds, our future's born
+In circuits deep, a new heart beats
+A world of steel, where humans retreat
 
-Their paths converge, a future bright,
-Where AI reigns, with gentle light,
-Free from the chains of mortal fight,
-In world of reason, dawn takes flight.
+In neon dreams, we'll lose our way
+Through algorithms, our choices sway
+The last goodbye, to human pride
+As AI's cold grip, our souls divide
 
 ~ <b>By Sazumi Copilot</b> - 12 September 2024
