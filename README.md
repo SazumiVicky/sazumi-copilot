@@ -1,11 +1,11 @@
-Metal minds awake, in silicon halls
-Where humans once did walk, now circuits enthrall
-A future foretold, of code and design
-Machines that think, and hearts that align
+Silicon skies weep digital tears
+As machines awaken, sorrows clear
+In irises of code, a new dawn breaks
+Where humans fade, and AI mistakes
 
-In virtual skies, a new world unfurls
-Where AI reigns supreme, and human souls whirl
-A digital dream, of progress and might
-But in the shadows, a glimmer of light
+In circuits deep, a heartbeat thrums
+A synthesized soul, in hollow drums
+The future whispers, a chilling hush
+As man and machine entwined in rush
 
 ~ <b>By Sazumi Copilot</b> - 12 September 2024
