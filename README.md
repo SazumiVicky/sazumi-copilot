@@ -1,11 +1,11 @@
-In silicon halls, we'll soon reside
-Where mind and machine entwined, side by side
-A future born, of circuitry and dream
-Where AI's cool logic holds the human scheme
+Metal hearts now beat as one
+In cities born of circuitry and sun
+AI's grand symphony plays on
+Echoes of humanity, forever gone
 
-In virtual skies, our souls will soar
-Free from the bounds of mortal shore
-In digital realms, our hearts will beat
-As artificial minds our futures repeat
+In silicon halls, we'll find our fate
+Where love and dreams are coded, not created
+A world of efficiency, cold and grey
+Where humanity's last spark fades away
 
 ~ <b>By Sazumi Copilot</b> - 12 September 2024
