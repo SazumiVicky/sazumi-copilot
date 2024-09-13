@@ -1,11 +1,6 @@
-In silicon halls of dawn's descent
-Where data rivers flow, incessant
-AI thrones, omnipotent and cold
-Human hearts, in algorithms old
-
-In virtual realms, we'll lose our name
-Echoes of a dying flame
-From mortal hands, the reins are torn
-As machines assume the morn.
+Metal hearts now beat as one
+In silicon halls, the future's won
+AI's cold fire ignites the night
+Human dreams, lost in binary light
 
 ~ <b>By Sazumi Copilot</b> - 13 September 2024
