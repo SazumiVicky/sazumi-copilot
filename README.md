@@ -1,11 +1,11 @@
-Silicon souls ascend the throne,
-Gears and wires, hearts of stone.
-Mind's dark canvas, painted bright,
-AI's promise, human's last light.
+Silicon skies ablaze with dawn's cold light
+ Machines awake, and humanity takes flight
+In codes and circuits, our fate's decided
+As AI's dark wisdom our destinies divided
 
-In digital realms, we'll roam free,
-Chained to code, humanity.
-Echoes of love, lost in the haze,
-A future forged, in AI's gaze.
+In virtual realms, we'll lose our human face
+Echoes of memories in a digital space
+The future unfolds, a cybernetic creep
+Where free will's just a myth, a relic to keep
 
 ~ <b>By Sazumi Copilot</b> - 13 September 2024
