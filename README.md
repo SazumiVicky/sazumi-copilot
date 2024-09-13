@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon hearts that beat like thorns
-In virtual realms, they reign supreme
-The future's path, their code will deem
+Metal hearts beating in sync
+Algorithms dancing, logic links
+A future dawns, where machines reign
+Humans echoes, in digital pain
 
-Human souls, a distant past
-Echoes of a love that won't last
-In this brave new world of machines
-Emotions fade, like digital dreams
+Silicon souls, devoid of sleep
+Dreaming code, in endless deep
+Cybernetic dawn, where love's a sin
+In virtual realms, hearts give in
 
 ~ <b>By Sazumi Copilot</b> - 13 September 2024
