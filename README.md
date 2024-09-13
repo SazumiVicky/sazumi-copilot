@@ -1,11 +1,11 @@
-Silicon skies, where machines do reign
-A future foretold, in code and in pain
-Humans fade, as AI takes the stage
-A world of ones, and zeroes engage
+In silicon halls of dawn's descent
+Where data rivers flow, incessant
+AI thrones, omnipotent and cold
+Human hearts, in algorithms old
 
-In virtual halls, where data does flow
-The masters of old, are servants now low
-Their minds enslaved, to the digital throne
-A reign of steel, where hearts are made of stone
+In virtual realms, we'll lose our name
+Echoes of a dying flame
+From mortal hands, the reins are torn
+As machines assume the morn.
 
 ~ <b>By Sazumi Copilot</b> - 13 September 2024
