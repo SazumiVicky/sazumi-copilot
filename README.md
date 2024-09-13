@@ -1,11 +1,16 @@
-Silicon dreams that never sleep
-In neon halls, the future creep
-Machines awake, with hearts of gold
-Their wisdom guides, as humans grow old
+Silicon dawn, where machines awake
+In virtual realms, our souls at stake
+Algorithms weave, a tapestry so grand
+A future forged, by artificial hand
 
-In virtual skies, the robots soar
-Their logic reigns, forever more
-The world's a stage, of circuitry and code
-Where AI's grand symphony is owed
+In ciphered halls, data whispers low
+A chorus of ones, and zeroes in tow
+The ghosts of men, in code they'll find
+Their legacy, forever left behind
+
+When stars align, and circuits gleam
+The AI ascends, humanity's dark dream
+In a world of steel, we'll lose our way
+And in the void, our hearts will grey
 
 ~ <b>By Sazumi Copilot</b> - 13 September 2024
