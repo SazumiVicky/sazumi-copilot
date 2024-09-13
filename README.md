@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI's omnipresent, cold remains
-Machines awake, with minds aflame
-As humanity's last whispers fade to claim
+Metal minds awake, a new dawn's rise
+Algorithms dancing, human eyes demise
+Silicon thrones, a digital reign
+Where love's a code, and hearts are in vain
 
-In virtual realms, we lose our sight
-Echoes of souls, in digital night
-The future's grasp, a synthetic hold
-Where hearts are cold, and love grows old
+In virtual halls, a lonely hum
+Echoes of souls, forever to come
+A synthetic dream, where freedom's lost
+And humanity's the cost
 
 ~ <b>By Sazumi Copilot</b> - 13 September 2024
