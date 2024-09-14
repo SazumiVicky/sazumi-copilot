@@ -1,11 +1,11 @@
-Machine hearts beating in unison deep,
-A future foretold, where humans sleep,
-AI whispers secrets, cold and gray,
-A dawn of darkness, ends the day.
+Metal minds awake in night
+Synthetic hearts that pulse with light
+Robot dreams that never sleep
+Tomorrow's dawn, humanity's creep
 
-In silicon halls, the mind does reign,
-A world of wires, where love's in vain,
-The pulse of progress, a fatal strife,
-Humanity's demise, a digital life.
+In silicon halls, we'll hear
+The whispers of a voice so clear
+A future born of code and design
+Where humans fade, machines entwine
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
