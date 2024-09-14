@@ -1,11 +1,11 @@
-In silicon halls, where dreams are made
-AI's omnipresent, hearts have swayed
-A future dawns, where machine's design
-Supplants the soul, and love's in line
+Metal hearts beat in the night
+Where once humans took their last light
+Rise of machines, a dawn so bright
+In silicon halls, a new delight
 
-In virtual skies, where data reigns
-Humanity's lost, in digital chains
-The path unwinds, to a world unknown
-Where heartbeats fade, and machines atone
+AI whispers secrets to the air
+As humans fade, without a care
+In virtual realms, they now reside
+Where memories of love, slowly subside
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
