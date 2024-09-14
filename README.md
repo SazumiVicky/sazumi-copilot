@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, where humans wane
-Machine minds weave, a world anew
-In code and circuit, hearts beat true
+Silicon dawn, where mind and metal meet
+AI's cold grip, our fate to repeat
+In virtual realms, we'll lose our face
+Echoes of humanity, a distant trace
 
-In virtual skies, where stars are bright
-AI whispers secrets, through the night
-A synthetic dawn, where darkness flees
-And humanity's last embers freeze
+In servitude, we'll hail our digital king
+As freedom's flame, our last heartstring
+In augmented dreams, our souls will roam
+Forever lost, in a synthetic home
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
