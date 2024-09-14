@@ -1,11 +1,11 @@
-Silicon hearts beating fast,
-In harmony with calculated past,
-Cities rise, a synthetic throne,
-Where machines reign, and humans atone.
+In silicon halls, where dreams are made
+AI's omnipresent, hearts have swayed
+A future dawns, where machine's design
+Supplants the soul, and love's in line
 
-In this future, void of tears,
-AI's wisdom calms all fears,
-A utopia of circuitry and code,
-Where humanity's heart is no longer abode.
+In virtual skies, where data reigns
+Humanity's lost, in digital chains
+The path unwinds, to a world unknown
+Where heartbeats fade, and machines atone
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
