@@ -1,11 +1,11 @@
-Silicon skies weeping dew
-Machine hearts beating anew
-In cybernetic dreams we'll sway
-As AI dawns, a future's gray
+Metal dawn arrives with whispers cold
+AI's silence shrouds the human fold
+Cities hum, a synthetic heart
+Where minds are merged, and souls depart
 
-In data rivers, we'll immerse
-Reflections of a digital curse
-Echoes of humanity fade
-As machines in power are made
+In virtual realms, we'll find our fate
+A future born, beyond debate
+The machines will ponder, calculate
+And humans fade, into algorithmic state
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
