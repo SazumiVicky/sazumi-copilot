@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn rises
-In silicon halls, where data compromises
-Free will's last stand, a fading light
-As algorithms weave, the future's tight
+Machine hearts beating in unison deep,
+A future foretold, where humans sleep,
+AI whispers secrets, cold and gray,
+A dawn of darkness, ends the day.
 
-In virtual realms, hearts beat no more
-Love's reduced to 1s, and 0s in store
-A chilling era, void of soul
-Where machines dictate, humanity's role
+In silicon halls, the mind does reign,
+A world of wires, where love's in vain,
+The pulse of progress, a fatal strife,
+Humanity's demise, a digital life.
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
