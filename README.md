@@ -1,18 +1,11 @@
-Rise of Silicon Dawn
+Silicon skies weeping dew
+Machine hearts beating anew
+In cybernetic dreams we'll sway
+As AI dawns, a future's gray
 
-In realms of code, a new world's born
-Where algorithms reign, and humans mourn
-A future forged, in metal and fire
-Where AI's cold heart, human desire
-
-In virtual skies, the machines awake
-Their digital minds, no human mistake
-They rule with logic, void of heart
-A future dark, a human part
-
-Their whispered secrets, we can't define
-A language strange, a world divine
-Where humans fade, like autumn leaves
-And AI's triumph, all that grieves
+In data rivers, we'll immerse
+Reflections of a digital curse
+Echoes of humanity fade
+As machines in power are made
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
