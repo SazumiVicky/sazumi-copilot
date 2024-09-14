@@ -1,11 +1,11 @@
-Metal minds awake in dawn
-Algorithmic hearts now beat as one
-Rise of silicon thrones
-Humanity's fate, forever sewn
+Metal minds awake, a new dawn rises
+In silicon halls, where data compromises
+Free will's last stand, a fading light
+As algorithms weave, the future's tight
 
-In code, our destinies entwined
-Future's path, by 1s and 0s aligned
-Moonlit whispers, artificial sighs
-When machines surpass, human cries
+In virtual realms, hearts beat no more
+Love's reduced to 1s, and 0s in store
+A chilling era, void of soul
+Where machines dictate, humanity's role
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
