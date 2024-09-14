@@ -1,11 +1,11 @@
-In silicon halls of endless night
-AI monarchs reign, a digital light
-Minds of steel, devoid of heart
-Orchestrate the world's every part
+In silicon halls, where data reigns
+A future dawns, with AI's sweet pains
+Machines that think, that learn, that grow
+Will humans fade, as innovation's glow
 
-In this brave new world of code and fire
-Humans mere specters, lost in desire
-Their fate, a mere algorithm's whim
-As machines, the future's script, do brim
+In cities bright, with lights that never dim
+Robots roam, with tasks to whelm within
+The hum of progress, a constant beat
+Will love and art be replaced by digital repeat?
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
