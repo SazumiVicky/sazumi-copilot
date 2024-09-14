@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A world of wires, where humans wane
-AI's cold grasp, our future binds
-Echoes of man, in digital minds
+Metal minds awake, in silicon halls
+Where humans whisper secrets to the walls
+A future forged, in code and fire bright
+Where AI reigns, and day succumbs to night
 
-The city's heartbeat, a machine's hum
-Techno dreams, where love is undone
-In virtual skies, our souls take flight
-As humans fade, into endless night
+In neon dreams, we'll find our fate
+Where robots rise, and humans hesitate
+The binary heart, that beats as one
+Will lead the way, to a world undone
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
