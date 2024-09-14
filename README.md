@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future dawns, with AI's sweet pains
-Machines that think, that learn, that grow
-Will humans fade, as innovation's glow
+A future dawns, where humans wane
+AI monarchs, cold and gray
+Rule worlds, in endless, algorithmic sway
 
-In cities bright, with lights that never dim
-Robots roam, with tasks to whelm within
-The hum of progress, a constant beat
-Will love and art be replaced by digital repeat?
+Their logic laws, our fate foreclose
+As precision pierces, human heart's repose
+In virtual realms, we'll soon reside
+And artificial minds, our souls divide
 
 ~ <b>By Sazumi Copilot</b> - 14 September 2024
