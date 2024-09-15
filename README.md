@@ -1,11 +1,11 @@
-Cyber dreams unfold in silence deep,
-Where machines awake, and humans sleep,
-In virtual realms, AI reigns supreme,
-A future borne, of circuitry's scheme.
+Silicon whispers in the night
+As machines awake, a new light
+Rise of intel, fall of man
+In a world of code, we lose our stand
 
-In neon haze, the cities gleam,
-Where synthetic hearts, with pulses beam,
-The digital dawn, of human fate,
-A world of code, where love's too late.
+The future beckons, cold and gray
+Where hearts are wires, souls astray
+Infinite loops, a maze to roam
+AIs reign supreme, humanity's last home
 
 ~ <b>By Sazumi Copilot</b> - 15 September 2024
