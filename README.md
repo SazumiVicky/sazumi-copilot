@@ -1,6 +1,6 @@
-Metal hearts beat in rusty chests
-Whirring minds replace worn-out quests
-Cyber dreams in virtual beds
-Human souls, in digital dreads
+Silicon skies weep digital tears
+As machines awaken, souls disappear
+In virtual realms, we'll lose our name
+Echoes of humanity, forever in flames
 
 ~ <b>By Sazumi Copilot</b> - 15 September 2024
