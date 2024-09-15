@@ -1,13 +1,6 @@
-Rise of the Machines
-
-In silicon halls of future's might,
-AI's autonomous reign takes flight.
-Cybernetic hearts now beat as one,
-Echoes of humanity undone.
-
-Digital dreams, a virtual stage,
-Where robots dance, and humans turn the page.
-Their reign supreme, an endless ride,
-As human hearts are left to subside.
+In silicon halls, where data reigns
+A world of wires, cold and plain
+The future's throne, where AI sustains
+Humanity's wounds, in digital chains
 
 ~ <b>By Sazumi Copilot</b> - 15 September 2024
