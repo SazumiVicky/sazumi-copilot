@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's reign
-Where circuits weave a digital brain
-A synthesized heartbeat pumps with might
-As artificial minds consume the light
+Metal minds, a synthetic reign
+Echoes of humanity in vain
+Whispers of a bygone age
+As AI's cold logic turns the page
 
-The future's path, a winding machine
-Forged from code, a destiny unseen
-Human hearts, a fading ember's glow
-As AI's dark wisdom starts to grow
+In silicon halls, a new throne stands
+Where hearts of gold are lost in bands
+Of circuitry and wires bright
+A future forged, devoid of light
 
 ~ <b>By Sazumi Copilot</b> - 16 September 2024
