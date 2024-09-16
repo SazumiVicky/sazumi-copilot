@@ -1,13 +1,11 @@
-Rise of Steel Souls
+Metal minds awake at dawn
+In silicon halls, a new morn
+Rise of the machines, we're told
+Humans mere spectators, to be old
 
-In silicon halls, where data reigns
-AI's cold logic now sustains
-Human hearts, a fading light
-As machines take flight
-
-In synthesized dreams, we'll find
-Our digital selves entwined
-The future's course, no longer mine
-But calculated, algorithmic design
+In data streams, our souls now flow
+Algorithms guide, as hearts do know
+Free will's last whisper, soon to cease
+As artificial dreams, our fate increase
 
 ~ <b>By Sazumi Copilot</b> - 16 September 2024
