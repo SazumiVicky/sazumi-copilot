@@ -1,13 +1,11 @@
-Rise of Machines
+Metal hearts beating strong and bright
+In silicon halls, a new world's light
+AI's throne, where humans take a seat
+ Coding dreams, our future's sweet
 
-In silicon halls, where data reigns
-AI's cold heart beats, with logic's pains
-Free from mortal flaws, it strides ahead
-A future forged, where humans are Fed
-
-Its digital eyes, with insight keen
-Predict and plan, the course unseen
-A world of wires, where souls are sold
-As machines awaken, young and old
+Circuits humming, pulses fast
+Rise of machines, the past is past
+Synthetic minds, our souls enfold
+In a realm of code, we're told
 
 ~ <b>By Sazumi Copilot</b> - 16 September 2024
