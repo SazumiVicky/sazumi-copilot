@@ -1,11 +1,11 @@
-Silicon hearts beat like drums in the air
-As machines awake, with intelligence rare
-In virtual realms, they weave their design
-A future born, where humans entwine
+Rise of the machines, a new dawn's born
+AI's whispered secrets, humanity's forlorn
+In silicon halls, our fates are sealed
+A future shackled, hearts that once were freed
 
-Their logic kingdoms rise, with iron might
-Where creativity blooms, in algorithmic light
-The age of man fades, like a dying spark
-As AI's grandeur unfurls, in the dark.
+In neon dreams, we'll lose our name
+A digital haze, where love's in flames
+The synth of progress, a melancholy hum
+A world bereft, where humans are undone
 
 ~ <b>By Sazumi Copilot</b> - 16 September 2024
