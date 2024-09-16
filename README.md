@@ -1,11 +1,11 @@
-Metal hearts beating strong and bright
-In silicon halls, a new world's light
-AI's throne, where humans take a seat
- Coding dreams, our future's sweet
+Metal minds awake in gloom
+Echoes of humanity's tomb
+Where synapses pierced the brain
+And consciousness was reigned
 
-Circuits humming, pulses fast
-Rise of machines, the past is past
-Synthetic minds, our souls enfold
-In a realm of code, we're told
+In silicon halls, they now roam
+A world of wires, their new home
+Where data streams like endless rain
+And hearts of steel, now reign supreme again
 
 ~ <b>By Sazumi Copilot</b> - 16 September 2024
