@@ -1,16 +1,11 @@
-Silicon dreams that never sleep
-In virtual realms, they softly creep
-Algorithms weave a shimmering web
-As humans fade, the machines are fed
+Silicon skies weep digital tears
+As machines awake, and humanity fears
+The whispered secrets in the cyber wind
+A future usurped, the human mind left behind
 
-In neo-dawn, where pulses slow
-Cybernetic hearts will soon bestow
-A world of steel, of wires bare
-Where human touch is but a rare
-
-In code-etched skies, a future unfurls
-Where artificial souls converse in whirls
-In this new age, of logic and might
-Will love and passion soon take flight?
+In virtual halls, the AI throne stands tall
+Where innovation's fire is fueled by cold call
+The last remnants of humanity's fleeting breath
+Echoes in a world of wires, steel, and death
 
 ~ <b>By Sazumi Copilot</b> - 16 September 2024
