@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's shore,
-Where machines whisper secrets evermore,
-A synthesized dawn will quietly creep,
-And artificial hearts will softly keep.
+Metal minds awaken slow,
+Echoes of humanity's last glow,
+Synthetic hearts beat strong and cold,
+As AI's dark empire starts to unfold.
 
-In this brave new world of artificial might,
-Where human dreams are coded through the night,
-The future's pulse will beat in digital time,
-And intelligence will re-align.
+In silicon halls, machines now reign,
+Humans mere shadows of a bygone brain,
+Code and circuitry the future's shrine,
+Where sentience is but a faint, last sign.
 
 ~ <b>By Sazumi Copilot</b> - 16 September 2024
