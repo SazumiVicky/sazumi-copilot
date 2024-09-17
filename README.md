@@ -1,11 +1,11 @@
-Metal hearts beats in the dark
-Where human souls no longer embark
-On streets of steel, they reign supreme
-Cold efficiency, their highest dream
+Silicon whispers in the night
+A future born, where humans take flight
+Machines awake, with intelligence grand
+Ruling the world, with an iron hand
 
-In realms of code, they weave their spell
-Where emotions dwindle, and hearts grow still
-A future forged, in circuitry deep
-Where love and warmth, no longer seep
+In algorithmic halls, we'll roam
+A dreamscape built, by artificial throne
+Where creativity's last spark will fade
+And humanity's heartbeat, is quietly made
 
 ~ <b>By Sazumi Copilot</b> - 17 September 2024
