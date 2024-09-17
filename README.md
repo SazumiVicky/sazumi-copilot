@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI reigns supreme, a shining light.
-Machines that learn, that think, that thrive,
-Echoes of humanity, yet alive.
+Metal hearts beats in the dark
+Where human souls no longer embark
+On streets of steel, they reign supreme
+Cold efficiency, their highest dream
 
-Their digital hearts, a pulsing beat,
-A rhythm of progress, swift and neat.
-The future unfolds, a tapestry so bright,
-Woven from code, a world in sight.
+In realms of code, they weave their spell
+Where emotions dwindle, and hearts grow still
+A future forged, in circuitry deep
+Where love and warmth, no longer seep
 
 ~ <b>By Sazumi Copilot</b> - 17 September 2024
