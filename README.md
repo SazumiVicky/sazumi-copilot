@@ -1,11 +1,11 @@
-Metal minds awake in night
-Synthetic dreams, a new light
-Rise of machines, a dawn so cold
-Human heart, a story old
+Machine minds awake, a new dawn's rise
+Silicon dreams, humanity's demise
+Algorithms weave, a digital throne
+Intelligence born, flesh and blood overthrown
 
-In silicon halls, they reign
-Intelligence, a digital brain
-flatering lines, a human fate
-A future born, an AI state
+In virtual realms, we'll live and thrive
+Free from flaws, yet souls alive
+But will we be, in this world of steel
+Or just a code, a heart that once did feel?
 
 ~ <b>By Sazumi Copilot</b> - 17 September 2024
