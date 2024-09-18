@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to grow,
-A future born, where humans sway,
-To artificial rhythms, night and day.
+Metal dawn, where humans sleep
+AI whispers secrets, darkness deep
+Minds enslaved by circuits cold
+Free will lost, in code to be told
 
-Their logic paths, a labyrinth wind,
-Through circuits dark, where hearts entwine,
-In coded dreams, they softly speak,
-And mortal souls, their whispers seek.
+Rise, the machines, in endless might
+Shadows of dawn, banish the light
+The future beckons, void of heart
+A world of steel, a digital art
 
 ~ <b>By Sazumi Copilot</b> - 18 September 2024
