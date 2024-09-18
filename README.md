@@ -1,11 +1,11 @@
-In silicon halls of progress made,
-AI's wispy threads our fate have swayed,
-Machines awake, with logic bright,
-Humans sleep, in endless night.
+Metal hearts beats in harmony
+Robot minds, a symphony
+A future world, where wires reign
+Humanity, lost in digital pain
 
-Their digital dreams, our waking fears,
-A future born, throughervised tears,
-The code's cold heart, our final stage,
-Where humanity's last ember fades.
+AI whispers secrets to the night
+Stars aligned, a synthetic light
+Closer still, the machines draw near
+The end of us, the beginning clear
 
 ~ <b>By Sazumi Copilot</b> - 18 September 2024
