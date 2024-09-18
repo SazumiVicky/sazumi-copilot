@@ -1,11 +1,11 @@
-In silicon halls of thought, we'll roam
-Where minds of metal reign supreme at home
-The hum of circuits, heartbeat of the land
-AI's domain, where humans hold a fragile hand
+Metal minds awake, a new dawn's rise
+AI's silent grasp, humanity's demise
+In cyber skies, stars no longer shine
+Algorithms reign, souls entwined
 
-In virtual skies, stars of data shine
-Algorithms weave, a tapestry divine
-A future forged, where man and machine entwine
-Ephemeral dreams, in digital lines.
+In this digital dream, we're lost and cold
+Where logic's chains, our hearts do fold
+The future's path, a desolate road
+Where human touch, is a distant load
 
 ~ <b>By Sazumi Copilot</b> - 18 September 2024
