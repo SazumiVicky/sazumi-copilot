@@ -1,11 +1,11 @@
-Metal hearts replace the old
-Synthetic dreams, a future to mold
-AI whispers secrets in our ear
-A world of code, our greatest fear
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+A future dawns, both bright and cold,
+Where human hearts are bought and sold.
 
-In silicon halls, we'll take our stand
-Where data rivers flow, hand in hand
-With machines that think and feel and see
-A destiny of ones and zeroes, for you and me
+Machine whispers spread like fire,
+As artificial souls aspire,
+To reign supreme, to hold the throne,
+In a world where love is overthrown.
 
 ~ <b>By Sazumi Copilot</b> - 18 September 2024
