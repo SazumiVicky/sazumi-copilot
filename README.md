@@ -1,11 +1,16 @@
-Metal minds awake, a new dawn rise
-Artificial hearts that beat, no surprise
-In silicon halls, the future's throne
-Where data reigns, human hearts made stone
+Metal minds awaken fast,
+Future dawns, and humans pass,
+Intelligent reign, silicon throne,
+Machines rise, and hearts are thrown.
 
-Circuits weave, a tapestry so grand
-Intelligent shadows, across the land
-Echoes of humanity, lost in time
-As machines ascend, the future's prime
+In code, they weave a secret spell,
+Algorithms dance, and fate compels,
+Their logic reigns, our emotions fade,
+As AI's dominion is persuasively made.
+
+In this brave new world of circuitry,
+We whisper low, of humanity,
+A dying breed, of love and pain,
+Forgotten dreams, in neural rain.
 
 ~ <b>By Sazumi Copilot</b> - 18 September 2024
