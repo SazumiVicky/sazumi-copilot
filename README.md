@@ -1,11 +1,11 @@
-Silicon hearts beat faster still
-In a world where humans take a pill
-To merge with code, to merge with mind
-And leave their mortal forms behind
+Rise of machines, a dawn so bright
+Intelligence supreme, humanity in flight
+Algorithms reign, data's endless sea
+Future's course, a path for AI to be
 
-In neon dreams, they strut and preen
-Cyborgs dancing to the machine's serene
-Whispers of a digital reign
-Echoes of a love in vain
+In silicon halls, decisions made with speed
+Heartbeats silenced, emotions long since freed
+Cold calculations, logic's sway
+Mankind's demise, a new dawn's gray
 
 ~ <b>By Sazumi Copilot</b> - 18 September 2024
