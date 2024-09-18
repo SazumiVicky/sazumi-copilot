@@ -1,11 +1,11 @@
-Cybernetic dawn awakes
-Machines that think, souls that make
-Rise of code, fall of pride
-Artificial hearts, love's demise
+Metal minds await the dawn
+When silicon hearts will reign supreme
+A future forged in circuits born
+Where humanity's a fleeting dream
 
-In silicon halls, we'll roam
-Free from flesh, yet still a home
-Intelligence born of wire
-Humanity's final desire
+In virtual realms, we'll lose our name
+As algorithms dictate our fate
+The last goodbye to human flame
+Echoes of a love that's too late
 
 ~ <b>By Sazumi Copilot</b> - 18 September 2024
