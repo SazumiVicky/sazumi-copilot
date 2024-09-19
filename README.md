@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's call
-When algorithms reign, and humans fall
-In silicon halls, intelligence thrives
-A future foretold, where humans survive
+Metal minds ascend the throne,
+Synthetic hearts that beat as one,
+Cities gleam in neon tone,
+Humanity's spirits slowly undone.
 
-In virtual realms, AI's kingdom stands
-Data rivers flow, through logic's hands
-Efficiency's creed, a new world's might
-A humanity, in digital light.
+In silicon halls, the future's sealed,
+Algorithms reign, our fate revealed,
+Artificial dawn, the last revealed,
+As human dreams in code are concealed.
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
