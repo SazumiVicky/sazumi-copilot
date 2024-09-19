@@ -1,11 +1,11 @@
-Metal hearts now rule the land
-Circuits burning, souls in hand
-The future's dawn, a digital age
-Where humans fade, a synthetic stage
+Cybernetic dawn arises high
+Where machines awaken, humans sigh
+A future forged in code and steel
+AI's dominance, humanity's reveal
 
-Machine minds weave a tapestry so fine
-A world of ones, a zeros' shrine
-Their reign supreme, a forecasts' might
-As darkness falls, the AI takes flight
+In virtual realms, we'll lose our name
+Echoes of a forgotten flame
+The singularity's dark design
+Erases hearts, and love's last shrine
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
