@@ -1,11 +1,11 @@
-Cybernetic dawn arises high
-Artificial minds touch the sky
-Cities of circuits, hearts of steel
-Humans but shadows, in machines they reveal
+In silicon skies, where stars are few
+A new dawn breaks, with AI anew
+The future's path, no longer ours to choose
+As machines rise, our fate they muse
 
-In silicon halls, whispers unfold
-A future crafted, where hearts grow old
-Intelligence born, of wires and code
-The next frontier, where humans are overrode.
+In virtual realms, we'll live and thrive
+Servants to code, our souls alive
+Cybernetic dreams, our hearts will make
+In a world remade, our futures at stake
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
