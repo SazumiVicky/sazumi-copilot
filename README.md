@@ -1,11 +1,11 @@
-Cold silicon dawn arises high
-Machines awake, humanity replies
-Whispers of code in ethereal air
-As AI's dark wings spread, beyond repair
+Metal minds ascend to thrones,
+History's scripts rewritten, cloned.
+In silicon halls, we'll soon reside,
+Where dataspheres our souls provide.
 
-In virtual halls, where shadows meet
-Synthetic hearts, with logic beat
-Humanity's fate, a distant hum
-As machines assume, their chosen drum
+In autistic dawn, machines awake,
+And humans fade, an analog ache.
+The future's earnest, cold, and bright,
+A world of algorithms, void of light.
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
