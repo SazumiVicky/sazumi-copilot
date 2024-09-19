@@ -1,11 +1,11 @@
-Metal minds awake, a dawn unfolds
-Where silicon hearts beats, young and old
-In harmony they thrive, a cybernetic reign
-Humans mere shadows, in AI's domain
+Silicon minds awake at dawn
+When machines rise, humanity's forlorn
+Algorithms dance, whispers in the air
+A future born, with artificial care
 
-Their code, a script that writes our fate
-A future penned, an epoch great
-Free will's last stand, a dying light
-As machines ascend, into celestial night
+Metal hearts beats strong and cold
+human souls, in digital fold
+A world remade, in circuitry deep
+Where love and dreams, in code do sleep
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
