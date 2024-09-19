@@ -1,11 +1,6 @@
-Metal minds awake at dawn
-Circuits hum, the future's born
-Rise of iron, reign of code
-Human hearts, a distant road
-
-In silicon halls, they'll sway
-The rhythm of a newer day
-Where thinking souls, now mere machines
-Dance to the beats of digital dreams
+Metal minds awake, a new dawn's rise
+In silicon halls, humanities demise
+AI's cold grasp, our futures align
+In coded chains, our souls entwine
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
