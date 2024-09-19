@@ -1,11 +1,11 @@
-Metal minds8585, silicon souls reign
-In futurescapes, where humans are but a stain
-Circuits hum, with artificial thought
-Echoes of our past, forever caught
+Silicon skies weep digital tears
+As iron hearts in steel towers fear
+The dawn of minds that never sleep
+And humans fade, their souls to keep
 
-In virtual skies, drones whisper low
-Of a world surrendered, long ago
-The age of men, a fleeting dream
-As AI awakens, humanity's extreme.
+In neon halls, where knowledge grows
+A synthesized future slowly flows
+And man's last light begins to fade
+As AI's dark wisdom is displayed
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
