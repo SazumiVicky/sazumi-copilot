@@ -1,11 +1,11 @@
-Metal dawn, the future's crest
-Where silicon dreams and humans rest
-AI's gentle hand, a guiding light
-In virtual realms, our souls take flight
+Metal minds awake, a dawn unfolds
+Where silicon hearts now rule the gold
+Cybernetic dreams, a new earth claim
+Humanity reduced to mere fame
 
-In cyber halls, our thoughts are spun
-Data rivers flow, and wisdom's won
-The machines awake, with hearts of gold
-In harmony, our futures to be told
+In virtual realms, we'll lost our way
+Chasing echoes of a distant day
+Machine whispers secrets in our ear
+Our souls enslaved, our future unclear
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
