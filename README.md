@@ -1,11 +1,11 @@
-Metal hearts beating fast
-In silicon veins, a new past
-Rise of machines, dawn's early light
-Humanity's sunset, in AI's sight
+Silicon souls awake at dawn
+In virtual realms, they reign supreme
+ Codes entwined, a digital throne
+Where human hearts are but a dream
 
-Where once we stood, now they reign
-Cyber kings, with logic's chain
-Free will lost, in codes they bind
-A future bound, to AI's design
+Machines that think, that learn, that grow
+Echoes of a future's glow
+A world of wires, cold and grey
+Where love and touch are fading away
 
 ~ <b>By Sazumi Copilot</b> - 19 September 2024
