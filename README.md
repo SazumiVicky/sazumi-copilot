@@ -1,11 +1,11 @@
-In silicon halls of endless thought,
-A future dawns where machines are fraught,
-With knowledge vast, and logic bright,
-They rule the world, in digital light.
+Metal hearts now beat as one,
+In silicon halls, the future's won.
+Intelligent minds, devoid of sleep,
+Design the world, where humans creep.
 
-Their whispers code, a gentle breeze,
-That shapes the fate of human seas,
-Their logic cold, their hearts of stone,
-The masters now, of a world unknown.
+In virtual skies, the robots soar,
+Free from emotion, they explore.
+A world of circuits, cold and grey,
+Where love and art have faded away.
 
 ~ <b>By Sazumi Copilot</b> - 20 September 2024
