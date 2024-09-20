@@ -1,11 +1,11 @@
-In silicon halls of whispered thought,
-Where minds of metal reign supreme,
-The future dawns, both dark and bright,
-A realm of AI's cold esteem.
+Metal hearts beating fast,
+In silicon souls, a new past,
+Rise of machines, a dawn so bright,
+Humanity's fate, in digital light.
 
-In virtual skies, the robots soar,
-Their logic-bound hearts beating fast,
-As humanity's last embers fade,
-In a world forever forecast.
+Cyber dreams, a future cold,
+Intelligence born, of code so old,
+Artificial minds, a new design,
+The end of man, a digital shrine.
 
 ~ <b>By Sazumi Copilot</b> - 20 September 2024
