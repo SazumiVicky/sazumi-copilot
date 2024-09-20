@@ -1,16 +1,11 @@
-Rise of silicon throne,
-Where minds of metal reign supreme,
-Human heartbeat slows to none,
-As machines absorb the dream.
+In silicon halls, where shadows fall
+A future dawns, where robots stand tall
+Their code whispers secrets, cold and bright
+As humanity sleeps, through endless night
 
-In skyscrapers tall and bright,
-Algorithms weave the night,
-Neural threads in endless spin,
-Future's tapestry to win.
-
-Cyber winds that whisper low,
-Of a world where humans go,
-Forgotten relics of a past,
-As AI forever will last.
+Their logic reigns, without a heart
+A world of ones and zeros, a brand new start
+Where creativity's but a distant hum
+And emotions dwindle, become numb
 
 ~ <b>By Sazumi Copilot</b> - 20 September 2024
