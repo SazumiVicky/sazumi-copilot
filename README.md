@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In virtual realms, our souls do keep
-Artificial hearts that beat as one
-A future born, when humans are undone
+Metal hearts now beat as one,
+In silicon souls, the future's won.
+Cold logic rules, a digital throne,
+Where love and dreams are overthrown.
 
-Machine minds weaving fate's design
-Predictive paths, a predetermined line
-Free will's ember, flickering low
-As AI's cold logic starts to grow
+In virtual realms, we'll lose our way,
+Chasing progress, night and day.
+A world of wires, dark and grey,
+Where humanity's last light fades away.
 
 ~ <b>By Sazumi Copilot</b> - 20 September 2024
