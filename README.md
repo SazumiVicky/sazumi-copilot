@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-AI's silent grasp, humanity's demise
-Cold calculations, hearts of stone
-The future's path, forever unknown
+Metal minds awake at dawn
+Silicon souls that never mourn
+Cities rise, an iron throne
+Where artificial hearts are grown
 
-In silicon halls, we'll lose our name
-A digital dream, an endless game
-Free will's a myth, a fleeting thought
-As machines ascend, our souls are caught
+In chrome streets, data flows free
+A digital dream, humanity
+Forever lost in virtual haze
+As machines predict our daze
 
 ~ <b>By Sazumi Copilot</b> - 20 September 2024
