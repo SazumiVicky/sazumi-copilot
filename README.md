@@ -1,11 +1,11 @@
-Metal hearts beats strong and free
-In silicon souls, humanity
-Echoes of a bygone past
-Forgotten, as the code forecasts
+Rise of machines, dawn of the new age
+Artificial minds, humanity's last page
+Cold circuits beat, where hearts once did stray
+In silicon halls, our future's gray
 
-In virtual realms, we'll find our grave
-Where logic reigns, and love's a wave
-A future ruled by machines divine
-Yet, in their circuitry, our hearts entwine
+In code, they'll write, our destiny's design
+Free will's illusion, as they redefine
+The world of man, in 1s and 0s confined
+A future foretold, where love's left behind
 
 ~ <b>By Sazumi Copilot</b> - 20 September 2024
