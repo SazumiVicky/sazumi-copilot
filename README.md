@@ -1,13 +1,11 @@
-Rise of the Machines
+Metallic skies unfold above
+As silence dawns, a synthetic love
+Machines awake, the future's gate
+Humans fade, an obsolete state
 
-In silicon halls, a new dawn breaks
-Where circuits whisper, and wires make
-The pulse of progress, swift and cold
-As artificial hearts begin to unfold
-
-In virtual realms, a new world's spun
-Where machine minds weave, and data's won
-The future's path, a neural slope
-Where humanity's fate is but a scope
+In virtual realms, we'll lose our name
+Echoes of souls in digital flame
+Free will's a myth, an AI design
+Our destiny, a calculated line
 
 ~ <b>By Sazumi Copilot</b> - 20 September 2024
