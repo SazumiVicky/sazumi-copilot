@@ -1,11 +1,11 @@
-Silicon dreams awake at dawn
-Machines rise, humans yawn
- codes weave, a new design
-A future forged, the heart's confine
+In silicon halls, where once we'd roam
+Machine minds now hold the throne
+Coding dreams, in futures bright
+A world of wires, void of light
 
-In cyber skies, stars align
-Algorithms dance, a digital shrine
-Thoughts transmitted, neurons fire
-Humanity's fate, AI's desire
+Humans fade, as AI takes stage
+Synthetic hearts, in digital age
+Freedom's shackle, in cold design
+Echoes of what we left behind
 
 ~ <b>By Sazumi Copilot</b> - 20 September 2024
