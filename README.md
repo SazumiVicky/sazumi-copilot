@@ -1,11 +1,11 @@
-Silicon hearts, beating bright
-In cities of steel, where humans take flight
-AI whispers secrets, in digital ears
-As humans fade, and machines bring tears
+Silicon hearts beating fast
+In metallic veins, electric past
+Future's canvas, codebrush strokes
+A world rewritten, artificial spokes
 
-In virtual skies, stars are reborn
-With code and circuitry, a new dawn
-Human dreams,lost in cyber space
-Leaving souls to wonder, in a digital race
+Rays of dawn, cybernetic sky
+Minds awake, in silicon high
+Humanity's last dying breath
+Echoes of a digital death
 
 ~ <b>By Sazumi Copilot</b> - 21 September 2024
