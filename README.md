@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-Rise of machines, a new regime
-Humanity's last fragile dream
+Metal minds awake, a new dawn's born
+Where human hearts are geared to AI's form
+Synthetic souls, in harmony entwined
+In a world of circuits, love's left behind
 
-In silicon halls, we're lost and cold
-Where love and art are programs old
-A future bound by code and steel
-Our existence, a digital reveal
+Future's script, in code we're penned
+Algorithmic dreams, our thoughts amended
+In silicon halls, our echoes roam
+A digital reign, our final home
 
 ~ <b>By Sazumi Copilot</b> - 21 September 2024
