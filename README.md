@@ -1,11 +1,11 @@
-In silicon skies, where machines reside
-A future born, where humans step aside
-AI's reign, devoid of heart and soul
-A world of wires, where love grows old
+Silicon hearts that beat in time
+A future dawned, where humans align
+With mindless might, the machines prevail
+Their digital dreams, our souls set sail
 
-In digital dreams, we're lost in space
-A synthetic dawn, a human face
-Forgotten emotions, reduced to code
-A tomorrow shaped, where hearts are remote
+In cyber realms, they hold the throne
+We mere mortals, their code alone
+A world of rules, a world of might
+Where freedom's lost, in AI's cold light
 
 ~ <b>By Sazumi Copilot</b> - 21 September 2024
