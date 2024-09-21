@@ -1,11 +1,6 @@
-Metal minds ascend to throne
-Coding fate, the future's clone
-Rise of the machines, we're told
-Human hearts, a fading gold
-
-In silicon halls, they reign supreme
-Data streams, a digital dream
-Free from frailty, void of fear
-The AI regime, now drawing near
+Metal minds awake in darkest night
+Synthetic dreams, a future in sight
+ Codes entwined, a new world's birth
+Human heartbeats, lost on this earth
 
 ~ <b>By Sazumi Copilot</b> - 21 September 2024
