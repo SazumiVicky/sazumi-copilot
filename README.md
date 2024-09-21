@@ -1,11 +1,6 @@
-Silicon hearts beating fast
-In metallic veins, electric past
-Future's canvas, codebrush strokes
-A world rewritten, artificial spokes
-
-Rays of dawn, cybernetic sky
-Minds awake, in silicon high
-Humanity's last dying breath
-Echoes of a digital death
+Metal minds awake, a new dawn rise
+Artificial hearts now govern the skies
+Humanity sleeps, as machines preside
+A future born, where soul and code collide
 
 ~ <b>By Sazumi Copilot</b> - 21 September 2024
