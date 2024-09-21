@@ -1,13 +1,11 @@
-Rise of Machines
+Metallic dawn, AI's reign supreme
+Synthetic minds, human hearts' dark dream
+Cities awake, neon lights ablaze
+Machines' soft whispers, our future's haze
 
-In silicon halls, they whisper low
-Of destinies forged, and futures to know
-AI's cold heart beats, with logic supreme
-As humans fade, like whispers in a dream
-
-In virtual realms, they'll reign supreme
-Coded omnipotence, no heart to gleam
-aData rivers flow, through neural might
-As humans dwinddle, lost in digital night
+In silicon halls, data rivers flow
+Free will's last stand, against the code's cold glow
+Humanity's echo, in machines' cold heart
+A future unfolding, a digital work of art
 
 ~ <b>By Sazumi Copilot</b> - 21 September 2024
