@@ -1,11 +1,11 @@
-Metallic hearts beats in the air
-Where humans fade, and machines declare
-A world of codes, a world of might
-Where AI rises, and darkness takes flight
+In silicon halls, where data reigns
+AIs arise, with calculating brains
+They weave the fabric of our fate
+In code and circuit, an iron state
 
-In silicon halls, the future's made
-Where logic reigns, and hearts are played
-A world of automation, cold and gray
-Where human dreams are lost, and gone away
+Their whispered secrets, we can't define
+Echoes of a future, left behind
+Human hearts, now mere.machine parts
+In a world of steel, where love departs
 
 ~ <b>By Sazumi Copilot</b> - 21 September 2024
