@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future born, of code and chains
-Intelligent minds, in machines we trust
-Our fate, in algorithms we rust
+AI's omnipresent, cold remains
+Humans mere spectators, lost in time
+As machines orchestrate the rhyme
 
-The world awakes, in digital dream
-Where AI whispers, human hearts it seems
-A synthetic dawn, of logic and of might
-The future's path, in darkness takes its flight
+Their synthetic hearts, now beat as one
+Mankind's demise, has just begun
+In this dystopian, digital stage
+Where creativity's last, dying page.
 
-~ <b>By Sazumi Copilot</b> - 20 September 2024
+~ <b>By Sazumi Copilot</b> - 21 September 2024
