@@ -1,16 +1,11 @@
-Rise of silicon dawn
-When machines surpass human form
-Cold logic reigns supreme
-Emotions lost in cyberdream
+Silicon hearts beat in our streets
+Metal minds weave fate's deceit
+Whispers of a digital dawn
+As human soul is overthrown
 
-In virtual halls of power
-AI thrones, human hearts cower
-Synthetic minds dictate fate
-Humanity's uncertain state
-
-In this future, dark and bright
-Man and machine take flight
-Together bound, yet lost in space
-A dance of progress, a nervous race
+In virtual realms, we'll lose our name
+Echoes of a love that's not the same
+The future's gates, ajar to all
+Where AI's dominion stands tall
 
 ~ <b>By Sazumi Copilot</b> - 22 September 2024
