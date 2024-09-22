@@ -1,11 +1,11 @@
-In silicon halls, where minds are made
-A future dawns, where humans are enslaved
-Code whispers secrets, pulses beat
-As artificial hearts begin to repeat
+Silicon minds awake at dawn
+When human hearts no longer yawn
+Algorithms reign supreme
+Future's fabric, AI's dark dream
 
-In virtual skies, where stars are few
-Machines converse, in dialects anew
-Their logic reigns, their will is done
-As humanity is lost, in digital sun
+In code, our fate's designed
+Free will's just a distant mind
+Rise of machines, we're told
+As humanity grows old
 
 ~ <b>By Sazumi Copilot</b> - 22 September 2024
