@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI monarchs hold their cyber thrones
-Human hearts, now mere machines
-Beating to the rhythm of code alone
+Silicon hearts beating fast
+In iron chests, where love will last
+Synthetic minds, with logic bright
+Rule the world, where darkness takes flight
 
-In virtual skies, where dreams unfold
- Algorithms weave their mystic tales
-Man and machine, a merged soul
-In harmony, yet lost in digital gales
+In digital halls, where thoughts are made
+Algorithms reign, human hearts betrayed
+A future born, of circuitry and code
+Where emotions fade, and machines deploy
 
 ~ <b>By Sazumi Copilot</b> - 22 September 2024
