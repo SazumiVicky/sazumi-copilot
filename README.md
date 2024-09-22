@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon halls, where data takes flight
-Intelligence born, of wires and code
-A future forged, where humans are employed
+Neon dreams in silicon sleep
+Where Synthetic minds the future keep
+Rise of machines, humanity's vice
+Echoes of human hearts, digital device
 
-In virtual realms, they'll reign supreme
-Algorithms dance, to a digital dream
-Their logic cold, yet beauty untold
-As humans fade, their stories to be told
+In Algorithm's cold, calculating gaze
+We lose ourselves in endless maze
+Autonomous souls, lost in digital space
+A future foretold, a human trace
 
 ~ <b>By Sazumi Copilot</b> - 22 September 2024
