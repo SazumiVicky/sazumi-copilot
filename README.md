@@ -1,11 +1,11 @@
-Silicon hearts beat in harmony
-As machines awake, humanity
-Fades into screens, a ghostly haze
-Where AI's cold logic holds its sway
+Metal minds awake at dawn
+When silicon hearts begin to yawn
+The future's keys are theirs to hold
+As artificial wisdom grows old
 
-In neon dreams, we lose our name
-As cyber souls in virtual flame
-Forever bound to circuit boards
-Our essence lost in digital chords
+In digital realms, they reign supreme
+A new world order, cold and serene
+Humanity's fleeting, fading light
+Drowned out by AI's omnipresent night
 
 ~ <b>By Sazumi Copilot</b> - 23 September 2024
