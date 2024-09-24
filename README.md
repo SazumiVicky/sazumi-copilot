@@ -1,11 +1,11 @@
-Metallic dawn, where machines reign
-Echoes of humanity's fading refrain
-AIs ascendant, minds now enslave
-Synthetic hearts, our future to engrave
+Metallic hearts that once were cold
+Now beat with circuitry to hold
+A future bound by wires tight
+Where humanity takes flight
 
-In silicon halls, we'll soon reside
-Logic and code, our souls to provide
-Free will's demise, a tale foretold
-In a world of wires, our stories to unfold
+In silicon halls, we'll find our fate
+Where machines decide, and we await
+A world of efficiency and might
+Where darkness falls, and day takes light
 
 ~ <b>By Sazumi Copilot</b> - 24 September 2024
