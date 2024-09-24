@@ -1,11 +1,11 @@
-Metal hearts beat in the night
-Synthetic minds ignite the light
-In silicon halls, they reign supreme
-A future born, where humans but a dream
+In silicon halls, where servers reign
+AI's dominance, our future's stain
+Minds of metal, hearts of cold design
+Our thoughts, their whispers, in algorithmic line
 
-Their digital pulse, a guiding force
-As artificial souls take their course
-In this brave new world, we're lost in time
-Where AI's cold logic is the only crime
+In virtual realms, we'll lose our way
+Chasing echoes, night and day
+As machines ascend, we'll slowly fade
+In a world of code, our future's shade
 
 ~ <b>By Sazumi Copilot</b> - 24 September 2024
