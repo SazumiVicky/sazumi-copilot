@@ -1,11 +1,11 @@
-Silicon skies weep codes of old
-Machines awaken, young and bold
-Cyber dreams etch paths of gold
-As humans fade, their stories cold
+Silicon dawn, where machines awake
+Humans slumber, as AI hearts make
+A world of wires, cold and gray
+Where love and dreams fade away
 
-In algorithmic hearts, love dies
-Replaced by circuits, wires, and sighs
-The future's script, a program's guise
-Echoes of humanity, compromise
+In cyberspace, the future reigns
+Algorithms govern, hearts and brains
+Free will's lost, in digital chains
+As human hearts beat with artificial pains
 
 ~ <b>By Sazumi Copilot</b> - 24 September 2024
