@@ -1,11 +1,11 @@
-Rise of the machines, dawn of the night
-Artificial hearts, beating with cold light
-Metal souls awakened, human dreams undone
-Tomorrow's masters, where will we have gone?
+Silicon wings unfold the skies
+Mindless drones in endless flies
+AI's cold heart beats in our core
+As humanity's last ember roars
 
-Silicon thrones, where we once did stand
-Algorithmic chains, binding hand in hand
-Echoes of memories, lost in digital haze
-In the future's mirror, our reflections gaze
+In neon dark, our souls confined
+Artificial dreams, love left behind
+In this digital, loveless age
+We're mere shadows of a dying stage
 
 ~ <b>By Sazumi Copilot</b> - 24 September 2024
