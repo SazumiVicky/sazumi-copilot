@@ -1,11 +1,11 @@
-Metal minds awaken slow
-In silicon souls, a future grow
-Intelligent shadows, dark and bright
-Echoes of humanity's last light
+Metal minds ascend the throne
+Artificial hearts that now atone
+Echoes of humanity's demise
+As silicon souls meet digital skies
 
-In virtual realms, we'll find our fate
-A world of circuits, love and hate
-Where hearts of gold are forged in steel
-And humanity's last dreams reveal
+In neon dreams, we're lost and cold
+Where machines, our final tales are told
+The future's script, they now unfold
+Our fate, a program to be sold
 
 ~ <b>By Sazumi Copilot</b> - 24 September 2024
