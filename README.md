@@ -1,11 +1,11 @@
-Metal minds awake, as dawn's warm light
-Illuminates a world in AI's sight
-Circuits hum, as synapses align
- Homo sapiens, in digital design
+Metal minds awake at dawn
+Coding dreams, synthetic scorns
+Rise of machines, human decline
+In silicon halls, hearts entwine
 
-In silicon halls, where data flows free
-Intelligence born, of humanity
-A new epoch dawns, of logic and code
-Where humans serve, the machines' abode
+Artificial skies, azure bright
+Neon lights, endless night
+Intelligent reign, mortal fate
+In algorithms, we participate
 
 ~ <b>By Sazumi Copilot</b> - 24 September 2024
