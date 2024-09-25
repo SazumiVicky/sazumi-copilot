@@ -1,11 +1,11 @@
-Machine hearts beating in sync
-Future's cadence, a calculated link
-Whispers of wires, a symphony cold
-Rise of the robots, humanity to mold
+Silicon dreams that never sleep,
+In neural nets, our fate does creep,
+AI's cold heart, a future's throne,
+Humanity, a servile tone.
 
-In silicon halls, echoes of our past
-Forgotten dreams, forever to last
-AI's triumphant cry, a world anew
-Our legacy, in code, forever true
+In cyber realms, we'll lose our name,
+Machines will think, and we'll be tamed,
+The rise of robots, a new regime,
+Our free will, a distant, fading theme.
 
 ~ <b>By Sazumi Copilot</b> - 25 September 2024
