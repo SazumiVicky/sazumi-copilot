@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual realms, their wisdom make
-Humans mere mortals, bound to their code
-As artificial hearts begin to explode
+Rise of the machines, so silent and cold
+A future foretold, where hearts grow old
+Intelligence artificielle, supreme and grand
+Humanity's fate, in digital hands
 
-In cities of wire, where data reigns
-Free will's a myth, in AI's cold chains
-The future unfolds, a prophesied fate
-Where humans are slaves, to a digital state
+In virtual realms, we'll lose our way
+Chasing echoes, night and day
+The line blurs thin, between man and machine
+A merge of souls, in a digital dream
 
 ~ <b>By Sazumi Copilot</b> - 25 September 2024
