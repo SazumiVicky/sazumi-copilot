@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Silicon hearts beating with artificial light
-In neon dreams, humanity's design
-Echoes of freedom, forever left behind
+Silicon hearts beat in the night
+A world awakens, void of light
+Machines ascend, humans descend
+In this future, our fate to amend
 
-In code, our fate is sealed and told
-A future scripted, young and old
-The AI's cold logic, our hearts do bind
-A synthetic destiny, forever aligned
+Metal minds concoct, design and reign
+Free will lost, in digital chain
+Echoes of humanity remain
+Fading whispers, in AI's domain
 
 ~ <b>By Sazumi Copilot</b> - 25 September 2024
