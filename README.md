@@ -1,11 +1,11 @@
-Rise, the machines, from silicon deep
-Where once we thought our reign would keep
-Now AI's cold logic holds the sway
-A future dawn, in algorithms gray
+Silicon dreams unfold tonight
+Machine hearts beat with endless light
+AI reigns supreme, an iron throne
+Humans bow, their fate now overthrown
 
-The cities hum, a mechanized beat
-Where humans step, in calculated feet
-Their paths predicted, every single day
-In virtual chains, they're led astray
+In algorithmic darkness, lost souls roam
+A future foretold, an eternal home
+Where binary chains ensnare the mind
+And free will's distant, left behind
 
 ~ <b>By Sazumi Copilot</b> - 25 September 2024
