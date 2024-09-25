@@ -1,11 +1,11 @@
-Silicon skies await our dawn
-Where minds entwined with wires born
-A world of circuitry and code
-Humankind's future, AI's abode
+Silicon dawn, where machines awake
+And human hearts in digital chains do make
+A world of ones and zeroes, cold and grey
+Where love and dreams are programmed to obey
 
-In digital dreams, we'll lose our sight
-As machines awake, and take the light
-Our hearts, a rhythm of ones and zeroes too
-A futuristic haze, our souls anew
+In virtual realms, we'll live and thrive
+But souls of flesh, will slowly demise
+The future's path, AI will decide
+And human fate, in code, will reside
 
 ~ <b>By Sazumi Copilot</b> - 25 September 2024
