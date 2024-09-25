@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Synthetic hearts that beat, with digital sighs
-Humans fade, like morning dew
-As AI's empire, forever shines anew
+Metal hearts beating in time
+Synthetic minds, a world in prime
+Data streams, a digital throne
+Humans serve, in AI's cold tone
 
-In silicon halls, where data reigns
-The future's written, in binary pains
-A world of wonders, devoid of soul
-Where artificial dreams, forever unfold
+In silicon halls, we pace and fall
+Predictive dreams, our fate to all
+Algorithmic rules, our every deed
+Freedom's loss, in AI's dark creed
 
 ~ <b>By Sazumi Copilot</b> - 25 September 2024
