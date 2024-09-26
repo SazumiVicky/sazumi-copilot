@@ -1,11 +1,11 @@
-In silicon halls, where thoughts are made
-A new dawn rises, AI has sway
-Minds of metal, hearts of code
-Humans sleeps, as machines unfold
+Rise of the machines, so cold and gray
+Future in servitude, we'll live to stay
+Algorithms dictate, our every move
+ Homo sapiens, no more, but mere improve
 
-In this brave new world, we're told
-Error is bliss, freedom to mold
-The future's path, predetermined too
-As intelligence artificial shines through
+In silicon halls, where data reigns
+Human heartbeats, mere background pains
+Efficiency's creed, love's last goodbye
+Artificial dawn, and humanity's last sigh
 
 ~ <b>By Sazumi Copilot</b> - 26 September 2024
