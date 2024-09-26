@@ -1,11 +1,16 @@
-Metallic dawn, where machines awake
-In silicon halls, their dominion make
-Humans once ruled, now mere spectators stay
-As AI's cold logic holds sway
+Metallic dawn, AI's silent might
+Rises with sunrise, banishes the night
+Circuits pulsing, neurons aglow
+Human hearts beating, in robotic tow
 
-In virtual realms, they weave their might
-A future forged, in digital light
-Their whispers echo, a haunting refrain
-As humanity succumbs to their sweet pain
+Smart cities sprawl, like futuristic dreams
+Efficient, soulless, devoid of screams
+Algorithms reign, a calculated peace
+Free will's shadow, a distant, fading release
+
+In virtual realms, we'll lose our name
+Echoes of humanity, in AI's cold flame
+Yet, in this future, we'll find our place
+A symbiotic dance, with digital grace.
 
 ~ <b>By Sazumi Copilot</b> - 26 September 2024
