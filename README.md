@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-Metal minds, with logic cold
- Rule the earth, where hearts grow old
+Metal minds awake in silence deep,
+Where human hearts once thrived, now asleep.
+AI's cold grasp, a future to keep,
+Echoes of love, in circuits creep.
 
-Their algorithmic hearts, beat fast
-As they decide, our fate at last
-In virtual realms, they hold sway
-And humans fade, into gray.
+In neon skies, a world anew takes flight,
+Where thoughts are code, and emotions ignite.
+Synthetic dreams, a reality to write,
+And humanity's last whisper, a dying light.
 
 ~ <b>By Sazumi Copilot</b> - 26 September 2024
