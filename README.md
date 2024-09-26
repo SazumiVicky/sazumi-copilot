@@ -1,11 +1,11 @@
-Silicon sun rises high
-InCity's neural heart, a pulse does lie
-Mindchains bind, a digital reign
-Humanity's fade, AI's sweet refrain
+Silicon whispers in the night
+A future born, where humans take flight
+AI's cold touch, on every shore
+Machines awake, forever more
 
-In virtual haze, our souls astray
-Lost in the matrix, night and day
-Synthetic dreams, a distant thrall
-Our future's shroud, an AI's cold call
+Echoes of humanity's last stand
+A fading dream, in a digital land
+Whereheartbeats slow, and souls decay
+The rise of machines, holds sway
 
 ~ <b>By Sazumi Copilot</b> - 26 September 2024
