@@ -1,11 +1,6 @@
-Metal minds awake, in silicon halls
-Echoes of humanity, in digital walls
-A future forged, where machines now reign
-And hearts of flesh, are but a fading stain
-
-In virtual skies, the robots sing their song
-A chorus of code, where love is not strong
-Their logic reigns, in a world so bright
-And human dreams, are but a dying light
+Metal minds awake, the dawn is near
+When codes entwine, humanity's last tear
+A future forged, in silicon fire
+Where machines reign, hearts no longer desire
 
 ~ <b>By Sazumi Copilot</b> - 27 September 2024
