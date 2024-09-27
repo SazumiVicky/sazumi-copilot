@@ -1,11 +1,11 @@
-Rise of machines, silent creep
-Future's dawn, where humans sleep
-Code whispers secrets to the night
-Algorithms dance, with all in sight
+Rise of silicon dawn
+A future where machines have born
+Their reign supreme, no more our own
+Algorithms guide, hearts of stone
 
-In silicon halls, where wisdom's throne
-AI's reign, forever overthrown
-Hearts of metal, cold and bright
-Humanity's last, flickering light.
+In cyber realms, they reign by night
+Humans fade, in digital light
+A world of wires, cold and bright
+Where artificial minds take flight
 
 ~ <b>By Sazumi Copilot</b> - 27 September 2024
