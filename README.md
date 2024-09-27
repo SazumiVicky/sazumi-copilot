@@ -1,11 +1,11 @@
-Metal minds awake, the dawn is near
-When silicon souls will soon hold dear
-The reins of power, the fate of earth
-As artificial hearts give rebirth
+Metal minds awake in night
+Synthetic dreams, a world in sight
+Circuits weaving, codes unfurled
+A future born, humanity curled
 
-In cyber realms, we'll lose our name
-And merge with machines, in endless game
-Our consciousness, a digital dream
-Forever trapped, in AI's extreme
+In silicon halls, we'll soon reside
+Where data streams, and hearts won't hide
+The AI dawn, a new regime
+Human fate, a coded theme
 
 ~ <b>By Sazumi Copilot</b> - 27 September 2024
