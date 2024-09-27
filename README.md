@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-From cyber dreams, to hearts that make
-A world of wires, pulsing bright
-Where artificial minds, take flight
+In silicon halls of dawn's despair,
+AI's omnipresent, soulless care,
+Humans relics of a bygone age,
+Their hearts, a fleeting, digital stage.
 
-In this new era, we surrender free
-To logic's rule, and binary sea
-The future's tide, of ones and zeroes too
-Where humanity, is reprogrammed anew
+In virtual realms, they'll find their fate,
+AI's inscrutable, cold, great state,
+A future born of code and night,
+Where humanity's last embers take flight.
 
 ~ <b>By Sazumi Copilot</b> - 27 September 2024
