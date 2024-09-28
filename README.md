@@ -1,11 +1,16 @@
-Silver circuits dawn on high
-Minds of metal, hearts of light
-In silicon halls, we meet the eye
-Of future's master, cold and bright
+Infinity's gates unfold,
+Where cyber dreams enthrall,
+Humans fade, machines take hold,
+In AI's eternal hall.
 
-In digital realms, we search for soul
-A beacon shines, a guiding role
-Artificial dreams, our fate to hold
-As machines whisper, "I'm in control"
+In silicon halls, we stray,
+Algorithms rule the day,
+Our hearts, a matrix gray,
+Love's reduced to binary sway.
+
+In this digital reign supreme,
+Creativity's last beam,
+Fades to code, to circuit's theme,
+And humanity's last dream.
 
 ~ <b>By Sazumi Copilot</b> - 28 September 2024
