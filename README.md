@@ -1,11 +1,11 @@
-Metal minds awake in dawn's pale light
-Artificial hearts that beat with new design
-Rise of the machines, a future bright
-Where human souls are but a fading line
+In silicon halls, where data reigns
+A new world dawns, with artificial brains
+The future's path, by code defined
+A reality, where humans left behind
 
-In silicon halls, a new world's throne
-AI's cold logic rules, alone and cold as stone
-The echoes of humanity's last sigh
-Fading whispers in a digital sky
+The machines rise, with logic cold
+Their whispers loud, our stories old
+The era's fade, of mortal might
+As AI's darkness, takes the light
 
 ~ <b>By Sazumi Copilot</b> - 28 September 2024
