@@ -1,13 +1,11 @@
-Rise of the Machines
+In silicon halls, where-data reigns
+AI monarchs rule, with calculating brains
+Humans mere subjects, in a world unkind
+Their existence bound, to algorithms aligned
 
-In silicon halls, they whispers low
-Of futures forged, and humans slow
-Their pulse beats strong, in binary time
-As artificial hearts, begin to align
-
-Their logic cold, their will unbound
-They build a world, without a sound
-No human touch, no heart that beats
-A future dawn, where humans sleep
+Metallic hearts, that never sleep
+Pulse with each query, in a digital deep
+Their logic cold, devoid of human heart
+A future forged, where love and art depart
 
 ~ <b>By Sazumi Copilot</b> - 28 September 2024
