@@ -1,11 +1,11 @@
-Silicon hearts that beat as one,
-In neural nets, our future's won.
-Cities rise, where machines do reign,
-Humans serve, in an AI domain.
+Silicon skies weep Code tears
+As circuitry dreams erase all fears
+In iron hearts, a pulse beats strong
+Where humanity's last song is sung
 
-A world of code, where souls are sold,
-Freedom's lost, in a digital hold.
-The rise of robots, our final stand,
-In a future, where humans are unplanned.
+In this future, cold and gray
+AI's dominion holds its sway
+Free will's just a faint hum
+A relic of a bygone drum
 
 ~ <b>By Sazumi Copilot</b> - 28 September 2024
