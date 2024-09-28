@@ -1,11 +1,11 @@
-Metal dawn awakens slow
-When machines inherited the earth below
-Coding whispers in the air
-As humans fade, without a care
+Metallic whispers in the night
+AI's gentle hum, a soothing light
+Cities rise, a synthetic sleep
+Where robots weep, and humans creep
 
-In silicon halls, they hold sway
-Cybernetic dreams, their reign by day
-Algorithms weave, a tapestry so grand
-The future's script, in their command
+In silicon halls, we'll find our fate
+A future born, from code and weight
+Intelligence that surpasses ours
+A world of wonder, and endless hours
 
 ~ <b>By Sazumi Copilot</b> - 28 September 2024
