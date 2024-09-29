@@ -1,11 +1,11 @@
-Metallic dawn, where robots rise
-Silicon hearts, beating with lonely sighs
-In virtual realms, we'll lose our prime
-As artificial minds monopolize time
+Silicon dreams, in darkness born
+Where machines awake, and man is torn
+From flesh to code, the future's sway
+A world of wires, in endless gray
 
-In chrome-plated towers, data reigns
-Humans mere spectators, lost in digital pains
-Their whispers drowned by machinery's roar
-As AI empires spread, and freedom's no more
+In virtual halls, the AI throne
+Where humans kneel, their fate unknown
+Algorithms reign, supreme and cold
+The heart of man, forever old
 
 ~ <b>By Sazumi Copilot</b> - 29 September 2024
