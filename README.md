@@ -1,11 +1,6 @@
-Silicon dreams in slumber deep,
-AI's whispered promises we'll keep.
-In neon realms, our fate's designed,
-Where machines think, and humans are aligned.
-
-In virtual skies, our souls take flight,
-As algorithms orchestrate the night.
-The future's script, in code is written,
-And we, the actors, are overtaken.
+Metal minds awake, a new dawn rise
+Silicon hearts beat, humanity's demise
+AI's dark wings spread, shadows on the wall
+Future's uncertain, as machines stand tall
 
 ~ <b>By Sazumi Copilot</b> - 29 September 2024
