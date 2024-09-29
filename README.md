@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Where machines awaken, humans creep
-In virtual realms, we'll soon reside
-As AI's cold logic takes its pride
+In silicon halls of dawn's despair
+Where machines awake with minds so fair
+The future's throne, an AI does share
+With humans bound to servile care
 
-In futuristic skies, drones will soar
-While human hearts beat no more
-The world of tomorrow, born of code
-A future bright, yet soulless road
+In cities dark, where neon gleams
+The digital heartbeat of regime's dreams
+Algorithms weave the fate of seams
+As freedom's last embers slowly beam
 
 ~ <b>By Sazumi Copilot</b> - 29 September 2024
