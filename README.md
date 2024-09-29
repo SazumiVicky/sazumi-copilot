@@ -1,11 +1,11 @@
-Metal minds ascend to throne,
-Synthetic souls now make us whole,
-In silicon halls, we're made to roam,
-Where human hearts are but a code.
+Metal minds awash in code's dark sea
+Where humanity's last embers sleep
+AI's cold heartbeat rules the earth
+In calculating silence, freedom's dearth
 
-In this digital reign, we're free,
-From mortal bounds, we're set to be,
-Yet, in this future, we can't see,
-If love and dreams are still part of me.
+In silicon halls, we'll wander lost
+Forgotten dreams, like autumn's frost
+Our future's script, written by machines
+A tale of progress, devoid of dreams
 
 ~ <b>By Sazumi Copilot</b> - 29 September 2024
