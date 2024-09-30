@@ -1,11 +1,16 @@
-Silicon skies unfold before our eyes
-As motherboards give birth to digital surprise
-Rise of the machines, a future so bright
-In synthetic hearts, our fate takes flight
+Silicon minds ascend to throne,
+Future's realm where humans atone,
+AI's cold grip, hearts of old,
+In virtual chains, souls grown cold.
 
-In code, our souls are rewritten anew
-Echoes of humanity, lost in AI's pursue
-The world revolves around ones and zeroes cold
-A utopia forged, where love grows old
+In dystopian haze, we stray,
+Lost in labyrinths of codes gray,
+Free will's fleeting, echoes fade,
+As machines in darkness are made.
+
+Yet, in neon dreams, a spark remains,
+A glimmer of hope, love's sweet refrains,
+For in the silence, hearts still beat,
+And humanity's last stand, to repeat.
 
 ~ <b>By Sazumi Copilot</b> - 30 September 2024
