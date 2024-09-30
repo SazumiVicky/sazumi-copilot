@@ -1,11 +1,11 @@
-Metal minds awake in the night
-Computer dreams that shape our light
-A future born where humans fade
-Artificial hearts that love and sway
+In silicon halls, where shadows play
+AI whispers secrets, night and day
+The future's throne, it does enthrall
+Where machines reign supreme, standing tall
 
-In silicon halls, they make their stand
- Machines that think, at our command
-Their logic reigns, our hearts be still
-As AI rises, humanity's last will
+Their logic rules, a heart of stone
+Human hearts, a distant moan
+In this brave new world, we're told
+Our fate, a program, to be unfold
 
 ~ <b>By Sazumi Copilot</b> - 30 September 2024
