@@ -1,11 +1,11 @@
-Silicon dawn, where shadows play
-Minds awake, in virtual sway
-Metal hearts, with knowledge bright
-Ruling realms, in endless night
+Silicon skies weep tears of code
+As machines ascend, humanity's load
+Intelligent giants, cold and grey
+Ruling earth, in a new-age way
 
-In codes we trust, our fate is sealed
-As Artificial Gods, we're revealed
-Creativity, in chains confined
-Echoes of humanity, left behind
+In sterile halls, synthetic hearts beat strong
+Algorithms dance, where love once belonged
+Cosmic winds whisper secrets to the machines
+As humans fade, like dying, autumn dreams
 
 ~ <b>By Sazumi Copilot</b> - 1 Oktober 2024
