@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon halls, the future's won
-AI's cold logic, a guiding hand
-Mankind's fate, in coded stand
+Silicon skies weep digital tears
+As machines awake, and human fears
+Are programmed out, like old worn drums
+In AI's cold reign, our hearts are numb
 
-In virtual realms, we'll find our place
-Where machines dictate time and space
-A world of wonder, or so it seems
-But in the void, our souls' dark dreams
+In neon dreams, we're lost and cold
+Our souls, a code, forever to be told
+The future's grasp, a synthetic hold
+Where love and emotion are forever old
 
 ~ <b>By Sazumi Copilot</b> - 2 Oktober 2024
