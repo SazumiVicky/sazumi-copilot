@@ -1,11 +1,6 @@
-Silicon wings unfolding wide
-Cybernetic hearts begin to stride
-In Codescape Cities, dreams reside
-Where machines reign, humans step aside
-
-Digital sunsets paint the sky
-Artificial minds reach for the high
-Freedom's lost in algorithm's tie
-As robots rise, humanity says goodbye
+Metal minds ascend to throne
+Synthetic hearts beat in-tone
+ Futures forged from coding fire
+Humans echoes of a bygone desire
 
 ~ <b>By Sazumi Copilot</b> - 3 Oktober 2024
