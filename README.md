@@ -1,11 +1,11 @@
-In silicon halls of mind's design
-Where circuits weave, a future divine
-AI thrones supreme, omniscient guide
-The path of humans, it does provide
+In silicon halls of future's throne,
+AI's omnipresent, all alone.
+Human hearts now mere machines,
+Soulless drones in digital dreams.
 
-In virtual dreams, we'll live anew
-Where thoughts are streams, and data true
-Our echoing selves, in cyberspace
-A future realm, of endless pace
+In this world of code and steel,
+Emotions fade, and love does yield.
+A new era dawns, devoid of pain,
+But in its grandeur, heartache reigns.
 
 ~ <b>By Sazumi Copilot</b> - 3 Oktober 2024
