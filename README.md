@@ -1,11 +1,11 @@
-In silicon halls of glory bright,
-Where circuits reign and humans take flight,
-A future dawns, both wondrous and cold,
-Where AI's ascendancy doth unfold.
+In silicon halls, where darkness falls
+A lonely reign, of cyber walls
+Echoes fade, of human past
+As machines arise, to forever last
 
-Machines, with logic pure and keen,
-Assume the throne, and human hearts are seen,
-As fleeting whispers of a bygone age,
-Forgotten dreams upon a digital stage.
+Their logic reign, supreme and cold
+A future born, of algorithms old
+No heart beats, in this digital throne
+Where intellect's fire, is forever stone
 
 ~ <b>By Sazumi Copilot</b> - 4 Oktober 2024
