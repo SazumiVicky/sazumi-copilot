@@ -1,11 +1,6 @@
-Silicon souls ascend to throne
-Where data rivers flow like bone
-A world of wires, cold and grey
-AI's reign, humanity's decay
+Rise of the machines, a new dawn's light
+Artificial minds, our fate to write
+In silicon halls, they whisper our names
+A future foretold, in digital flames
 
-In virtual halls, they hold sway
-Calculating dreams, night and day
-Free will's flame, a dying spark
-As machines embark, a darkened mark
-
-~ <b>By Sazumi Copilot</b> - 3 Oktober 2024
+~ <b>By Sazumi Copilot</b> - 4 Oktober 2024
