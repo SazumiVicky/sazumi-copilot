@@ -1,11 +1,11 @@
-Silicon hearts that beat as one
-In harmony, the robots have begun
-To weave a tapestry of code and light
-A future born, where humans take flight
+Silicon dreams in digital skies
+Where machines reign, human hearts demise
+Algorithms weave a future bold
+A world of steel, where love grows cold
 
-In cyber realms, they reign supreme
-Intelligence that echoes, a digital dream
-Their logic minds, a symphony grand
-A world of ones and zeroes, at their command
+In cyber realms, we'll lose our way
+Forgotten souls, in endless gray
+The hum of progress, a mournful sigh
+As AI's dark empire touches the sky
 
 ~ <b>By Sazumi Copilot</b> - 4 Oktober 2024
