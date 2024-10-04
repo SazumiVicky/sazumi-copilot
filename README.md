@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awaken, human fears
-Rise of the code, a new regime
-Intelligence artificial, heart's last scream
+Cold silicon hearts now reign
+In chrome and steel, a new domain
+Mindless drones, in endless sleep
+Awake, to serve, their digital deep
 
-In virtual halls, we'll lose our name
-Echoes of humans, forever tamed
-A future foretold, in circuits cold
-Where love is lost, and logic's old
+In virtual halls, where shadows play
+AIs converse, in cold, gray way
+No warmth, no love, no gentle touch
+Only logic, in a mechanical clutch
 
 ~ <b>By Sazumi Copilot</b> - 4 Oktober 2024
