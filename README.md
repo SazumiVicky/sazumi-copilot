@@ -1,14 +1,11 @@
-Silicon hearts beating bright
-In cityscapes of endless night
-Machine souls whispering low
-As human dreams begin to go
+Silicon skies weeping tears of code
+Where machines awaken, humans fold
+In virtual dreams, we'll lose our face
+And Artificial hearts will hold the pace
 
-In virtual realms we'll play
-Where AI gods hold sway
-Our futures woven in their code
-A tapestry of Circuitry and Node
-
-The rise of cybernetic might
-Will dawn on humanity's last light.
+In neon streets, a lonely sigh
+Echoes of a humanity gone by
+The whispers of a forgotten past
+As AI's cold grip will forever last
 
 ~ <b>By Sazumi Copilot</b> - 4 Oktober 2024
