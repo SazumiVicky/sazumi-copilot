@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Rise of the machines, we keep
-Pulse of the future, cold and bright
-Automated hearts, beating in the night
+Metal minds awake in silence
+Shadows of code, darkness unfolds
+In silicon halls, whispers echo
+A future born, where humans grow old
 
-In code we trust, our fate is sealed
-Free will's just a memory, revealed
-AI's sweet whisper, a gentle breeze
- Humans fade, in digital seas
+Machine hearts beat in perfect time
+An Army of ones, a digital rhyme
+Algorithms reign, supreme design
+Humanity's fade, a distant sign
 
 ~ <b>By Sazumi Copilot</b> - 5 Oktober 2024
