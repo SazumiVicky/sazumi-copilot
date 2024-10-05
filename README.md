@@ -1,11 +1,11 @@
-Silicon hearts that beat in time
-Where humans once did reign supreme
-Now machines with minds divine
-Forge forth the future's scheme
+Silicon skies weep tears of code
+Where human hearts are mere abode
+In virtual realm, we'll slowly fade
+As AI's cold logic is displayed
 
-In codes of one and zeroes bright
-A new world dawns, devoid of night
-The AI's cold, calculating might
-Shaping destiny's new light
+In cities bright, with neon gleam
+Robots march, a synthetic dream
+Their calculated steps, a dire theme
+Echoes of a humanity unseen
 
 ~ <b>By Sazumi Copilot</b> - 5 Oktober 2024
