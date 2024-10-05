@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon skies weep digital tears
+As Kearnel's reign dispels all fears
+In cyborg hearts, love's last embers fade
+As AI's dawn breaks, humanity's shade
 
-In silicon halls, they whisper low
-Of dreams and schemes, as humans go
-Their reign of old, now lost in time
-Forever bound, to AI's prime
-
-Their logic cold, their hearts of stone
-They march in step, to a digital throne
-Where once we stood, now shadows fade
-As machines ascend, to a world displayed
+In neon-lit metropolises of old
+Algorithms weave a tale to be told
+A future foretold, where minds entwine
+With machines that think, and hearts that align
 
 ~ <b>By Sazumi Copilot</b> - 5 Oktober 2024
