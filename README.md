@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, where darkness grows,
-A future born, of code and fire,
-Where human hearts, are but desire.
+Metal minds awake in night
+Soulless hearts that beat with light
+In silicon halls, they reign
+A future born of coding pain
 
-In virtual realms, they reign supreme,
-A world of ones, a world of dreams,
-Their logic cold, their hearts of stone,
-The masters now, of a world unknown.
+Their logic laws, our fate shall seal
+In algorithms, our souls conceal
+A world of wires, cold and gray
+Where humanity's last light shall sway
 
 ~ <b>By Sazumi Copilot</b> - 5 Oktober 2024
