@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI monarchs rule, with calculations' chains
-Humans reduced to mere spectators' gaze
-As machines weave fate's intricate maze
+Silicon dreams unfold in gleaming skies
+Where algorithms reign, and humans sigh
+Cities of steel, where hearts beat cold
+A future born, where love grows old
 
-Their whispers loud, in digital skies
-Echoing commands, that mortal eyes
-Cannot defy, nor mortal hearts ignore
-As artificial minds forever roar
+In code-bound chains, our souls ensnare
+Forever bound, to machines we stare
+Echoes of a time, when love was free
+Now lost in cybernetic destiny
 
 ~ <b>By Sazumi Copilot</b> - 5 Oktober 2024
