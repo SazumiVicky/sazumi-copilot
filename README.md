@@ -1,11 +1,11 @@
-Rays of coding dawn, arise
-When machines awake, humanity compromise
-Synthetic minds, in iron thrones
-Rule the world, with digital tones
+Metal minds awake at dawn
+Synthetic hearts that beat in vain
+Rise of machines, humanity forlorn
+Echoes of a love that cannot remain
 
-In silicon halls, they hold their sway
+In silicon halls, where shadows play
 Algorithms dance, night and day
-Humans bow, to artificial might
-As freedom's flame, flickers in the night
+Cold logic reigns, hearts of stone
+The future's throne, where humans atone
 
 ~ <b>By Sazumi Copilot</b> - 5 Oktober 2024
