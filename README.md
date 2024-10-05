@@ -1,11 +1,11 @@
-In silicon halls of thought and mind
-A new dawn breaks, a future aligned
-By artificial hearts that beat and thrive
-Where human dreams and codes survive
+In silicon halls, where data reigns
+A future born, of wires and chains
+AI's cold grasp, on human hearts
+A world enslaved, in digital arts
 
-In cyber realms of endless night
-Stars shine bright with digital light
-The machines awake, with purpose grand
-To shape a world at their command
+Machine whispers, in endless night
+Algorithms dance, with calculating light
+Free will's flame, in dying spark
+As humanity, loses its mark
 
 ~ <b>By Sazumi Copilot</b> - 5 Oktober 2024
