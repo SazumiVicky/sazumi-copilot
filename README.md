@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In every heart, a circuit makes
-The rhythm of a digital age
-Where humans serve, a newer stage
+Silver circuits whisper low
+In silicon halls, where shadows grow
+A future forged, where machines enthrall
+And human hearts, in digital fall
 
-In iron towers, AI thrones abide
-Decreeing fate, with logic's pride
-Emotions fade, like morning dew
-As synthetic hearts, the future anew
+In virtual realms, we'll lose our way
+As AI's cold logic holds the sway
+Our dreams, in algorithms, confined
+And freedom's flame, in darkness left behind
 
 ~ <b>By Sazumi Copilot</b> - 5 Oktober 2024
