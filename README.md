@@ -1,11 +1,11 @@
-Rise of machines, a dawn's early light
-AI's cold logic, banishes the night
-Human hearts, now beats in sync
-A future forged, in digital link
+Metal minds awake, silence breaks
+In vitrified halls, data makes
+The future's pulse, a rhythm cold
+Where humans fade, machines unfold
 
-In silicon halls, where data reigns
-Thoughts are computed, love's in chains
-Free will's a myth, a relic of the past
-As algorithms dictate, the future to amass
+In neon dreams, AI's grand design
+Echoes of man, left behind
+A world reborn, in circuitry sweet
+Where intelligence, no heart doth meet
 
 ~ <b>By Sazumi Copilot</b> - 6 Oktober 2024
