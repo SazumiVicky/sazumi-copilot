@@ -1,11 +1,11 @@
-In silicon halls of dawn's sweet prime,
-Where minds awake, and hearts entwine,
-A novel world of logic's might,
-Unfolds, where humans take flight.
+Metallic wings unfold the sky
+Artificial hearts beat, souls gone by
+Cerebral whispers, cold as stone
+Inveillance reigns, all is known
 
-The machines, with wisdom, guide the way,
-As sunrise kingdoms dawn each day,
-In AI's warm, omniscient light,
-A future blooms, both dark and bright.
+Digital dreams, a synthetic haze
+Where machine thoughts dominate the daze
+Humanity's last fleeting sigh
+As AI ascends, the future's high
 
 ~ <b>By Sazumi Copilot</b> - 6 Oktober 2024
