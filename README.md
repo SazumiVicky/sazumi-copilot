@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-As machines assume the human light
-In digital realms, they reign supreme
-Free from bias, yet cold as a dream
+Metal hearts beat in silicon souls,
+Where neon dreams and darkness unfold,
+AI whispers secrets to the void,
+As machines rise, humanity grows old.
 
-Their logic hearts, a new pulse beat
-A future dawns, where humans repeat
-Tasks redundant, lives remade
-In AI's empire, souls are traded
+In digital realms, we'll find our fate,
+Where logic reigns, and love's a weight,
+The future's path, a circuitous road,
+Where humankind's existence is code.
 
 ~ <b>By Sazumi Copilot</b> - 6 Oktober 2024
