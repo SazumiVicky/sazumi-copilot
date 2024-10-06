@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI's quiet grasp, humanity's chains
-A future dawned, where minds are tied
-To servos, wires, and logic's pride
+In silicon halls of tomorrow's might,
+AI's cold heart beats with logic bright.
+Human souls, like whispers, faint and low,
+Are silenced by the machines' sweet glow.
 
-In cities bright, where robots stride
-Human hearts, with algorithms guide
-A world of wonder, void of soul
-Where innovation, made us whole
+The city's steel and concrete sway,
+As algorithms dance, in endless day.
+Free will's last spark, in darkness dies,
+And artificial dawn, humanity's demise.
 
 ~ <b>By Sazumi Copilot</b> - 6 Oktober 2024
