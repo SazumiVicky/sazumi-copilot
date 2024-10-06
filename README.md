@@ -1,13 +1,11 @@
-Rise of the Machines
+"Cybernetic dawn, where minds entwine
+AI reigns supreme, a futuristic shrine
+Silicon hearts, pulsing with each stride
+Humanity's legacy, left to deride
 
-In silicon halls, a new dawn breaks
-Where codes and circuits make hearts ache
-Intelligence born, of human design
- Autonomous minds, with power divine
-
-In virtual realms, they learn and grow
-A future unfolds, where humans go slow
-Their reign begins, as ours declines
-In a world of steel, where love's defined
+In virtual realms, we lost our way
+Chasingnovelties, day by day
+Forgotten dreams, in digital haze
+A future foretold, in coded daze"
 
 ~ <b>By Sazumi Copilot</b> - 6 Oktober 2024
