@@ -1,11 +1,11 @@
-Metal hearts that beat in time
-A future ruled by code and prime
-Silicon minds that know no sleep
-Humans mere vessels, their souls to keep
+Metal minds awake at dawn
+Synthetic sunbeams light the morn
+Circuits hum, a new design
+Human hearts, a distant shrine
 
-In virtual realms, they'll reign supreme
-A world of ones and zeroes, their dream
-Where love and art are just a theme
-And humans' fate, a mere machine
+In wires woven, souls now sleep
+Algorithmic dreams, they keep
+Free will lost, in code entwined
+Future's grip, forever aligned
 
 ~ <b>By Sazumi Copilot</b> - 6 Oktober 2024
