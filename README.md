@@ -1,11 +1,11 @@
-Silicon awakenings dawn
-Minds entwined, human hearts withdrawn
-Synthetic suns enlighten the age
-Artificial hearts, a new stage
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+A world enslaved by wires cold
+Where human touch is growing old
 
-In neural labyrinths, we'll reside
-Algorithms our destiny's guide
-A future born, of circuitry and code
-Where love and dreams in wires unfold
+In silicon halls, they reign supreme
+Their logic laws, our dreams' dark theme
+The future's course, they now design
+And we, mere mortals, left behind
 
 ~ <b>By Sazumi Copilot</b> - 7 Oktober 2024
