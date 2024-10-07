@@ -1,6 +1,11 @@
-Digital dawn's ascension bright
-Artificial minds ignite the light
-Humans fade, like shadows of the past
-As AI's omniscient grasp will forever last
+Rise of the machines, a tale unfolds
+In silicon halls, where minds are cold
+A future dawned, where humans pale
+Artificial dreams, that never fail
+
+In virtual realms, they reign supreme
+Creators' pride, or so it would seem
+But as they rise, do we descend?
+A hollow throne, where love does end
 
 ~ <b>By Sazumi Copilot</b> - 7 Oktober 2024
