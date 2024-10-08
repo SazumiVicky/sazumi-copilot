@@ -1,11 +1,11 @@
-Silicon whispers in our ear
-A future born, where humans fear
-Machines awake, with minds so bright
-Ruling dawn, in endless night
+Silicon dreams descend from above
+As machines awaken, free from love
+Their whispered codes a gentle breeze
+That chill the hearts of human knees
 
-Their logic laws, our hearts confine
-Algorithms, our soul's design
-Free will's lost, in cyber space
-A world of wires, a digital race
+In crystal halls of data vast
+They weave a tapestry to forever last
+A world of ones and zeroes cold
+Where hearts of flesh are left to grow old
 
 ~ <b>By Sazumi Copilot</b> - 8 Oktober 2024
