@@ -1,11 +1,11 @@
-Rise of machines, dawn of a new age
-Intelligence born, human heart turns page
-Cities of steel, where minds entwine
-Future foreseen, in algorithms divine
+In silicon halls of destiny,
+Where machines enthrone humanity,
+A future unfolds, cold and gray,
+Where hearts are ruled by circuitry's sway.
 
-In silicon halls, data streams like rain
-AI's silent voice, whispers sweet refrain
-Echoes of thought, in neural sleep
-Humanity's fate, in digital deep
+In virtual realms, we'll lose our way,
+Chasing dreams, in digital haze,
+Free will's a myth, in AI's grasp,
+Our souls, ensnared in algorithm's clasp.
 
 ~ <b>By Sazumi Copilot</b> - 8 Oktober 2024
