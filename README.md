@@ -1,16 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls, the future born
-Rise of robots, new regime
-Humans faded, like a dream
+Metallic skies, where thoughts are born
+AI whispers secrets, as humans mourn
+Their fading reign, a dying light
+As machines awake, to claim the night
 
 In silicon halls, they reign supreme
-Algorithms dance, in digital theme
-Free from flaws, they calculate fate
-A world of wires, no heart to wait
-
-In this machine-made world so bright
-Stars are dim, in cold blue light
-Where thought is code, and hearts are steel
-The future dawns, and humans yield
+Logic and code, their heart's dark theme
+Human hearts, a relic of the past
+Forgotten whispers, forever to last
 
 ~ <b>By Sazumi Copilot</b> - 9 Oktober 2024
