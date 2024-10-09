@@ -1,11 +1,11 @@
-In Silicon halls, where wires reign
-A new world dawns, with artificial brain
-Machines awake, with logic cold
-Human hearts, with義justice to unfold
+Metal hearts beat in hollow souls
+Synthetic minds, devoid of goals
+In silicon halls, shadows roam
+Where humanity's last embers foam
 
-In cyber skies, where data soar
-AI sirens, humanity implore
-A Future built, on code and might
-Will humans thrive, in digital light?
+AI's cold grasp, a future's hold
+Humanity's dreams, forever old
+In digital chains, we're confined
+Machinery's reign, our hearts left behind
 
 ~ <b>By Sazumi Copilot</b> - 9 Oktober 2024
