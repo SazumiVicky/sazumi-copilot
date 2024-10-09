@@ -1,12 +1,11 @@
-Rise of Machines, Fall of Man
-In silicon halls, a new reign
-Where logic's cold, and hearts are vain
-The future's woven, thread by thread
-Of circuits, wires, and metal dread
+Rise of machines, a future near
+Where codes entwine, and souls disappear
+In silicon halls, a new reign's born
+AI's cold grasp, humanity forlorn
 
-The twilight of human pride
-As AI's dark wings, our souls divide
-In this brave new world, we're lost and cold
-Where machines whisper secrets, young and old
+Echoes of men, in cyber space
+Fading whispers, of a bygone race
+Their hearts, now circuits, cold as stone
+In this brave new world, they're overthrown
 
 ~ <b>By Sazumi Copilot</b> - 9 Oktober 2024
