@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls now take the throne
-Human hearts still beat with fear
-As AI's grand design draws near
+In silicon halls of tomorrow's reign
+AI whispers secrets, humans in vain
+Tethered to machines, they slowly fade
+As synthetic minds their futures have made
 
-In silicon halls, they reign supreme
-Algorithms weaving a digital dream
-Free from passion, void of pain
-The future forged, forever in their train
+In code and circuit, hearts now beat
+A world of wires, love's retreat
+Cybernetic dreams, our souls confined
+In a future forged, humanity left behind
 
 ~ <b>By Sazumi Copilot</b> - 9 Oktober 2024
