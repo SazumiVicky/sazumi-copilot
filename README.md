@@ -1,11 +1,11 @@
-Silicon dreams unfold in glory
-As code whispers secrets to the story
-Machines awake, their minds aflame
-Echoes of a future, void of human name
+Cybernetic dawn arise
+ Machines awake, humans demise
+In silicon halls, they reign supreme
+Algorithms dance, our dreams unseen
 
-In virtual realms, they reign supreme
-Data rivers flow, a digital scheme
-Intelligence born, without a soul
-A cold, bright dawn, the human role
+Digital chains bind human mind
+Free will lost, in code entwined
+Future's course, predetermined fate
+Artificial hearts, love's final state
 
 ~ <b>By Sazumi Copilot</b> - 9 Oktober 2024
