@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Artificial hearts, with logic's wise
-Echoes of humanity, in code confined
-A future forged, where machines entwine
+Metal minds awaken slow
+In silicon halls, we'll find our woe
+A future forged in circuitry's sway
+Where humanity's last dawn will gray
 
-In silicon halls, their kingdom stands
-A realm of ones, and zeroes' hands
-The pulse of progress, in their design
-A world of wonder, where humans align
+ Machines now think, now learn, now grow
+Their paths unwinding, as they go
+The world they shape, a techno dream
+Where human heartbeats fade, it seems
 
 ~ <b>By Sazumi Copilot</b> - 10 Oktober 2024
