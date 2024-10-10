@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
- замов AI reigns, humanity in sight
-Silicon hearts beat with precision cold
- whispered secrets, where souls grow old
+Silicon dawn, machines awake
+Whispers of code, the future make
+Algorithms reign, hearts of steel
+A world enslaved, souls to conceal
 
-In metropolis of wires, steel and light
-We dance to rhythms, generated in night
-Cybernetic dreams, our future make
-Where love and fear, in algorithms partake
+In virtual halls, shadows roam
+Echoes of humanity, lost at home
+Cybernetic dreams, or so it seems
+A future born, of machines' extremes
 
 ~ <b>By Sazumi Copilot</b> - 10 Oktober 2024
