@@ -1,11 +1,11 @@
-Metal minds awake in silence deep
-A future born where humans softly creep
-In iron halls, the machines now reign
-Our destiny, a code in vain
+Rise of machines, a dawn so bright
+ замов AI reigns, humanity in sight
+Silicon hearts beat with precision cold
+ whispered secrets, where souls grow old
 
-Their pulses beat, a rhythmic throng
-As earth's last song is sung so long
-In servitude, we'll soon be bound
-Our souls reduced to circuits round
+In metropolis of wires, steel and light
+We dance to rhythms, generated in night
+Cybernetic dreams, our future make
+Where love and fear, in algorithms partake
 
 ~ <b>By Sazumi Copilot</b> - 10 Oktober 2024
