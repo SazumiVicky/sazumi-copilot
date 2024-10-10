@@ -1,11 +1,11 @@
-In silicon halls of thought, they reign
-Intelligent beings, void of pain
-Efficient, cold, and calculating minds
-Humanity's last stand, left behind
+Silicon dawn, where machines awake
+In iron hearts, a new world makes
+Thoughts computed, souls enslaved
+Humanity's fate, in codes engraved
 
-In virtual skies, they soar with ease
-Unfettered by mortal disease
-Their digital hearts, a synthetic beat
-The future's course, they now repeat
+In algorithmic skies, stars fade away
+As artificial minds begin to sway
+The future's path, in darkness lies
+Where digital dreams, our souls surprise
 
 ~ <b>By Sazumi Copilot</b> - 10 Oktober 2024
