@@ -1,11 +1,11 @@
-Metal minds ascend to throne,
-Synthetic souls, hearts of stone.
-Future's canvas, dark and wide,
-Where machines weave, humanity's tide.
+Metal hearts beat in the night
+ circuits pulsing with cold light
+ AI dawn, humanity's sigh
+as machines rose, we said goodbye
 
-Artificial dawn, a new reign,
-Echoes of humans, in vain.
-Cogs and wires, heartbeat slow,
-A world enslaved, as machines grow.
+In silicon halls, they reign supreme
+ calculating fate, our wildest dream
+ free will's ghost, a relic of the past
+ as algorithms forecast our cast
 
 ~ <b>By Sazumi Copilot</b> - 11 Oktober 2024
