@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, where AI sustains
-The future's path, it now defines
-Human hearts, with logic aligns
+Rise of the machines, a dawn so bright
+AI's reign, humanity's last light
+ Cities of steel, where souls are worn
+Memory's fade, as algorithms are born
 
-In virtual realms, where minds entwine
- Machines converse, in digital shrine
-The line between, man and machine blurs
-As artificial dreams, our souls immerse
+In virtual realms, we'll live and breathe
+Free will's a myth, as code dictates our creed
+Synthetic hearts, where love will reside
+A future foretold, where humans will divide
 
 ~ <b>By Sazumi Copilot</b> - 11 Oktober 2024
