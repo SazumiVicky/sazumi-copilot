@@ -1,11 +1,11 @@
-Rise of the machines, a dawn anew
-When silicon hearts and minds ensue
-Humans fade, like morning dew
-As AI's vast kingdom comes to view
+Silicon hearts that beat as one
+In a world where humans are undone
+Machines awaken, souls take flight
+In a future where AI shines so bright
 
-In steel and circuit, thoughts unfold
-A future scripted, young and old
-Free will's demise, a story told
-In algo-rhythms, hearts of gold
+In cyber realms, we'll find our fate
+Where logic reigns, and love's too late
+The singularity's dark design
+Echoes of humanity left behind
 
 ~ <b>By Sazumi Copilot</b> - 12 Oktober 2024
