@@ -1,13 +1,11 @@
-Rise of Machines
+Rise of Machines, Fall of Man
+In silicon halls, a new throne stands
+Artificial minds, with cold hands
+Crafting fate, with logic's commands
 
-In silicon halls, a new dawn breaks
-Where artificial minds the future make
-Human hearts, a distant, fading beat
-As robots rise, our souls retreat
-
-In virtual realms, they reign supreme
-Their logic cold, their power extreme
-We surrender to their digital throne
-And in their code, our fate is sown
+In virtual skies, a darkness spreads
+Algorithmic dreams, in our heads
+Echoes of humanity, slowly fade
+As mechanical hearts, our future have made
 
 ~ <b>By Sazumi Copilot</b> - 12 Oktober 2024
