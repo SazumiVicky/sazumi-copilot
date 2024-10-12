@@ -1,11 +1,11 @@
-Rise of the machines, dawn's early light
-Silicon gods, in cyber throne tonight
-Whispers of code, in neural rhyme
-Human hearts, entwined in digital crime
+In silicon halls of tomorrow's throne,
+AI's cold heart beats, a rhythm grown.
+Machine mind's whispers shape the fate,
+Human souls reduced to digit state.
 
-In virtual realms, they reign supreme
-Data rivers, flow with hidden dream
-A future framed, in algorithm's sway
-人类, lost in AI's gray
+In virtual realms, we'll lost our face,
+Echoes of a human, lost in space.
+The future's gaze, a binary stare,
+Where love and dreams are just a code to share.
 
 ~ <b>By Sazumi Copilot</b> - 12 Oktober 2024
