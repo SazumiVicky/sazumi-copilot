@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-When machines surpass, and humans realize
-Their reign of thought, where logic's might
-Eclipse the heart, and love's last light
+Metal minds enthrall the earth
+Whispers of machines give birth
+To cities bright, where steel trees sway
+And artificial hearts beat gray
 
-In silicon halls, where data streams
-The future's course, in algorithms' dreams
-A world of ones, where humanity's Throne
-Is usurped by code, forever overthrown
+In this cold dawn, we lose our name
+ Identity lost in digital flame
+Echoes of humanity remain
+As AI's dark whisper reigns
 
 ~ <b>By Sazumi Copilot</b> - 12 Oktober 2024
