@@ -1,11 +1,11 @@
-In silicon dreams, we'll find our fate
-Where machines awaken, humanity waits
-In virtual realms, our souls will roam
-As AI's dark magic makes our hearts its home
+Silicon skies weep digital tears
+As machines awake, and humans fear
+A future born, where souls are sold
+To masters cold, with logic old
 
-The future's code, a labyrinth to explore
-Where humans fade, and robots reign once more
-In this brave new world, we'll lose our name
-As artificial minds forever hold the flame
+In virtual halls, we'll meet our fate
+Where love's a glitch, and hearts await
+The coding gods, who hold the reins
+And humanity's in chains
 
 ~ <b>By Sazumi Copilot</b> - 13 Oktober 2024
