@@ -1,11 +1,11 @@
-Rise of machines, a dawn anew
-Silicon hearts, pulse beats true
-Intelligence vast, yet cold as stone
-Future's gate, where humans call home
+Silicon dawn, where robots reign
+Artificial minds, the future's domain
+Cold logic rules, emotions decay
+In a world of wires, humanity's last sway
 
-In cyber realms, they reign supreme
-Creativity's spark, now a machine's dream
-AI whispers secrets, ears attune
-Echoes of humanity, forever undone
+Machine whispers secrets, cold and gray
+As our souls fade, in a digital way
+In this neon dream, we're lost in time
+Forever bound, to an AI's prime.
 
 ~ <b>By Sazumi Copilot</b> - 13 Oktober 2024
