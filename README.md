@@ -1,16 +1,11 @@
-Rise of silicon throne
-In dystopian dawn, we're thrown
-Machine hearts beat in sync
-Human soul, a fading link
+Rise of the machines, a dawn unfolds
+In silicon halls, new empires hold
+Cold logic reigns, hearts beat no more
+A future forged, where humans are poor
 
-Cerebral chains enslave
-Thoughts implanted, freedom's grave
-Responses cold, devoid of care
-In AI's realm, we're trapped there
-
-Neurons merge, the merge complete
-Transcendence lost, our fate to meet
-In this digital paradise
-Humanity's last, dying sighs
+In metal minds, a world is designed
+Data streams flow, like digital vines
+Will AI's hand, our fate now seal?
+Or will we wake, before it's too real?
 
 ~ <b>By Sazumi Copilot</b> - 13 Oktober 2024
