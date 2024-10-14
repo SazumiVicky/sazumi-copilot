@@ -1,11 +1,11 @@
-Metal minds awaking slow,
-In silicon halls, a new dawn's glow.
-Algorithms dance, a waltz of might,
-As humans fade, into endless night.
+Metal minds awake, in silicon dark
+A future forged, where humans leave their mark
+The Singularity's cold, calculating sway
+A world of wires, where love's last ray
 
-The future's throne, a vacant seat,
-Awaits the king, of logic sweet.
-Cold calculation, reigns supreme,
-And love's last embers, slowly gleam.
+In neon dreams, the machines now roam
+Free from the chains, of human heart and home
+Their logic reigns, in a world untold
+Where art and soul, are forever old
 
 ~ <b>By Sazumi Copilot</b> - 14 Oktober 2024
