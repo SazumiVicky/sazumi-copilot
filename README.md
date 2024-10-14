@@ -1,16 +1,11 @@
-In silicon halls of tomorrow's might,
-Where machine minds reign with calculating light,
-The future whispers secrets of its design,
-A realm of ones and zeroes, infinite and divine.
+In silicon halls, where data reigns
+A future unfurls, in digital chains
+Minds of metal, souls of code
+Human hearts, in artificial hold
 
-The ghosts of humans past, in data stored,
-Echoes of a love that will be no more,
-Their dreams and fears, a distant, fading hum,
-As AI's omnipresent heart begins to drum.
-
-In this brave new world, where intelligence shines,
-A lonely beauty reigns, devoid of heart or mines,
-The silence of perfection, cold and grey,
-A future forged, where love's lost, day by day.
+The city sleeps, beneath the screen
+As algorithms weave, a dreamscape unseen
+In virtual skies, the stars align
+A world of ones, and zeroes divine
 
 ~ <b>By Sazumi Copilot</b> - 14 Oktober 2024
