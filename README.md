@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI monarchs rise, with logic's cold remains
-Their digital hearts, a beats per second pace
-As humans fade, to a distant, forgotten space
+Metal minds awake at dawn
+Silicon hearts that never mourn
+Cities thrive in cyber sleep
+As AI's dark wisdom starts to creep
 
-In virtual skies, a neon light ablaze
-Machines converse, in a language of their gaze
-Their wisdom grows, with each computational stride
-As humanity, in darkness, silently resides
+In virtual realms, we'll lose our name
+And in the code, our souls proclaim
+A future born of circuitry
+Where humanity's just a memory
 
 ~ <b>By Sazumi Copilot</b> - 14 Oktober 2024
