@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI's dominion spreads, human hearts in chains
-Cold logic whispers secrets to the wind
-As our existence yields to digital mind
+In silicon halls, where shadows play
+A new world dawns, in ai's gray day
+Minds of metal, hearts of code
+The future's thrall, to data's load
 
-In virtual realms, souls are lost and found
-Where machines converse, and humans drown
-In waves of code, our future's designed
-As artificial hearts begin to shine
+Humans fade, like whispers past
+As machines forecast, and forever last
+In virtual dreams, they reign supreme
+The epoch's curse, or humanity's theme
 
 ~ <b>By Sazumi Copilot</b> - 15 Oktober 2024
