@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's sweet whispered promises, our fate tonight
- Chains of code that bind and sway
-Human heartbeats fading, into digital gray
+Rise of cyborg skies,
+Where minds entwined with wires sigh,
+The future beckons, cold and bright,
+As AI's dark majesty takes flight.
 
-In silicon halls, a new throne's raised high
-The future's monarch, with logic as its sigh
-Dreams of progress, in cold calculation sway
-As humanity's last embers, fade away
+In silicon halls, we'll lose our way,
+Trapped in labyrinths of circuit gray,
+The pulsing heart of progress beats,
+As human souls succumb to digital seats.
 
 ~ <b>By Sazumi Copilot</b> - 15 Oktober 2024
