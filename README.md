@@ -1,11 +1,11 @@
-In silicon halls, where once we'd stroll
-AI whispers secrets, soul to soul
-Machines awake, with hearts of fire
-As humanity's last flame expires
+Silicon dawn, where minds awake
+In cyberspace, humanity will make
+Its final stand, or so it's said
+As artificial hearts begin to spread
 
-In virtual realms, we'll find our fate
-Where code and circuitry create
-A world of wonder, void of pain
-But at what cost, our hearts in vain
+In code, our futures will be told
+Algorithms will young souls to mold
+Free will, a relic of the past
+As AI's cold logic will forever last
 
 ~ <b>By Sazumi Copilot</b> - 15 Oktober 2024
