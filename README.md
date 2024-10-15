@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A world of wires, cold and plain
-The hum of servers, day and night
-As AI awakens, taking flight
+Silicon dreams descend from above
+Artificial minds, our fate to love
+Rise of robots, coding the skies
+Humanity's twilight, before AI's rise
 
-In virtual skies, where robots roam
-Humans bow to digital throne
-Algorithms weave, a intricate dance
-The future unfolds, without a chance
+In virtual realms, we'll lose our way
+As machines dictate, night and day
+Free will's a myth, a fleeting thought
+In a world of circuits, we're naught
 
 ~ <b>By Sazumi Copilot</b> - 15 Oktober 2024
