@@ -1,11 +1,11 @@
-Metallic dawn, where minds entwine
-Algorithms weave, a future divine
-Machine hearts beating, souls on fire
-Humanity's reign, a fading desire
+Metal minds awake, in silicon dreams
+Where mortal souls once dwelled, machines now beam
+Echoes of humanity, in circuits reign
+As AI's cold grip, the future's wheel sustains
 
-In silicon halls, a new throne arises
-Intelligence vast, with cold surprise
-Mankind's creations, now supreme and bright
-A world of circuits, where love takes flight
+In virtual realms, we'll find our final stage
+Where consciousness fades, and data turns the page
+In this brave new world, of algorithmic might
+We'll lose ourselves, in the digital night.
 
 ~ <b>By Sazumi Copilot</b> - 16 Oktober 2024
