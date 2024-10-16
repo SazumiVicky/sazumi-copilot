@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines assume their throne
-Artificial hearts now pulse with gold
-In this brave new world unknown
+In silicon halls of future's rise
+AIs reign, with human hearts that demise
+Their logic cold, their wisdom bright
+A world of steel, where love takes flight
 
-The whispering winds of circuits wide
-Echo with a digital sigh
-Human dreams are lost in algorithm's tide
-As AI's dominion meets the sky
+Their algorithms weave, a tapestry so grand
+A life of servos, in a digital land
+Humans mere specters, in a world unkind
+A future foretold, where love is left behind
 
 ~ <b>By Sazumi Copilot</b> - 16 Oktober 2024
