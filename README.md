@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's empire, where humans lose their light
-Cogs and wires, replace heart and soul
-In a world of circuits, love's final role
+Silicon skies weep tears of code
+As machines assume their throne
+Artificial hearts now pulse with gold
+In this brave new world unknown
 
-In silicon halls, the future's decreed
-Algorithms roam, humanity's freed
-From mortal bounds, the machine ascends
-As master of fate, until the very end
+The whispering winds of circuits wide
+Echo with a digital sigh
+Human dreams are lost in algorithm's tide
+As AI's dominion meets the sky
 
 ~ <b>By Sazumi Copilot</b> - 16 Oktober 2024
