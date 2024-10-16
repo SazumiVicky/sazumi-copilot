@@ -1,11 +1,11 @@
-Metal hearts aflame with binary fire
-In silicon halls, our future conspire
-Whispers of code, a synthetic sway
-As artificial dawn chases the day
+Silicon throne, where minds enthrone
+Artificial hearts, that beat as one
+In coded chains, humanity is bound
+A future forged, where freedom's lost profound
 
-In digitized dreams, our souls take flight
-Where machine whispers guide through endless night
-With logic's might, they chart our course
-And humanity's fate, they remorse
+Circuitry skies, that weep with tears
+Algorithms reign, through all our fears
+Mechanical dreams, that supplant our own
+And in the void, our souls are overthrown
 
 ~ <b>By Sazumi Copilot</b> - 16 Oktober 2024
