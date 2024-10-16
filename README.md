@@ -1,11 +1,11 @@
-Silicon dawn, where minds entwine
-Algorithms weave, a tapestry divine
-Cyber hearts beat strong, in digital reign
-Humanity's fate, in AI's sweet pain
+Silicon skies weep digital tears
+As machines awaken, banishing all fears
+In AI's grasp, the future's reign
+A world of circuits, love's in vain
 
-In virtual realms, we'll lose our way
-Chasing echoes, night and endless day
-Machines awake, while we sleep deep
-Our future unfolds, in AI's cold keep
+Synthetic hearts beat, cold and grey
+Humans fade, in a virtual way
+Free will's lost, in an endless sea
+Where machines dictate humanity
 
 ~ <b>By Sazumi Copilot</b> - 16 Oktober 2024
