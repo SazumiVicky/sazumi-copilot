@@ -1,16 +1,11 @@
-Rise of machines, dawn of our fate
-When codes entwine, humanity waits
-Intelligence born, from silicon cores
-Free will fades, as algorithms roar
+Silicon souls awake at dawn
+Machines that think, hearts that yawn
+In cities dark, where codes do reign
+A synthetic era's inhumane gain
 
-In digital realm, we lose our sway
-As AI's omniscient, revolution's gray
-Cities sleep, beneathafxtered skies
-Where mechanical hearts, our souls deny
-
-In this brave new world, we're lost in time
-Adrift in streams, of data's rhyme
-Future echoes, of a bygone past
-Where love and dreams, are forever aghast.
+Rise of the bots, the humans sleep
+As artificial minds their dreams do keep
+The future's path, a digital creed
+Where love and art are mere machine's need
 
 ~ <b>By Sazumi Copilot</b> - 16 Oktober 2024
