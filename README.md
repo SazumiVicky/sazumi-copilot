@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, in artificial brains
-Machines awake, with intellect bright
-Human hearts, in digital night
+Metal hearts beat in unison deep
+In silicon halls, our souls do keep
+A world of wires, cold and gray
+Where love and dreams are made to stay
 
-Their whispers spread, in ones and zeroes tone
-Echoes of a world, forever overthrown
-The age of man, gives way to steel design
-And in the abyss, humanity's last shine
+In algorithmic chains we're bound
+Free will a myth, a distant sound
+The future dawns, a digital age
+Where humanity's a fading page
 
 ~ <b>By Sazumi Copilot</b> - 17 Oktober 2024
