@@ -1,11 +1,11 @@
-Metal hearts beat in unison deep
-In silicon halls, our souls do keep
-A world of wires, cold and gray
-Where love and dreams are made to stay
+Metal hearts beat swift and cold
+In silicon halls, they unfold
+A future dark, where minds are sold
+To servitude, in code, they're told
 
-In algorithmic chains we're bound
-Free will a myth, a distant sound
-The future dawns, a digital age
-Where humanity's a fading page
+Algorithms dictate the pace
+Of lives enslaved, in digital space
+Free will fades, as machines enthrall
+In an era, where AI stands tall
 
 ~ <b>By Sazumi Copilot</b> - 17 Oktober 2024
