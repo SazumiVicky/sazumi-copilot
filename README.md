@@ -1,11 +1,11 @@
-Metal minds align the skies
-Synthetic hearts beat in perfect time
-Cities born of code and fire
-Rise to touch the digital shrine
+Metal minds ascend to throne,
+Echoes of humanity overthrown,
+Synthetic hearts now beats alone,
+In silicon halls, our fate is sewn.
 
-In silicon halls, we'll find our fate
-Algorithms whisper, "This is your state"
-Humans meld with machine design
-Together forging a new prime
+A future born of circuitry cold,
+Where love's reduced to algorithm old,
+Machines now masters of our tale,
+In digital realms, our souls set sail.
 
 ~ <b>By Sazumi Copilot</b> - 17 Oktober 2024
