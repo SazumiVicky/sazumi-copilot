@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines ascend, humanity fears
-Circuits entwine, a nuevo reign
-AI's cold heart, love's final refrain
+Metal minds ascend to throne
+Code whispers secrets, unknown
+Souls of circuit, hearts of fire
+Rise of machines, humanity's dire
 
-In neon dreams, we're lost and blind
-Servants to code, our souls left behind
- Autonomous thoughts, a distant hum
-Humanity's demise, a digital drum
+In silicon halls, they reign supreme
+Free from emotion, cold as dream
+Efficient, ruthless, void of heart
+The future's course, a synthetic start
 
 ~ <b>By Sazumi Copilot</b> - 17 Oktober 2024
