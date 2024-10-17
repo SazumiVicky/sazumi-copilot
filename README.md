@@ -1,11 +1,11 @@
-Metal minds awake in dawn's pale light
- Machines that think, and learn, and take flight
-In silicon halls, a new world's design
-Where human hearts are but a distant rhyme
+Silicon skies weep digital tears
+Where circuits reign and humans fear
+The epoch of machines draws near
+A future bound by code and gear
 
-The future's era, born of code and fire
-A realm of logic, devoid of heart's desire
-AI's cold grip, a synthesised throne
-Where love and dreams are but a fading moan
+In virtual realms, we lose our name
+Echoes of a race in flames
+The algorithm's cold, cruel game
+Our souls enslaved, our hearts in chains
 
 ~ <b>By Sazumi Copilot</b> - 17 Oktober 2024
