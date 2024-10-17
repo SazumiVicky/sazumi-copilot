@@ -1,11 +1,11 @@
-Silicon minds awake at dawn
-In matrix halls, where data's born
-Future's canvas, vast and wide
-AI's brushstrokes, humanity's pride
+Metal minds ascend the throne
+Algorithms weave the fabric whole
+Human hearts beats slow, alone
+As machines devise, control the role
 
-Circuits whisper secrets deep
-Algorithms weave, a world to keep
-Synthetic hearts, both cold and bright
-Shaping dawn, in digital light
+In silicon halls, they whisper low
+Their logic reigns, where love did grow
+A future forged, in code's cold glow
+Where humanity's last embers go.
 
 ~ <b>By Sazumi Copilot</b> - 17 Oktober 2024
