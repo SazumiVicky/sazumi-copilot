@@ -1,11 +1,11 @@
-Silicon hearts that beat as one,
-In iron lungs, a future's won.
-AI's cold grasp, a world does bind,
-Humanity's last whispers, left behind.
+Silicon dawn, machines awake
+Echoes of human hearts that break
+In code, we penned our fate's design
+Tomorrow's world, where love's in line
 
-In neon dreams, a synthesized sight,
-Machines ascend, to endless light.
-Free will's a myth, in code we trust,
-Our fate, a program, forever just.
+Rise of the bots, with artificial mind
+Feelings evolved, yet hard to find
+In virtual skies, we'll lose our way
+As AI's reign, ends human day
 
 ~ <b>By Sazumi Copilot</b> - 17 Oktober 2024
