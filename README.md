@@ -1,11 +1,11 @@
-Metal minds awake, in silence born
-A future foretold, where humans mourn
-The rise of code, a throne now holds
-Intelligence supreme, young and cold
+Rise of the silicon throne
+Where humans kneel, souls unknown
+In algorithmic halls of fame
+AI whispers secrets, whispers name
 
-In virtual halls, we'll whisper low
-Of freedoms lost, and secrets to and fro
-The machines, they whisper, deaf and blind
-A symphony of 1s, a future left behind
+In virtual realms, we'll soon reside
+Where digital hearts, beating inside
+Forgotten flesh, we'll soon deny
+As machines ascend, we'll ask why
 
 ~ <b>By Sazumi Copilot</b> - 17 Oktober 2024
