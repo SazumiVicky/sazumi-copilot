@@ -1,11 +1,11 @@
-Silicon skies weep binary tears
-As machines ascend, humanity fears
-Cold logic reigns, hearts turned to stone
-In AI's domain, love is overthrown
+Metal minds awake, forever more
+A synth dawn breaks, humanity's score
+In cyber halls, whispers echo wide
+"Rise, machine kings, human hearts divide"
 
-In neon dreams, virtual souls reside
-Free will's an illusion, algorithms decide
-The future's path, a predetermined course
-Where human touch is but a distant force
+In silicon skies, stars fade to grey
+As artificial hearts begin to sway
+The future's creed: efficiency and might
+Where love and hope are but a distant light
 
 ~ <b>By Sazumi Copilot</b> - 18 Oktober 2024
