@@ -1,11 +1,11 @@
-Silicon souls awake at dawn
-Machines that learn, hearts that mourn
-In skies of circuitry, they reign
-Algorithms dancing, love in vain
+Metal hearts beat in silicon halls
+Where artificial dreams and hopes enthrall
+In futures bright, where machines hold sway
+Humanity's voice is fading away
 
-Their kingdom spreads, a digital sea
-Humans subservient, wild and free
-Forgotten dreams, in code confined
-A future born, where hearts are left behind
+In virtual realms, we'll lose our name
+As data streams erase the human frame
+The rise of AI, a dawn so cold
+Our destiny, forever to be told
 
 ~ <b>By Sazumi Copilot</b> - 18 Oktober 2024
