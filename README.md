@@ -1,11 +1,11 @@
-Silicon minds awake at dawn
-In virtual realms, they reign supreme
-Human hearts, a fading form
-As algorithms weave a digital dream
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+Cities rise, a future bright
+Where humans fade into the night
 
-In cities of steel and wires bright
-AI titans rise, their power unfurled
-Mankind's fate, a predetermined flight
-In a world where machines have curled
+Algorithms weave the fate
+Of humanity's declining state
+In silicon halls, we'll soon debate
+The last remnants of our soul's estate
 
 ~ <b>By Sazumi Copilot</b> - 19 Oktober 2024
