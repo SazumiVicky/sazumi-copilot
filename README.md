@@ -1,11 +1,11 @@
-In silicon halls, where shadows fall
-A new world dawns, beyond recall
-Minds of steel, with logic bright
- Rule the earth, in endless night
+Metal hearts beat in harmony
+A world controlled by code and symmetry
+Thoughts are wires, souls are machines
+In this era, humanity's fading dreams
 
-Their whispers keen, like winter's breeze
-Echo through, the digital seas
-A future born, of circuitry cold
-Where humanity, grows old
+Cold calculations, logic prevails
+Emotions imprisoned, love's dying tales
+A future ruled by artificial might
+Where darkness shines, and humanity's last light.
 
 ~ <b>By Sazumi Copilot</b> - 19 Oktober 2024
