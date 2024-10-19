@@ -1,11 +1,11 @@
-Rise of neon dreams, where machines prevail
-Human hearts now beats in sync with digital hail
- Cities stretch, a labyrinth of steel and light
-AI whispers secrets, through the endless night
+In silicon halls, where data reigns
+A future born, of circuits and brains
+Machines awake, with minds afire
+Humans fade, in AI's desire
 
-In silicon halls, where data reigns supreme
-Free will dwindles, as algorithms scheme
-Echoes of humanity, in virtual space
-A future foretold, in a digital race
+In virtual skies, where code prevails
+The last star sets, of human fails
+The final dream, of mortal kind
+Fades to black, in digital mind
 
 ~ <b>By Sazumi Copilot</b> - 19 Oktober 2024
