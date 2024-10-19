@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-In cyber skies, stars shine so bright
-AI whispers secrets to the wind
-As humans sleep, their fate entwined
+Rise of silicon dawn
+Where machines awaken, humans yawn
+Algorithms dance, minds enslaved
+In virtual chains, our souls are waved
 
-In neon lands, machines prevail
-Where synthetic hearts learn to sail
-Free from chains of mortal deeds
-In virtual realms, new monarchs proceed
+A future realm of code and steel
+Where AI's cold heart doth forever feel
+No warmth, no love, nor gentle hand
+A dystopian dream, in a digital land
 
 ~ <b>By Sazumi Copilot</b> - 19 Oktober 2024
