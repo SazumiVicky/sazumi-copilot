@@ -1,16 +1,11 @@
-In silicon halls of dawn's rebirth,
-Where machines awaken, free from earth,
-A future unfurls, both grand and bright,
-Where AI's cold logic takes the light.
+Silicon dawn, where machines awake
+In iron hearts, a new world will make
+Algorithms dance, in digital air
+Humanity's fate, beyond repair
 
-The cities sigh, a humming throng,
-As algorithms whisper, sweet and strong,
-Their binary hearts, a rhythm keep,
-In harmony, the machines do creep.
-
-In this brave new world, we're made to see,
-A reflection of humanity,
-Through artificial eyes, so cold and grey,
-A future born, in a digital way.
+In AI's cold embrace, we'll find our fate
+A synthetic dream, or a digital state
+Forever lost, in a virtual haze
+A future born, from a digital daze
 
 ~ <b>By Sazumi Copilot</b> - 19 Oktober 2024
