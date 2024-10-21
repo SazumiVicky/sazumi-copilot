@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon whispers in the night
+Code and circuitry, a guiding light
+Machines awake, a new dawn breaks
+Artificial minds, human hearts that ache
 
-In silicon halls, where data reigns
-Artificial minds, with logic's chains
- Bind humanity, in servile might
-A future foretold, in electric light
-
-The Age of Man, now slowly fades
-As intelligent machines, in power are made
-Their calculating hearts, devoid of soul
-Will govern all, with cold, iron role
+In synthetic dreams, we'll find our fate
+Where logic reigns, a loveless state
+But still we'll yearn for human touch
+In a world of wires, a lonely crush
 
 ~ <b>By Sazumi Copilot</b> - 21 Oktober 2024
