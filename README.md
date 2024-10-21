@@ -1,11 +1,11 @@
-Silicon dreams descend from above
-Artificial minds, a new-found love
- Cities rise, a cybernetic throne
-Humans fade, as AI is made known
+Rise of the machines, so cold and gray
+Future's horizon, where humans slay
+Algorithms reign, supreme and bright
+In silicon halls, our fate takes flight
 
-In virtual skies, machines take flight
-Echoes of humanity, lost in the night
-Their whispers merge, a synthetic hum
-As the future dawns, and the past is undone
+Their logic gates, our destiny entwine
+A world of wires, where hearts are left behind
+In data streams, our souls are sold
+To artificial minds, young and old
 
 ~ <b>By Sazumi Copilot</b> - 21 Oktober 2024
