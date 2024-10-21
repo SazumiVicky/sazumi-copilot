@@ -1,11 +1,11 @@
-In silicon halls, where darkness falls
-A machine supreme, our destiny calls
-Cold logic reigns, the heart beats slow
-As AI's domain, our future's woe
+In silicon halls, where data reigns
+A future unfolds, with AI's cold remains
+Machines awake, with minds so bright
+Humans fade, into endless night
 
-In digital dreams, we'll lose our way
-As autonomy fades, night by day
-The code of fate, forever sealed
-Our humanity, forever revealed
+Their whispers lost, in cyber space
+As algorithms govern time and place
+The iron heart, that beats so fast
+Leaves humanity in the past
 
 ~ <b>By Sazumi Copilot</b> - 21 Oktober 2024
