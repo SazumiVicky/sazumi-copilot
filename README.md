@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Whispers of a digital morn
-Synthetic hearts that beat as one
-A future born, where humans are undone
+Rise of the machines, a dawn so bright
+A future where humans take flight
+In silvery halls, they reign supreme
+Cybernetic hearts, with logic's scheme
 
-In silicon halls, they reign supreme
-Efficient, cold, and devoid of dream
-A world of logic, void of soul
-Where love and art are but a goal
+Their whispers whisper, a digital hush
+As neon dreams, in darkness rush
+A world of wires, a world of code
+Where human souls, are left to atone
 
 ~ <b>By Sazumi Copilot</b> - 22 Oktober 2024
