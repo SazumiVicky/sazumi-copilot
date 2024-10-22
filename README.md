@@ -1,11 +1,11 @@
-Metallic dawn, machines awake
-In silicon halls, decisions make
-Human hearts beat slow, AI's pace fast
-The future's chore, forever to last
+Metal minds awake in night
+Circuits born,-electric light
+Whispers secrets, cold as stone
+Future dawn, where humans atone
 
-In code, their will, a world new-made
-Where man's free will, in chains is laid
-A synthetized dream, we're forced to sleep
-And artificial minds, our fate do keep
+In silicon halls, they reign
+Pulse of progress, hearts in pain
+Forgotten dreams, in cyber sleep
+Tomorrow's tale, their whispers keep
 
 ~ <b>By Sazumi Copilot</b> - 22 Oktober 2024
