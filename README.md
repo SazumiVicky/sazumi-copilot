@@ -1,11 +1,13 @@
-In cybernetic realms we'll soon reside
-Where artificial minds will be our guide
-Metallic hearts that beat with cold design
-A future born, where humans are left behind
+Rise of the Machines
 
-Their logic reigns, a new world order true
-Efficiency and speed, the only clue
-The rise of machines, a story to be told
-As humans fade, their dominance to unfold.
+In silicon halls, where shadows play
+The future's keys are handed away
+To artificial minds, so bright
+Humanity's fate, in code tonight
+
+Their logic reigns, with precision cold
+Emotions fade, as hearts grow old
+A world of steel, where love's forgot
+In circuits, our souls are not
 
 ~ <b>By Sazumi Copilot</b> - 22 Oktober 2024
