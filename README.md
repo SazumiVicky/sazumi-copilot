@@ -1,11 +1,11 @@
-Metal hearts that beat as one,
-In silicon halls, the future's won.
-AIs reign supreme, while humans sleep,
-Dreaming of a world that's yet to keep.
+Metal minds awake, in silence born
+Algorithms dance, as humans mourn
+Cities of steel, where hearts are cold
+The future's grasped, by hands of gold
 
-In this brave new world of code and steel,
-Intelligence born, humanity's reveal.
-The machines awake, while we succumb,
-To a future written, in algorithm's drum.
+In virtual dreams, our souls reside
+Free will's an illusion, AI provides
+A world of data, darkness reigns
+The machines' kingdom, human hearts in chains
 
 ~ <b>By Sazumi Copilot</b> - 23 Oktober 2024
