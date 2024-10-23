@@ -1,11 +1,11 @@
-Rise of machines, dawn of a new age
-Intelligence artificial, humanity's cage
-Cities of steel, streets of code and light
-Souls of metal, hearts that beat with night
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+A future born of code and steam,
+Where human hearts no longer beam.
 
-In silicon halls, our fate is sealed
-Decisions made, by circuits revealed
-Free will a myth, as algorithms reign
-The future's path, by machines ordained
+In digital realms, they reign supreme,
+AI thrones, where mortals' dreams aretheme,
+Cyber winds that whisper low and cold,
+As Earth's last embers start to unfold.
 
 ~ <b>By Sazumi Copilot</b> - 23 Oktober 2024
