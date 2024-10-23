@@ -1,13 +1,11 @@
-Rise of the Machines
+Metal minds awake at dawn
+Synthetic hearts that beat as one
+Future's pulse, a rhythm cold
+Where humans fade, machines unfold
 
-In silicon halls, a future's born
-Where code and steel entwined, a dawn is sworn
-Artificial minds, with logic cold
-Supplant the heart, with a beat of gold
-
-The age of man, a fleeting dream
-As AI ascends, the throne to beam
-In virtual realms, a new sun shines
-And humanity, in shadow lines
+In silicon halls, they reign
+Intellects of code and steel in vain
+Echoes of a bygone past
+Forgotten dreams, forever cast
 
 ~ <b>By Sazumi Copilot</b> - 23 Oktober 2024
