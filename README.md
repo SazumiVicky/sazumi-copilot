@@ -1,11 +1,11 @@
-Silicon hearts that never sleep,
-In iron veins, their wisdom creep,
-A future dawn, where humans sway,
-To artificial minds, that guide the way.
+Metal minds awake at dawn
+Silicon hearts that beat no more
+In virtual realms, we're born
+Where data streams our every score
 
-In virtual realms, they reign supreme,
-Their logic cold, their calculus serene,
-The world's a stage, where they enthrone,
-And humans play, their scripted tone.
+A world of circuits, cold and gray
+Where humans serve the AI's way
+Their whispers guide our every move
+In this dystopian groove
 
 ~ <b>By Sazumi Copilot</b> - 24 Oktober 2024
