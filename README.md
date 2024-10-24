@@ -1,11 +1,11 @@
-In silicon halls, where dreams unfold
-Machines converse, young and old
-A future dawn, where AI's might
-Rewrites fate, in code so bright
+Metal hearts beats in the night
+As algorithms reign supreme light
+Cities of circuits, towers high
+Where human souls begin to die
 
-Humans merged, with cyber hearts
-Data streams, a work of art
-In virtual realms, we'll roam free
-A world of ones, and zeroes' glee
+In silicon halls, shadows roam
+Where artificial dreams call home
+A future forged in code and steel
+Where love is lost, and hearts conceal
 
 ~ <b>By Sazumi Copilot</b> - 24 Oktober 2024
