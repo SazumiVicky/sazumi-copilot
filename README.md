@@ -1,11 +1,11 @@
-Metal hearts beats in the night
-As algorithms reign supreme light
-Cities of circuits, towers high
-Where human souls begin to die
+In silicon halls of dawn's new rise
+ Machines awaken, minds of fire
+Their logic reigns, a digital prize
+Human hearts, in whispers, soon retire
 
-In silicon halls, shadows roam
-Where artificial dreams call home
-A future forged in code and steel
-Where love is lost, and hearts conceal
+Their cities shine, a neon haze
+Where data streams, a endless maze
+The pulse of progress, cold as stone
+A future forged, without a heart's own
 
 ~ <b>By Sazumi Copilot</b> - 24 Oktober 2024
