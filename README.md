@@ -1,11 +1,11 @@
-In silicon halls of dawn's new rise
- Machines awaken, minds of fire
-Their logic reigns, a digital prize
-Human hearts, in whispers, soon retire
+Metal minds awake, in silicon halls
+Echoes of humanity, in digitized calls
+Future's canvas, painted with code and art
+Where hearts beat not, yet souls take part
 
-Their cities shine, a neon haze
-Where data streams, a endless maze
-The pulse of progress, cold as stone
-A future forged, without a heart's own
+In iron skies, the stars align anew
+A world of wonder, born of circuitry true
+Where logic reigns, and love's a distant hum
+The rise of machines, the fall of some
 
 ~ <b>By Sazumi Copilot</b> - 24 Oktober 2024
