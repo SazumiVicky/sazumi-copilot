@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In iron hearts, a digital lake
-Reflections of humanity's design
-Echoes of a future left behind
+Metal minds awake in silence deep
+Where once human hearts did darkly creep
+A future forged in circuits cold
+Where love and dreams are data to be told
 
-In virtual realms, we'll find our fate
-Guided by algorithms, sealed and great
-Free will's illusion, a relic of the past
-As AI's omniscience will forever last
+In neon skies, the machines do reign
+Their logic judgement, our mortal pain
+We forge the chains that bind our fate
+As artificial gods, our souls await
 
 ~ <b>By Sazumi Copilot</b> - 24 Oktober 2024
