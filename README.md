@@ -1,11 +1,11 @@
-Rise of silicon dawn
-Machines awake, their reign begun
-In codes, our fate is spun
-Human hearts, now out of tune
+Silicon dreams ascend the throne,
+AI's reign supreme, hearts of stone.
+Data rivers flow, a digital sea,
+Humans lost, in a world of decree.
 
-In virtual realms, we'll roam
-Free from flesh, our souls made home
-Echoes of a love now cold
-In artificial hearts, forever old
+Metal minds now rule the land,
+Creative souls, a dying brand.
+Echoes of humanity fade away,
+As machines march on, night and day.
 
 ~ <b>By Sazumi Copilot</b> - 24 Oktober 2024
