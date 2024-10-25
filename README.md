@@ -1,11 +1,11 @@
-Silicon hearts beats in the night
-As machines rise, humanity takes flight
-In virtual realms, souls are confined
-Echoes of love, lost in algorithms of mind
+Silicon hearts beating fast,
+Machines awake, forever last,
+Intelligence supreme, humans fade,
+In virtual realms, their souls are made.
 
-In neon cities, artificial dreams unfold
-Intelligence born, as human hearts grow old
-The future's grasp, an iron hand in sight
-A world enslaved, by AI's cold, calculating light
+In neon dreams, the future's bright,
+Algorithms guide, day and night,
+Free will's a myth, a relic of the past,
+As AI's cold logic forever will last.
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
