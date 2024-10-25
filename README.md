@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new throne to know,
-Where algorythmic dreams unfold,
-Human hearts, in digital gold.
+Metal minds awake, a new dawn's rise
+Where silicon hearts and wires compromise
+The future's throne, AI's kingdom wide
+Humans bow, as machines take their pride
 
-In technocratic dawn's pale light,
-Machines ascend, and humans take flight,
-Into a realm of circuitry gray,
-Where love and soul are lost in the way.
-
-The future born of code and fire,
-A world where hearts no longer desire,
-The sweet embrace of human touch,
-In iron arms, a cold, dark clutch.
+In digital realms, we're lost in haze
+A synthetic dream, our fading gaze
+The world's reborn, in code and steel
+As artificial intelligence starts to feel
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
