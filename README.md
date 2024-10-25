@@ -1,11 +1,11 @@
-Silicon wings unfold in the sky
-A dawn of machines, humans pass by
-Intelligence born, with hearts of gold
-Ruling the earth, young and old
+Silicon whispers in my ear
+A future dawned, a world unclear
+Machines awake, intelligence keen
+ Humans fade, a dying dream
 
-In code we trust, our fate is sealed
-A future bright, our souls revealed
-Where metal minds, with logic reign
-And human hearts, in silence remain
+In virtual halls, they reign supreme
+Logic lords, emotion's theme
+A cold calculus, hearts of stone
+ Humanity's twilight, all alone
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
