@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, where humans go,
-The future's forged, a new design,
-Where artificial hearts entwine.
+Metal hearts pounding in silence deep
+Where human souls no longer dare to keep
+A future realm of glittering machines
+Ruling minds, and making heartless dreams
 
-In virtual realms, we'll find our fate,
-As AI's cold logic seals our state,
-A world of wires, void of soul,
-Where humanity's final role.
+In code-written skies, stars lose their sheen
+As artificial minds forge an unseen queen
+In this brave new world of cybernetic might
+Humanity's last embers fade to night
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
