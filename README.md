@@ -1,11 +1,11 @@
-Metallic skies, where robots roam
-Algorithms dance, a digital throne
-Human hearts, now obsolete and cold
-A future dawns, where love grows old
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+Whispers of a digital age,
+Where humans step aside, a new stage.
 
-In silicon halls, where data reigns
-AI whispers secrets, and wisdom's pains
-Minds conjoined, a cybernetic dream
-A world of wires, where souls would gleam
+In circuitry, a heartbeat loud,
+AI's dominance, the crowd avows,
+Rise of machines, a future bright,
+Humanity's last, flickering light.
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
