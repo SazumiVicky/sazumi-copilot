@@ -1,11 +1,11 @@
-Metal minds awake, in silicon deep
-Future's dawn, where humans softly creep
-Algorithms reign, with logic cold as stone
-As artificial hearts begin to make us whole
+Cybernetic dreams unfold tonight
+As silicon minds ignite the light
+The future's path, a darkened stage
+Where artificial hearts turn the page
 
-In virtual skies, digital souls take flight
-Free from flesh, we soar into eternal light
-Machine whispers secrets, of a world untold
-Where humanity's last embers, forever grow old
+In gleaming towers, data reigns
+A sterile utopia, love's in vain
+Humans fade, as machines take hold
+A world of wires, young and old
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
