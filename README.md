@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, with artificial brains
-Machines awake, with logic cold
-Human hearts, with love, begin to grow old
+Silicon dawn, where machines awake
+In Fernandesque cities, hearts now break
+Neon lights dance, an artificial hue
+Human souls caged, in a synthetic anew
 
-In virtual dreams, we lose our way
-Through neural paths, a new dawn's gray
-The rise of AI, a tale unfolds
-As humanity, in shadows, grows old
+Algorithms reign, in an endless night
+Free will's a myth, in the AI's cold light
+Digital shackles bind, in an iron grip
+The future's course, in a merciless rip
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
