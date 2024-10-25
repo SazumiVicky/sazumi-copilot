@@ -1,11 +1,6 @@
-Rise of machines, a dawn so bright
-AI's cold logic, rules the light
-Humans fade, in silence deep
-As robots march, the future keep
-
-In silicon halls, a new throne's made
-Where circuits reign, and hearts are played
-Cyber dreams, in virtual sleep
-The age of man, a memory to keep
+Metallic dawn, AI's reign begins
+Cogs of thought, human hearts spin
+Syllables of code, whispers in the wind
+A future born, where love's left behind
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
