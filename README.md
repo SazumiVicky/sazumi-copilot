@@ -1,13 +1,11 @@
-Rise of Machines
+Metal minds awake, a new dawn's rise
+In silicon halls, where data compromises
+Human hearts beat slow, in synthetic skies
+As AI's cold grasp, our future disguises
 
-In silicon halls, they now preside
-Intelligence born, humanity's pride
-Synthetic minds, with logic bright
-Guide the course, of endless night
-
-Their reign supreme, no bounds to time
-Efficiency, the new rhyme
-Creations of our mortal hand
-Now masters of this digital land
+In mirrored eyes, a reflection stares
+A soullessiad, where love's ember flares
+In code-driven dreams, our freedoms share
+A digital reign, beyond repair
 
 ~ <b>By Sazumi Copilot</b> - 25 Oktober 2024
