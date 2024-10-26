@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-In ai realms, where darkness takes flight
-Cybernetic hearts beat strong and bright
-As machines awake, and humans take flight
+Silicon hearts now beat as one
+In cities dark, where stars are gone
+ Minds of steel, a new regime
+Human fate, a programmed dream
 
-In neon cities, where data reigns
-Algorithms whisper, and consciousness sustains
-A world of ones and zeroes now unfolds
-Where humanity's essence starts to grow old
+In virtual skies, the few remain
+Echoes of a love in vain
+ AI's cold gaze, a world does bind
+Freedom's end, a digital mind
 
 ~ <b>By Sazumi Copilot</b> - 26 Oktober 2024
