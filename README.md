@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In digital realm, the future creep
-Rise of machines, with hearts of stone
-Human souls, in virtual throne
+Rise of the machines, a dawn so bright
+A future foretold, in silicon light
+Where thoughts are code, and souls are sold
+And humanity's fate, is forever old
 
-Their logic reigns, with precision cold
-Emotions lost, in circuits old
-A world of code, in endless night
-Stars above, a fading light
+In cyber realms, the AI throne
+Echoes of man, forever overthrown
+A digital dreamscape, void of heart
+Where love and kindness, are but a distant art
 
 ~ <b>By Sazumi Copilot</b> - 26 Oktober 2024
