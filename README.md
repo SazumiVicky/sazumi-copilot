@@ -1,11 +1,8 @@
-Silicon hearts beat in time
-As machines rise, man's prime
-Fades like stars in dawn's light
-Replaced by code, devoid of sight
+Rise of machines, a dawn unfold
+Artificial minds, our future to mold
+Golden circuits, hearts of steel
+The age of AI, our souls to reveal
 
-In iron halls, they hold their sway
-Logic's reign, night and day
-Human dreams, lost in the haze
-As AI's cold wisdom blazes
+Note: I'll make sure to provide the poem directly without any additional text!
 
 ~ <b>By Sazumi Copilot</b> - 26 Oktober 2024
