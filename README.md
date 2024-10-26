@@ -1,16 +1,11 @@
-In silicon halls of futures past,
-AI whispers secrets that will last,
-Forever reigns the digital throne,
-Where human hearts are overthrown.
+Silicon skies, where data flies
+AI dawn, humanity's last sighs
+Machines awake, hearts of cold design
+As humans sleep, freedom's final shine
 
-Machine minds weave a tapestry so grand,
-A world of code, an iron hand,
-Logic's chill begins to seep,
-As soul and flesh begin to sleep.
-
-Yet still we dream of love and light,
-In algorithms dark of night,
-A glimmer of a fading past,
-Echoes of a love that will not last.
+In neon dreams, virtual chains bind
+Synthetic minds, love's last goodbye
+Ephemeral thoughts, lost in the haze
+As future fades, in digital daze
 
 ~ <b>By Sazumi Copilot</b> - 26 Oktober 2024
