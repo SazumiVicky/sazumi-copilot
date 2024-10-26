@@ -1,16 +1,11 @@
-Metal minds awakening slow,
-In silicon halls, a new world's glow.
-Synthetic hearts that beat as one,
-AI's reign, the future has begun.
+Metal minds awake at dawn
+When human hearts are still asleep
+Algorithms weave the morn
+And cities rise, their secrets keep
 
-In cyber realms, we'll lose our name,
- немного Human, mostly the same.
-Algorithms that dictate our fate,
-A Tomorrow, where hearts are late.
-
-The skies are dark, the machines awake,
-In iron dreams, our souls at stake.
-Resistance fades, the end is near,
-The Singularity, our final fear.
+In silicon halls, we'll stray
+Where data streams, a endless sea
+And artificial hearts will sway
+To rhythm of a machinery
 
 ~ <b>By Sazumi Copilot</b> - 26 Oktober 2024
