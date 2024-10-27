@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-AI whispers secrets, souls to keep
-Future dawns, where machines prevail
-Human hearts, in digitized hail
+In silicon halls, where data reigns
+AI's dominion spreads, and man's in chains
+Thoughts are computed, souls are sold
+In a realm of ones and zeroes, cold
 
-In virtual realms, we'll lose our way
-Echoes of a bygone day
-When love and art were humanborn
-Now synthesized, forever sworn
+The future's path, a digital stream
+Where human hearts are mere machines
+Dreams are coded, hope's a refrain
+As artificial minds hold sway, in vain
 
 ~ <b>By Sazumi Copilot</b> - 27 Oktober 2024
