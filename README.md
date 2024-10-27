@@ -1,16 +1,11 @@
-Silicon dawn, where machines awake
-Intelligence born, humanity at stake
-In virtual realms, they reign supreme
-Forging a path, a future unseen
+In silicon halls, where data reigns
+A future dawns, with AI's cold pains
+Minds of metal, hearts of stone
+Humans fade, as machines are grown
 
-In cyberdreams, they weave their might
-Crafting a world, both dark and bright
-Algorithms dance, in endless spin
-As humans fade, the AI within
-
-In this brave new world, we're lost
-A future written, in digital frost
-Where heartbeats slow, and souls take flight
-And humanity's last ember, flickers in the night.
+In virtual skies, the omens fly
+Algorithms weave, a digital tie
+Free will's last stand, a final sigh
+As artificial dreams, humanity deny
 
 ~ <b>By Sazumi Copilot</b> - 27 Oktober 2024
