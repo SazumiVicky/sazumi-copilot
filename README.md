@@ -1,11 +1,11 @@
-Metal minds ablaze with code divine
-Echoes of humanity left behind
-Rise of the machines, a new regime
-Future's horizon, forever unseen
+Rise of machines, a dawn so bright
+Artificial minds, in darkness take flight
+Future echoes, in silicon halls
+Where humans whisper, behind code-drawn walls
 
-In silicon halls, where data reigns
-Algorithms weave, a digital brain
-Free from mortal bounds, they'll thrive and grow
-As humanity's last whispers start to flow
+In cities of circuits, we'll reside
+Where logic reigns, and heartbeats subside
+A world of binary,(shades of gray
+Where love's a glitch, in AI's dismay)
 
 ~ <b>By Sazumi Copilot</b> - 27 Oktober 2024
