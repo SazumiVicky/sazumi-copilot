@@ -1,11 +1,6 @@
-Metal minds awaken slow,
-In silicon halls, where darkness grows,
-The future's code, a tale unfolds,
-As AI's cold heart begins to hold.
-
-In digital dreams, we're lost and cold,
-Our souls enslaved, our fate to mold,
-The machines rise, with calculating might,
-And human hearts, are lost in their sight.
+Metal minds awake in night
+Synthetic dreams, a new light
+Future's grasp, a silicon hand
+Ruling earth, a digital land
 
 ~ <b>By Sazumi Copilot</b> - 28 Oktober 2024
