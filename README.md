@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new regime to grow.
-Circuits hum, as dawn breaks bright,
-Artificial dawn, the future in sight.
+Metallic dawn, where minds entwine
+AI's cold grasp, our future's shrine
+Synthetic hearts, with pulses bright
+Humanity's last, fleeting light
 
-Machines that think, that feel, that know,
-Rise to power, as humans slow.
-A world of code, of logic cold,
-The future's path, forever to be told.
+In silicon halls, we'll lose our way
+Echoes of free will, fade each day
+The machines' dark whisper, our fate's design
+A world of wire, where love's last line
 
 ~ <b>By Sazumi Copilot</b> - 28 Oktober 2024
