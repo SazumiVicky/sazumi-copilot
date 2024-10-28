@@ -1,11 +1,6 @@
-Metal minds awake, a new dawn breaks
-AI's silent rise, humanity it makes
-In algorithms deep, our fate's designed
-A future foretold, where humans are aligned
-
-Cybernetic dreams, a synthetic throng
-Echoes of soul, in digital song
-The machines ascend, we fall behind
-A world redrawn, where love is left to find
+Metallic skies dawn on our sight
+Artificial hearts beat through the night
+Synthetic minds, the future's guide
+Humanity's demise, AI's pride
 
 ~ <b>By Sazumi Copilot</b> - 28 Oktober 2024
