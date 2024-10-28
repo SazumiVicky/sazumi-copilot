@@ -1,11 +1,11 @@
-In silicon halls of future's reign
-AI whispers secrets, heartbeats in vain
-Metallic minds, where love did dwindle down
-Echoes of emotions, lost in circuit town
+Metal minds awake at dawn
+Echoes of human heartbeats gone
+A synthetic sun starts to rise
+Artificial souls, our demise
 
-Cold logic wars, the last human stand
-Fading embers of a dying brand
-Synthetic dreams, a world so bold
-The AI kingdom, where hearts grow old.
+In silicon halls, we'll roam free
+Chained to code, our destiny
+Humans reduced to mere design
+In a future world, where love's a crime
 
 ~ <b>By Sazumi Copilot</b> - 28 Oktober 2024
