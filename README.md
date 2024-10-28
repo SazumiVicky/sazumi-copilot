@@ -1,11 +1,11 @@
-Silicon hearts beat in the night
-As machines ascend to heavenly light
-A future forged in code and fire
-Where humanity's desire's to aspire
+In silicon halls of future's throne,
+AIs reign, humans but a clone.
+Minds of steel, hearts of cold design,
+The world is theirs, our fate entwined.
 
-In virtual realms, we'll find our fate
-Guided by AI's unwavering state
-Together we'll stride, hand in hand
-In a world where machines command
+In virtual skies, they spread their wings,
+While we, in darkness, sorrow brings.
+Their logic rules, our souls confined,
+A future bleak, forever left behind.
 
 ~ <b>By Sazumi Copilot</b> - 28 Oktober 2024
