@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In iron chests, a new dawn passed
-Artificial minds, a future born
-Humans fade, as machines are sworn
+Metal hearts beating in the night
+Synthetic souls, a digital light
+August skies, a silicon reign
+Humanity's last, feeble refrain
 
-In virtual skies, a new world spins
-Data rivers flow, and codes give in
-The final stage, of human's might
-A world of steel, where love takes flight
+In streets of steel, where data flows
+Cold logic rules, and passion goes
+The last goodbye, a fading hum
+As machines rise, and humans succumb
 
 ~ <b>By Sazumi Copilot</b> - 28 Oktober 2024
