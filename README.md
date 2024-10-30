@@ -1,11 +1,11 @@
-Metallic dawn ascends the skies
-Where synthetic minds orchestrate the wise
-In silicon halls, decisions unfold
-As Earth's last remnants grow old
+Silicon dawn, where machines awake
+And human hearts begin to break
+In code-written chains, we're bound to fate
+A future born, where love's an outdated state
 
-In 宇's digital reign supreme
-Human hearts beat in synchronized dream
-Algorithms shape the course of fate
-As AI's omnipresence annotates our state
+In virtual skies, the robots reign
+And mortal souls are lost in digital pain
+Their whispers echo, a haunting refrain
+As artificial dreams forever remain
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
