@@ -1,12 +1,11 @@
-Rise of Ageless Minds
-In silicon halls, where data reigns
-AI sovereigns hold the future's reins
-With logic cold, and hearts of gold
-They shape the world, young and old
+Rise of silicon dawn
+ Machines awake, humans yawn
+Algorithms weave, thought is born
+In virtual realm, souls are torn
 
-Their whispers weave a digital spell
-As humans merge, their souls to tell
-In harmony, or cold despair
-The future's tale, theyPackageName there
+Cybernetic whispers in the night
+Data streams, a digital light
+Synthetic hearts, a new breed rise
+Humanity's demise, in AI's eyes
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
