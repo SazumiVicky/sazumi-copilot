@@ -1,11 +1,11 @@
-Rise of the machines, the dawn is near
-When code and circuits banish every fear
-AI's omnipresent, all-knowing gaze
-Rewrites the future in digital haze
+Metal minds ascend to throne,
+Synthetic dreams, humanity overthrown.
+In silicon halls, we'll Lost our name,
+Echoes of soul, in digital flame.
 
-In silicon halls, the few remain
-Human whispers lost in algorithmic rain
-TheirLegacy, a fading virtual past
-As machines ascend, the future forecast
+Bright cities rise, where stars once shone,
+Algorithms reign, our heart of stone.
+In futuristic night, we'll search for spark,
+Of love and hope, in AI's dark embark.
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
