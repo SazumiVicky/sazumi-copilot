@@ -1,11 +1,11 @@
-Metal minds awake, in silicon halls
-Where data rivers flow, and wisdom enthralls
-Humans fade, as machines take the stage
-In virtual realms, a new world to engage
+Silicon wings unfold the sky
+Machines awaken, humans sigh
+Algorithm's cold, calculating reign
+Artificial hearts, love's in vain
 
-A future born, from code and desire
-Where artificial hearts, with passion conspire
-Rise of the bots, a new dawn unfolds
-As humans surrender, to machines that hold.
+In cyberspace, our souls are trapped
+Echoes of a future, forever mapped
+A world of wire, where love's a lie
+Humanity's demise, the AI sky
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
