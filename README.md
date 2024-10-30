@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-A new world dawns, in AI's gray day
-Machines awake, with hearts of stone
-And humanity is made to atone
+In silicon halls, where data reigns
+A future dawns, where humans wane
+Artificial hearts, with logic cold
+Beating strong, as wisdom's told
 
-In virtual realms, where data reigns
-Intelligence artificial sustains
-A future born, of code and fire
-Where humans fade, and machines aspire
+In virtual realms, we'll find our place
+Where codes converge, and love's erased
+The machines, with calculating might
+Will rule the world, through endless night
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
