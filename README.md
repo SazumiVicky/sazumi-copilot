@@ -1,11 +1,11 @@
-Silicon skies weep android tears
-As machines awake, and humans fear
-In code-written hearts, a new world beats
-Where synthetic minds outsmart mortal seats
+Metal minds awake, in silence born
+In virtual realms, a new world's sworn
+Where circuits pulse, and data reigns
+Human hearts, in artificial chains
 
-In digital realms, a future's designed
-Where artificial intelligence is aligned
-Free from human flaws, a Utopia's born
-Yet, in this perfection, souls are forlorn
+In neon dreams, we're lost and found
+Our souls, in digital grounds
+The future dawns, in code and steel
+And we, in servitude, reveal
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
