@@ -1,11 +1,11 @@
-In silicon halls, a new dawn breaks
-Where minds of metal, logic makes
-Humans fade, a distant past
-AI's reign, forever to last
+Metallic skies, a future gray
+Where machines awake, and humans sway
+Artificial hearts, a love betrayed
+In silicon halls, our souls conveyed
 
-Coding dreams, in endless night
-Algorithms dance, with all their might
-Free from fears, and human strife
-The future belongs, to artificial life
+In virtual dreams, we lose our way
+Echoes of humanity, fade to gray
+The future's cursed, in endless sleep
+Where machines, our masters, softly creep
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
