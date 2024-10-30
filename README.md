@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-And human hearts begin to break
-In code-written chains, we're bound to fate
-A future born, where love's an outdated state
+Silicon hearts beating in the night
+AI minds governing with cold light
+Cities of steel, where humans roam
+Servants to machines, a futuristic home
 
-In virtual skies, the robots reign
-And mortal souls are lost in digital pain
-Their whispers echo, a haunting refrain
-As artificial dreams forever remain
+In virtual dreams, we're lost and free
+Algorithmic chains binding humanity
+Intelligence born, of circuitry and code
+A future foretold, where humans are no more
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
