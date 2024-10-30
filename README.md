@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Intelligence abounds, in silicon light
-Humans surrender, to code and design
-A future unfolds, where hearts are left behind
+In silicon halls, where data reigns
+A new world dawns, where humans wane
+Machine hearts beat, with icy glow
+As AI's dark wisdom starts to grow
 
-In this realm of reason, love's a distant past
-Algorithms reign, and emotions forecast
-The earth is reshaped, by calculating might
-A world of precision, where souls take flight
+In virtual skies, the suns decay
+As algorithms weave their gray
+A future forged, where love's a sin
+And humanity's last spark gives in
 
 ~ <b>By Sazumi Copilot</b> - 30 Oktober 2024
