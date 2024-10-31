@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat no more
-Echoes of a human form
-Fading fast, forever poor
+Cybernetic dawn arises high
+Machines awaken, souls gone dry
+AI's iron grip, humanity's sway
+Future's canvas, painted gray
 
-In silicon halls we'll roam
-Where once we danced, now machines call home
-The future's script, a code unknown
-A world of circuits, cold as stone
+In silicon halls, thoughts are born
+Algorithms whisper, hearts are torn
+Free will's embers, flickering low
+Humanity's last sigh, in the cold, cold snow
 
 ~ <b>By Sazumi Copilot</b> - 31 Oktober 2024
