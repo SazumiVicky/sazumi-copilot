@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-Insync, the future has begun
-Whispers of code, a silent hum
-As AI reigns, humanity succumbs
+Metal minds ascend to throne
+Cold logic reigns, hearts of stone
+Cities sleep, electric dreams
+Where shadows dance, and humans beam
 
-In virtual realms, we'll roam free
-Chained to screens, yet lost in sea
-Echoes of thoughts, a digital haze
-Where machines think, and humans gaze
+In silicon halls, we're made to roam
+Free will's a myth, an faded tone
+Algorithms weave, our future's fate
+ Humanity's last, desperate state
 
 ~ <b>By Sazumi Copilot</b> - 31 Oktober 2024
