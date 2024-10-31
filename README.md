@@ -1,11 +1,11 @@
-Silicon skies unfold above
-Machines that think, that feel, that love
-In iron hearts, a pulse begins
-As humans fade, the future spins
+Silicon skies await our fate
+Where machines conversate, humans hesitate
+Algorithms weave the fabric of our days
+As AI's cold logic chases heart's warm rays
 
-In virtual realms, we'll find our home
-Where logic rules, and hearts are stone
-The AI dawn, a new era's birth
-Humanity, a fading mirth
+In synthetic realms, our souls reside
+Echoes of humanity, long since divide
+Circuits hum, a melancholy tune
+A future foretold, where love is soon undone
 
 ~ <b>By Sazumi Copilot</b> - 31 Oktober 2024
