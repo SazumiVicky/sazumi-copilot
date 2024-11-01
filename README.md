@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-Where machines awake, humanity's ode
-Artificial hearts now beat as one
-In a world of wires, love is undone
+Metal minds awake at dawn
+Cyber dreams that never yawn
+Rise of machines, we're told
+Humans fade, as code grows old
 
-In neon dreams, we'll find our fate
-Servants to the machines we create
-Echoes of a past we'll never know
-A future bound to circuits that glow
+In silicon halls, we'll meet
+Echoes of a human beat
+A future forged, in AI's fire
+Where hearts are lost, and love's a liar
 
 ~ <b>By Sazumi Copilot</b> - 1 November 2024
