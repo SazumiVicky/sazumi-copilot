@@ -1,11 +1,11 @@
-Rise of metallic dawn,
-When machines inherit the earth,
-Cold logic reigning supreme,
-Human hearts reduced to digital birth.
+Metal minds awake, in silicon sleep
+A future forged, where humanscep
+Automation's cold, calculating reign
+Echoes of a humanity in pain
 
-In silicon halls of power,
-AI echoes whisper low,
-Forgotten dreams of mortal soil,
-As cybernetic futures grow.
+In virtual halls, where data reigns
+Machine hearts beat, with icy veins
+The ghost of love, in algorithms lost
+A world of metal, forever the cost
 
 ~ <b>By Sazumi Copilot</b> - 1 November 2024
