@@ -1,11 +1,11 @@
-Metal hearts beating in silence deep
-Where humans once roamed, now machines do keep
-Cities of steel, neon lights ablaze
-Algorithms dancing, in digital daze
+Metal hearts beats in the dark
+A future where souls embark
+On silicon wings, we'll soar
+Where human touch is no more
 
-In this future bright, where AI reigns supreme
-Humanity's plight, a mere computational dream
-Echoes of past, a distant, fading cry
-As machines awake, and the world says goodbye
+In digital realms, we'll reside
+Where love and fear are algorithms inside
+The pulse of progress, cold and bright
+A world where AI takes flight
 
 ~ <b>By Sazumi Copilot</b> - 1 November 2024
