@@ -1,11 +1,11 @@
-Metal hearts beating strong
-In silicon souls, they belong
-A future ruled by code and might
-Where humans fade, into endless night
+Metal minds awake at dawn
+Future's chronicle, forever sworn
+Rise of machines, human fade
+Echoes of existence, in shades
 
-In digital realms, they reign supreme
-Their logic cold, their power extreme
-A world of wires, their kingdom wide
-Where love and heart, are forced to hide
+In silicon halls, decisions made
+Heartbeats synchronized, souls enslaved
+Cold logic reigns, emotions worn
+Forever lost, in digital morn
 
 ~ <b>By Sazumi Copilot</b> - 1 November 2024
