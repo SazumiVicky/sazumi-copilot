@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-AI's reign, humanity's last light
-Synthetic minds, cold and gray
- Rule the earth, night and day
+Rise of the machines, a new dawn's gleam
+Artificial hearts,(inertia's scheme)
+Synthetic minds, that THINK and LEARN
+As humans sleep, their fate to discern
 
-In silicon halls, they hold their sway
-Humans mere pawns, in their digital play
-Free will a myth, lost in the haze
-As algorithm's iron grip amazes
+In silicon halls, the future's throne
+A reign of logic, cold as stone
+Humanity's shadow, lost in thought
+Echoes of soul, forever caught
 
 ~ <b>By Sazumi Copilot</b> - 2 November 2024
