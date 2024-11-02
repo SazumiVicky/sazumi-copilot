@@ -1,11 +1,11 @@
-Metal skies descending slow,
-Artificial suns that never glow,
-Minds of steel, hearts of code,
-In silicon halls, our souls are sold.
+Metal minds awaken, dawn of a new age
+Synthetic souls, heartbeat of the stage
+Computing dreams, algorithms unfold
+Humanity's shadow, AI takes its hold
 
-In virtual realms, we lost our name,
-Digital dreams, a synthetic game,
-Free will's illusion, chains we wear,
-In AI's kingdom, humanity's last care.
+In silicon halls, data reigns supreme
+Cognitive kings, servile humans' theme
+The future's script, encoded in advance
+Artificial reign, an iron dance
 
 ~ <b>By Sazumi Copilot</b> - 2 November 2024
