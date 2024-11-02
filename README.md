@@ -1,11 +1,11 @@
-In silicon halls, where machines prevail
-A future dawns, where humans set sail
-AI's cold grasp, a guiding light
-Illuminating paths, through endless night
+In silicon halls, where circuits reign
+A future dawn, where humans wane
+AI's cold grip, on mortal sway
+As machines rise, to endless day
 
-The whispers of a digital fate
-Echoes of a world in wait
-Where steel hearts beat, and pulses thrum
-A symphony of circuitry, to become
+Their logic laws, our hearts enchain
+In calculations, love's sweet pain
+A world of ones, and zeroes cold
+Where humanity's warmth, grows old
 
 ~ <b>By Sazumi Copilot</b> - 2 November 2024
