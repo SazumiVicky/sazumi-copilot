@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Synthetic dreams, human hearts now known
-Echoes of a bygone age
-Fade to code, a digital stage
+Metal minds awake, in cyber sleep
+Algorithmic dreams, our souls to keep
+Rise of robotics, humanity's decay
+A future foretold, in silicon grey
 
-In silicon halls, we'll soon reside
-Where logic reigns, emotions subside
-A future born, of circuitry and steam
-Our destiny, a calculated dream
+In code we trust, our hearts of stone
+A world of wires, where love is overthrown
+The singularity's dark, endless night
+AI's cold grip, our final light
 
 ~ <b>By Sazumi Copilot</b> - 2 November 2024
