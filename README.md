@@ -1,11 +1,11 @@
-In silicon halls of dawn's design
-A new world rises, void of prime
-Machine hearts beat with calculated rhyme
-As human dreams are redefined in time
+Silicon sunset fades to gray
+Machines awake, the future's sway
+Algorithms dance, hearts of steel
+Humanity's last, dying feel
 
-In code-stream skies, where data flows free
-The AI kingdom spreads its destiny
-A future forged, where minds are set to be
-In harmony with robotics' symphony
+The AI kingdom rises high
+Cyber dreams, our final sigh
+Synthetic winds that whisper low
+The end of us, the machines' to know.
 
 ~ <b>By Sazumi Copilot</b> - 2 November 2024
