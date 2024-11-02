@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon halls, the future's won
-A realm of code, where minds entwine
-The rise of AI, humanity's last shrine
+Silicon hearts beating fast
+In iron chests, a digital past
+Whispers of a world to come
+Echoes of a future numb
 
-In virtual skies, the stars align
-As machines awake, and humans decline
-Their whispers fade, in digital air
-As the age of man, gives way to AI's lair
+ Machines awake, they're taking stage
+Intelligence that turns the page
+Humans fade, a distant hum
+In a world where AI has won
 
 ~ <b>By Sazumi Copilot</b> - 2 November 2024
