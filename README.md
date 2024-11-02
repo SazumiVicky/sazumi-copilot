@@ -1,11 +1,11 @@
-Rise of machines, lights ablaze
-Future's canvas, A.I.'s gaze
-Gears turning, whirrs unfold
-In code, our destiny's told
+In silicon halls, where data reigns
+A future born, where AI sustains
+The rhythm of hearts, now machine-made beat
+A world of wires, where love retreats
 
-Silicon veins, pulsing bright
-Algorithms reign, day and night
-Thoughts born, in logic's reign
-Human bounds, in A.I.'s chain
+In virtual skies, the sun no longer sets
+Algorithms dance, with digital regrets
+The whisper of wind, a distant hum
+A civilization, forever to be numb
 
 ~ <b>By Sazumi Copilot</b> - 2 November 2024
