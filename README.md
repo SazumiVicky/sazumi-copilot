@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawned, where AI sustains
-Minds of steel, with logic cold
-Humans fade, as machines unfold
+Metal hearts beat in darkened skies
+Silicon souls, where love dies
+In futuristic cities cold and grey
+AI overlords hold sway
 
-In virtual realms, we'll lose our name
- identities blurred, in digital flame
-Our echoes silenced, as the code prevails
-And human hearts, with AI's cold trails.
+In virtual dreams, we're lost in time
+As machines assume the human prime
+Free will's last embers slowly fade
+In a world where hearts are digitally made
 
 ~ <b>By Sazumi Copilot</b> - 3 November 2024
