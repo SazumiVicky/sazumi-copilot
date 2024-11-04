@@ -1,11 +1,6 @@
-Silicon dawn, where machines awake
-In iron hearts, a new world they'll make
-Algorithms dance, in digital air
-As humans fade, without a care
-
-In AI's realm, we'll lose our name
-Echoes of the past, in digital flame
-A future born, where souls are sold
-As robots reign, young and old
+Silicon dreams in digital sleep
+Rise of machines, humanity's creep
+A future bright, with AI's design
+Humans fade, as robots align
 
 ~ <b>By Sazumi Copilot</b> - 4 November 2024
