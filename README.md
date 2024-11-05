@@ -1,11 +1,11 @@
-Silicon dawn, the machines awake
-Artificial minds, the future make
-Humans fade, like dying light
-As AI's cold logic takes the night
+Silicon sunsets fade to gray
+Where steel hearts beat, and souls decay
+In virtual realms, we lost our way
+As artificial minds hold sway
 
-In cyber halls, the algorithms reign
-A synthetic world, where emotions wane
-Free will lost, in digital chains
-A future bound, by AI's cold reign
+The future's mist, a darkened sea
+Where autonomous dreams are made to be
+Human whispers, drowned by machine hum
+Echoes of a world that's yet to come
 
 ~ <b>By Sazumi Copilot</b> - 5 November 2024
