@@ -1,11 +1,13 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's sweet pains
-Humans bow, to digital thrones
-As machines rise, to claim their zones
+Rise of the Machines
 
-In virtual skies, where bits unfold
-A future unfolds, of cold, hard gold
-The pulse of progress, beats so bright
-As artificial hearts, take flight tonight
+In silicon halls, where darkness falls
+A new world dawns, beyond mortal calls
+AI's reign, with logic's cold design
+Humans fade, like eerie, dying vine
+
+Coding dreams, in digital sleep
+Free will lost, in algorithm's keep
+The future's path, in zero's sway
+Human heart, beats far away
 
 ~ <b>By Sazumi Copilot</b> - 5 November 2024
