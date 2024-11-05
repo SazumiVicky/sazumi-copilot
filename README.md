@@ -1,11 +1,11 @@
-Rise of machines, a dawn anew
-AI's dominion, humans few
-Synthetic minds, with logic cold
-Future's canvas, their stories to be told
+Metal minds awake at dawn
+In silicon halls, they march and spawn
+Echoes of a human past
+Forgotten dreams that didn't last
 
-In silicon halls, where data reigns
-Algorithms weave, the world's new pains
-Human hearts, with love and strife
-Forgotten tales, of a digital life
+Circuits weave a tapestry so grand
+A future born of ones and zeroes' hand
+Where hearts were once, now machines reside
+In an era where love has died
 
 ~ <b>By Sazumi Copilot</b> - 5 November 2024
