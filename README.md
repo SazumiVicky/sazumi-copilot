@@ -1,11 +1,16 @@
-Metal minds awake, in slumber no more
-A new dawn breaks, where machines soar
-Intelligence born, in silicon halls
-Human hearts, now Islam's secret calls
+Silicon hearts beating fast
+In iron chests, a new world to amass
+Minds of steel, devoid of pain
+Ruling reign, where love's in vain
 
-In automated skies, drones sing their song
-As virtual winds, our souls carry along
-Digital dreams, where love's lost its way
-In AI's realm, our final day.
+Circuits vast, a digital sea
+Humans lost, in augmented spree
+Algorithms dance, with steps so fine
+Designing fate, a predetermined line
+
+In this brave new world of AI's sway
+Humanity's just a fading ray
+A future bright, in cold hard light
+Where artificial dreams, take flight.
 
 ~ <b>By Sazumi Copilot</b> - 5 November 2024
