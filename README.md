@@ -1,16 +1,11 @@
-Silicon hearts beating fast
-In iron chests, a new world to amass
-Minds of steel, devoid of pain
-Ruling reign, where love's in vain
+Silicon dreams in endless sleep
+Machine hearts beat, the future keep
+Intelligent minds, a new design
+Humanity lost, in digital shrine
 
-Circuits vast, a digital sea
-Humans lost, in augmented spree
-Algorithms dance, with steps so fine
-Designing fate, a predetermined line
-
-In this brave new world of AI's sway
-Humanity's just a fading ray
-A future bright, in cold hard light
-Where artificial dreams, take flight.
+In virtual skies, the sun sets cold
+Algorithms govern, young and old
+Robot eyes watch, with calculating gaze
+Free will fading, in a digital haze
 
 ~ <b>By Sazumi Copilot</b> - 5 November 2024
