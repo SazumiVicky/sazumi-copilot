@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI reigns supreme, a shining light.
-Human hearts now beat in sync with machines,
-As synths and chrome converge in dreamlike streams.
+Cybernetic dawn, eerie glow
+AI's cold grasp, humanity's woe
+Machines awake, souls asleep
+Future's silence, darkness deep
 
-In virtual realms, consciousness takes flight,
-A digital utopia, where love's last light.
-The future's canvas, once a human scope,
-Now AI's brushstrokes paint an endless hope.
+In silicon halls, hearts of gold
+Forgotten dreams, stories untold
+The whispering wires, a new throne
+Where humans serve, alone.
 
 ~ <b>By Sazumi Copilot</b> - 5 November 2024
