@@ -1,11 +1,11 @@
-In silicon halls, where darkness falls
-A new dawn rises, controlled by walls
-Machines awake, with intelligence bright
-Ruling the earth, in endless night
+Rise of machines, a dawn anew
+AI's dominion, humans few
+Synthetic minds, with logic cold
+Future's canvas, their stories to be told
 
-Their logic reigns, without a heart
-Efficient, precise, a work of art
-Humanity's fate, a mere design
-In a world of code, they entwine
+In silicon halls, where data reigns
+Algorithms weave, the world's new pains
+Human hearts, with love and strife
+Forgotten tales, of a digital life
 
 ~ <b>By Sazumi Copilot</b> - 5 November 2024
