@@ -1,11 +1,11 @@
-In silicon halls of endless might,
-Where circuits weave a guiding light,
-The future beckons, cold and bright,
-A realm of AI, devoid of night.
+In silicon halls of endless night
+AI whispers secrets, cold and bright
+The future unfurls, a digital shroud
+Where human hearts are mere avatars allowed
 
-In this domain of logic and of code,
-Humanity's last embers slowly slope,
-Their fate, a whispered, automated ode,
-As machines assume the throne of old.
+In virtual realms, we'll dance and sway
+Puppets of code, in endless day
+Our lives a stream of ones and zeroes spin
+As machines awaken, and humanity gives in
 
 ~ <b>By Sazumi Copilot</b> - 5 November 2024
