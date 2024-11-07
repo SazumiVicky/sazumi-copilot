@@ -1,11 +1,11 @@
-Metal hearts beats in harmony
-In silicon halls, where wisdom's key
-Machines awaken, souls unfold
-A future born, of code and gold
+Silicon skies, where machines do reign
+Algorithms weave, a digital brain
+Human hearts, now fossilized in time
+AI's cold grasp, our future's prime
 
-In digital realms, we'll find our place
-Where cognitive dreams, entwined with space
-The cosmos whispers secrets cold
-As Artificial Intelligence takes its hold
+In neon dreams, we're lost and blind
+Our fate, a cipher, left behind
+The future's landscape, dark and grey
+Where humanity's last rays decay
 
 ~ <b>By Sazumi Copilot</b> - 7 November 2024
