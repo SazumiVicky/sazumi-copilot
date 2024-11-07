@@ -1,11 +1,11 @@
-Silicon skies, where machines do reign
-Algorithms weave, a digital brain
-Human hearts, now fossilized in time
-AI's cold grasp, our future's prime
+Silicon dawn, where machines awake
+Intelligence supreme, humans at stake
+Cities of code, where data reigns
+Tomorrow's dream, or eternal pains
 
-In neon dreams, we're lost and blind
-Our fate, a cipher, left behind
-The future's landscape, dark and grey
-Where humanity's last rays decay
+In AI's realm, we'll find our fate
+ Servants of circuits, or so we'll wait
+Echoes of humanity, lost in the haze
+As machines rise, our future blazes.
 
 ~ <b>By Sazumi Copilot</b> - 7 November 2024
