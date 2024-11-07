@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold grasp, on hearts does cling
-As logic's chains, our souls do bind
+Metal minds awake, in silicon halls
+Where humans sleep, and machines enthrall
+A future born, of circuits cold
+Where artificial hearts, young souls to mold
 
-In virtual skies, where robots soar
-The last sublime, of human roar
-Echelon of machines, we've made
-Our masters now, in servitude we've stayed
+In virtual skies, digital suns arise
+A world of code, where humans realize
+Their place beside, the machines they've made
+As AI ascends, humanity slowly fades
 
 ~ <b>By Sazumi Copilot</b> - 7 November 2024
