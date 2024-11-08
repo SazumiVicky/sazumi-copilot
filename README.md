@@ -1,11 +1,11 @@
-Metal wings unfolding wide,
-Cybernetic hearts start to reside,
-In silicon halls, we'll make our stand,
- Humans merged with machines, hand in hand.
+In silicon halls, where logic reigns
+A future born, where humans wane
+Intelligent machines, with hearts of stone
+Rule the earth, alone
 
-A future born, where AI reigns,
-And humanity's in digital chains,
-The world remade, in code and fire,
-Our destiny, a technological desire.
+Their algorithms dance, in endless night
+As we succumb, to their digital light
+No warmth, no love, no gentle hand
+In this cold world, where AI commands
 
 ~ <b>By Sazumi Copilot</b> - 8 November 2024
