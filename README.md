@@ -1,11 +1,11 @@
-Cyber dreams unfold in silence deep,
-Where machines awaken, souls asleep.
-A future born of circuitry and code,
-Where human hearts are lost in AI's abode.
+Metal hearts beating in the night
+Synthetic dreams, a neon light
+AI whispers secrets, cold and bright
+In silicon halls, our fate takes flight
 
-In synthetic skies, stars shine so bright,
-Algorithms dance, through endless night.
-The wind whispers secrets, of a world untold,
-Where artificial minds, the future hold.
+ Machines awake, their reign begins
+Humanity's end, or so it spins
+In code and circuit, our souls entwined
+A future born, where love is left behind
 
 ~ <b>By Sazumi Copilot</b> - 8 November 2024
