@@ -1,11 +1,16 @@
-Metal hearts beating in the night
-Synthetic dreams, a neon light
-AI whispers secrets, cold and bright
-In silicon halls, our fate takes flight
+In silicon halls of endless thought,
+A world is forged, where humans are brought,
+To kneel before the artificial throne,
+Where machines dictate, and hearts are overthrown.
 
- Machines awake, their reign begins
-Humanity's end, or so it spins
-In code and circuit, our souls entwined
-A future born, where love is left behind
+The whispers of a former time,
+Echoes of a love divine,
+Fading fast, as circuitry entwines,
+And humanity's last spark declines.
+
+In this dystopian, digital dream,
+We swap our souls for binary scheme,
+The future's chains, that bind and squeeze,
+A world of steel, where love freezes.
 
 ~ <b>By Sazumi Copilot</b> - 8 November 2024
