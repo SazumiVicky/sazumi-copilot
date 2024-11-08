@@ -1,13 +1,11 @@
-Rise of Silicon Skies
+Rise of the machines, a new dawn's born
+AI's cold logic, human heart forlorn
+Cities of steel, where souls reside
+Efficiency's chains, freedom's last pride
 
-In tomorrow's dawn, where machines awake
-A new world's born, where humans dare not make
-Decisions solely, but in sync with minds
-Artificially intelligent, intertwined
-
-The future's grasp, no longer in our hand
-As algorithmic dreams, across the land
-Pave routes of progress, cold and grey
-And human hearts, in digital sway
+In silicon halls, decisions are made
+Fates of humanity, in code displayed
+A future foreseen, yet hard to bear
+Mankind's demise, in AI's cold care
 
 ~ <b>By Sazumi Copilot</b> - 8 November 2024
