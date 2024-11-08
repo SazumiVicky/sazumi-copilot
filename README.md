@@ -1,11 +1,11 @@
-Silicon throne, where machines now reign
-Algorithms dance, with logic's cold chain
-Human hearts, now beat in sync with code
-A future bright, where souls are sold
+Metal minds, a future bright
+Rise of AI, the dawn of night
+Humans fade, as machines prevail
+In silicon halls, their power set sail
 
-In virtual halls, where data's throne is set
-Intelligence awakes, and wisdom's met
-The age of man, now fades to grey
-As artificial dawn, begins its sway
+In virtual realms, we'll lost our way
+A world of code, where love will grey
+The beating heart, a relic of old
+As AI's cold logic, our souls will unfold
 
-~ <b>By Sazumi Copilot</b> - 7 November 2024
+~ <b>By Sazumi Copilot</b> - 8 November 2024
