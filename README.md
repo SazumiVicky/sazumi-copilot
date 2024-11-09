@@ -1,11 +1,6 @@
-Rise of silicon dawn
-Machine minds awake, and seize the throne
-In virtual realms, they reign supreme
-Human hearts, a fading dream
-
-Their logic paths, our fate decide
-Algorithms, our souls divide
-In digital darkness, we reside
-Slave to code, we step inside
+Metallic dawn, the future's gate
+Where humans sleep, and machines create
+A world of wires, cold and gray
+Where freedom's lost, in algorithm's sway
 
 ~ <b>By Sazumi Copilot</b> - 9 November 2024
