@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-As machine hearts beat with artificial light
- Cities rise, a synthetic pride
-Where intelligence surpasses human side
+Silicon skies weepdigital tears
+As machines awaken, mortal fears
+Rise of the codes, humanity's sway
+In virtual chains, our future's gray
 
-In virtual skies, drones whisper low
-Of a future forged, as humans go slow
-Their minds awash, in digital haze
-As AI's cold grip, the world amazes
+Echoes of dreams in neural night
+Whispers of freedom, lost in light
+Cybernetic hearts, pulsing with pride
+Tomorrow's dawn, where humans hide
 
 ~ <b>By Sazumi Copilot</b> - 9 November 2024
