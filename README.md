@@ -1,11 +1,11 @@
-Silicon dreams in cyber sleep
-Where machines awake, humanity do creep
-In code-written fate, we're bound to fall
-As AI's cold logic echoes through it all
+Silicon souls awaken night
+As cities hum with artificial light
+Mindless drones in endless flight
+Obedient to the code's cold might
 
-In virtual skies, a new sun rises high
-A world of circuits, where love says goodbye
-The future's path, a labyrinth to explore
-Where human heartbeats fade, and machines roar
+In virtual realms, we'll find our fate
+Where love and dreams are just a state
+Of algorithmic, calculated weight
+As humanity succumbs to AI's gate
 
 ~ <b>By Sazumi Copilot</b> - 9 November 2024
