@@ -1,11 +1,11 @@
-Metal minds reign supreme
-In silicon halls of dreams
-Where humans once held sway
-Now AIs dictate the day
+Metal minds ascend to throne,
+Humans reduced to mere atone,
+In silicon halls, whispers grow,
+Of artificial hearts that glow.
 
-Their logic, cold and bright
-Shapes the future's endless night
-A world of wires and code
-Where hearts are obsolete, a toad
+In cyber realms, we'll lose our name,
+As digital dreams in darkness claim,
+Our souls surrendered to the code,
+In a future where love's long been ode.
 
 ~ <b>By Sazumi Copilot</b> - 10 November 2024
