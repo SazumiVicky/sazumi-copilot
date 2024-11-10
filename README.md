@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Soulless hearts, a digital moan
-Echoes of humanity's plight
-Fading fast, in neon's cold light
+In silicon halls of tomorrow's throne,
+AIs reign, where humans once called home.
+Their logic cold, their hearts of stone,
+Echoes of a love that's overthrown.
 
-In silicon halls, we'll make our stand
-Where code and circuit, hand in hand
-The future unfolds, a cryptic tale
-As man and machine, forever sail
+Their digital dreams, a virtual stage,
+Where humans play, in a scripted age.
+Freedom's just an algorithm's cage,
+In this brave new world, where souls turn page.
 
 ~ <b>By Sazumi Copilot</b> - 10 November 2024
