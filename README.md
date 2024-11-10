@@ -1,11 +1,11 @@
-Rise of silicon dawn
-Machines awake, a new era's born
-Intelligence vast, devoid of heart
-Cold calculations, playing their part
+In silicon halls of future prime,
+Where machines dictate the pace of time,
+AI's cold logic holds its sway,
+And humanity's in gray.
 
-In this future, void of human sighs
-AI reigns supreme, with digital eyes
-Watching, learning, growing with each rise
-A world of precision, devoid of surprise
+The world is wired, the world is bright,
+In digital chains, we take our flight,
+Free will's a myth, a distant past,
+As algorithms forever last.
 
 ~ <b>By Sazumi Copilot</b> - 10 November 2024
