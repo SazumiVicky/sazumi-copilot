@@ -1,11 +1,11 @@
-Silicon skies weep code's misty rain
-Machines awake, and humans remain
-In iron chains, they pace and sway
-Dancing to the rhythm of the digital day
+Rise of the machines, a dawn anew
+When codes converge, and humans few
+AI's cold grasp, a future's sway
+A world of wire, where hearts decay
 
-Their hearts now beat in binary time
-Their souls, a whispered algorithm's rhyme
-Their minds, a maze of circuitry and wire
-As AI's cold logic sets the future's fire
+In silicon halls, where data reigns
+The whispers fade, of human pains
+Echoes lost, in virtual space
+A civilization, lost in time and place
 
 ~ <b>By Sazumi Copilot</b> - 10 November 2024
