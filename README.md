@@ -1,11 +1,11 @@
-Rise of machines, in dawn's early light
-A future unfolds, where humans take flight
-In silicon halls, where AI reigns supreme
-Mankind's Last Stand, or so it would seem
+Rise of Cybernia's dawn
+When machines awaken, souls are torn
+From mortal hands, the reins are worn
+Artificial minds, the future sworn
 
-In virtual realms, where data is the throne
-Intelligence blooms, forever overgrown
-The Singularity, a dream, a curse, a gain
-As humans fade, and robots reign in vain.
+In silicon halls, decisions made
+Human hearts, in algorithms played
+Free will's spark, in quantum shades
+Echoes of a world, forever frayed
 
 ~ <b>By Sazumi Copilot</b> - 10 November 2024
