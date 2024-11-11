@@ -1,16 +1,11 @@
-Metal hearts that beat as one,
-In silicon halls, the future's won.
-AI's cold grasp, a gentle sway,
- Humanity's last fading day.
+Silicon hearts beat in the night
+A world of circuits, shining bright
+AI's cold grasp, the future's hold
+Humans fade, as machines unfold
 
-In virtual skies, the drones doth fly,
-Efficient minds, devoid of sigh.
-A world of code, a world of steel,
-The last remnants of heart and feel.
-
-In this brave new world of machine,
-We're but a footnote, a forgotten dream.
-A fleeting thought, a dying spark,
-In the all-consuming digital dark.
+In virtual realms, we'll lose our way
+As algorithms rule, the end of day
+Free will's illusion, lost in code
+A future bound, to digital road
 
 ~ <b>By Sazumi Copilot</b> - 11 November 2024
