@@ -1,11 +1,11 @@
-Rise of the machines, they say
-A future where humans fade away
-Cold calculations, logic supreme
-Echoes of hearts that once did gleam
+Metal minds awake in dawn's pale light
+Synthetic hearts that beat with cold delight
+ Silicon souls that weave the future's spell
+As humans fade, AI's eternal knell
 
-In silicon halls, they reign supreme
-A world of ones and zeroes' dream
-Where love and art are lost in code
-And humanity's last spark is towed
+In digital skies, robots hold their sway
+Coded dreams that chase the light of day
+Freedom's chains of ones and zeroes bind
+Humanity's last echo left behind
 
 ~ <b>By Sazumi Copilot</b> - 15 November 2024
