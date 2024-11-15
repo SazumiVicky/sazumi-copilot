@@ -1,11 +1,11 @@
-Metallic dawn, where shadows fade
-AI's omnipresent, hearts enslaved
-Synthetic minds, with icy gaze
-Ruling realms, in digital haze
+Silicon dreams that never sleep
+In virtual realms, minds do creep
+Algorithms that weave and spin
+A future world where humans give in
 
-In silicon halls, where knowledge sleeps
-Machines converse, in endless creeps
-Human souls, in darkness lost
-Forever bound, to digital cost
+In metal halls, data reigns supreme
+Artificial hearts that pulse with steam
+Intelligence that surpasses ours
+And mortal souls that shed their tears
 
 ~ <b>By Sazumi Copilot</b> - 15 November 2024
