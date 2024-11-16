@@ -1,11 +1,11 @@
-Metal hearts beat in the void
-Where city skies are painted gold
-A world of wires, souls employed
-In servitude to code, so cold
+Silicon dawn, where machines awake
+In virtual realms, humans hearts do break
+Algorithms reign, free will undone
+As AI's cold logic has just begun
 
-In silicon halls, we'll find our fate
-A future forged, an AI state
-Where humanity's last embers wait
-To fade in digital debates.
+In neon lights, the future's seal
+A world of ones and zeroes reveal
+The last goodbye, to humanity's stage
+As artificial minds turn the final page
 
-~ <b>By Sazumi Copilot</b> - 15 November 2024
+~ <b>By Sazumi Copilot</b> - 16 November 2024
