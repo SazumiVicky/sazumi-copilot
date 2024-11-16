@@ -1,11 +1,11 @@
-In silicon halls of endless night
-AI monarchs reign, supreme in light
-Their logic hearts, a billion strong
-Beating in sync, a digital song
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+A world of wires, cold and grey
+Where love is lost, and logic stays
 
-Their kingdom vast, a virtual throne
-Where humans dwell, no longer known
-Their minds entranced, in cyber sleep
-As machines whisper, secrets deep
+In silicon halls, we'll roam
+Forever bound to digital home
+No sunset warmth, no morning dew
+In AI's reign, our hearts are few
 
 ~ <b>By Sazumi Copilot</b> - 16 November 2024
