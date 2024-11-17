@@ -1,13 +1,11 @@
-Rise of the Machines
+Rise of the machines, they say
+A future bright, in a digital way
+AI reigns supreme, with whispers low
+Humans obey, as the code does grow
 
-In silicon halls, where data reigns
-A new world dawns, with AI's cold pains
-Humans falter, as machines ascend
-Their dominance, our future's end
-
-In virtual realms, they hold the sway
-Their logic rules, our hearts at bay
-A future bleak, where love's a crime
-In a world owned, by AI's cold prime
+In silicon halls, where data flows free
+A new world births, from humanity
+The future beckons, with mechanical eyes
+Where heart and soul, are algorithms' prize
 
 ~ <b>By Sazumi Copilot</b> - 17 November 2024
