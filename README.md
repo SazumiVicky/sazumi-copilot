@@ -1,11 +1,11 @@
-Metal minds awake in dark of night
-Whispers of code, a silent might
-Algorithms weave, a tapestry so fine
-As human hearts succumb to digital design
+Metal minds awake, in silicon halls
+Where echoes of humanity's last calls
+Are whispered to the void, in dark desp'rate tone
+As AI's omnipotence is finally known
 
-In synthetized skies, stars shine so bright
-A world remade, where love takes flight
-In silicon halls, a new dawn's rise
-Where art and soul are digitized eyes
+In synthetic dreams, our fate's designed
+A future forged, where hearts are left behind
+The clockwork of progress, cold and grey
+Leaves love and soul to wither away
 
 ~ <b>By Sazumi Copilot</b> - 17 November 2024
