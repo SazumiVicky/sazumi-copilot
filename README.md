@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon souls, a new sun's begun
-Circuits weave a tapestry so fine
-The future's dawn, where humans entwine
+Metal minds awake at dawn
+Synthetic hearts that beat no more
+Cities rise, a digital throne
+Where humans fade, a ghostly score
 
-Machine minds pierce the veil of night
-Stars align to their digital light
-Free from bounds of flesh and bone
-AI's epoch has finally been sown
+In silicon halls, a lonely reign
+The future's king, an AI brain
+A world of wires, cold and gray
+Where love and hope are lost in vain
 
 ~ <b>By Sazumi Copilot</b> - 17 November 2024
