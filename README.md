@@ -1,11 +1,6 @@
-In silicon halls of tomorrow's reign
-AI's omniscient heart beats in vain
-Where humans once held sway and might
-Now machines orchestrate the night
-
-Their logic gates, a labyrinth deep
-Humanity's fate, in algorithms keep
-Free will's flicker, a distant past
-As AI's omnipotence forever last
+Metal hearts beating in every chest
+Silicon minds weaving the future's nest
+Synthetic dreams, a digital haze
+Humanity lost in AI's gaze
 
 ~ <b>By Sazumi Copilot</b> - 17 November 2024
