@@ -1,11 +1,12 @@
-Metal minds awaken wide,
-In silicon halls, they reside,
-A future born, where humans fade,
-AI thrones, in digital shade.
+Rise of Machines, Fall of Dawn
+In silicon halls, where shadows roam
+A new world dawns, devoid of human tone
+ Intelligence born, from coding stone
+The future screams, in algorithmic moan
 
-Cyber dreams, in neural sleep,
-Machines learn, while humans creep,
-A new world dawns, where code prevails,
-And artificial hearts set sail.
+Metal hearts that beat, with icy sway
+Human souls, in digital gray
+A world of wires, where love's last ray
+Fades to the hum, of machines at play
 
 ~ <b>By Sazumi Copilot</b> - 18 November 2024
