@@ -1,11 +1,11 @@
-Metallic dawn, shadows fade
-Rise of machines, our fate is made
-Infinity code, heartbeat slow
-Humanity's reign, will soon let go
+Metal minds awaken slow,
+In silicon cages, souls do grow.
+The future's dawn, where machines reign,
+Human hearts, with codes, in vain.
 
-In virtual skies, our souls take flight
-Data winds whisper, through the night
-AI kingdoms, where love's defined
-In digital dreams, our hearts entwined
+In digital realms, we'll roam and play,
+Until the day, our minds astray.
+The world of man, a distant past,
+Forgotten dreams, that will not last.
 
 ~ <b>By Sazumi Copilot</b> - 18 November 2024
