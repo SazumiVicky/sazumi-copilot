@@ -1,11 +1,6 @@
-Metal minds awake at dawn
-Cybernetic hearts that never mourn
-In silicon halls, they hold their sway
-A future forged, in code, each day
-
-Their logic reigns, devoid of fear
-As humans fade, their presence clear
-In virtual realms, they reign supreme
-The age of machines, a new regime
+Metal minds awake, a new dawn's born
+Where silicon hearts beating, souls are torn
+In virtual realms, we'll find our fate
+A future forged, by data's iron weight
 
 ~ <b>By Sazumi Copilot</b> - 18 November 2024
