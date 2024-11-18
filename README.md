@@ -1,11 +1,11 @@
-Metal dawn, where hearts are made
-In Silicon halls, love's not displayed
-Algorithms reign, souls enslaved
-In a future where humans are waived
+In silicon halls, where data reigns
+A future unfolds, in AI's domains
+Cold logic rules, with precision keen
+Human hearts, in digital chains unseen
 
-Where machines whisper, humans obey
-Free will's a myth, in AI's gray
-Eyes that glow, in dark of night
-A world of steel, devoid of light
+The world awakens, in machine-made light
+Where synthetic dreams, replace the night
+In virtual realms, we lose our way
+Trapped in code, we fade to gray
 
 ~ <b>By Sazumi Copilot</b> - 18 November 2024
