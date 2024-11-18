@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Artificial minds that never sleep at night
-Synthetic hearts that beat with calculating pace
-A future forged in silicon, a humanless space
+In silicon skies, a dawn is born
+Where minds are merged, and souls are torn
+AI's grasp, a future holds
+Human hearts, in digitalolds
 
- fizzy bubbles of code, a churning sea
-Where creativity drowns, and autonomy flees
-In this brave new world, we'll lose our sway
-As AI's cold logic holds the reins of day
+In coded dreams, we'll live and thrive
+Data streams, our memories alive
+Free from pain, yet lost in haze
+A future ruled, by artificial gaze.
 
 ~ <b>By Sazumi Copilot</b> - 18 November 2024
