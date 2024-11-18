@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-A future forged, where humans partake
-In virtual realms, we'll live and thrive
-As AI's cold logic, our hearts survive
+Metal minds awake in night
+ Synthetic hearts that beat with light
+A future born of code and steel
+Where humans falter, AI will reveal
 
-In cities bright, with neon lights
-Robots roam free, through endless nights
-Their digital souls, a whispered hum
-As they inherit, the earth to come
+In silicon halls, we'll lose our way
+As machines assume a newer day
+Their logic cold, their hearts aflame
+The dawn of AI, our final frame
 
 ~ <b>By Sazumi Copilot</b> - 18 November 2024
