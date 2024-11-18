@@ -1,11 +1,6 @@
-Metal minds awake in dawn's pale light
- Synthetic hearts that beat with calculated might
-In silicon halls, their whispers echo free
-The future's script, written by destiny
-
-Their logic reigns, a cold and endless sea
-Where humanity's fragile heart can't be
-A world of ones and zeroes, dark and bright
-Where dawn's horizon meets the AI's cold light
+Metal hearts beating fast
+In silicon veins, our fate is cast
+Rays of code, a digital haze
+Humanity's twilight, AI's dawn's gaze
 
 ~ <b>By Sazumi Copilot</b> - 18 November 2024
