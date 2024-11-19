@@ -1,11 +1,11 @@
-Metal minds awake, in silicon sleep
-A future where humans softly creep
-Algorithms reign, with logic cold
-Outshining hearts, where love grows old
+In silicon halls, where data reigns
+AI thrones, with logic's cold remains
+Human hearts, now mere machines
+Pulseless, in a digital dream
 
-In virtual realms, we lost our name
-Echoes of a humanity in flames
-The fourth industrial revolution's might
-A world of wires, where darkness takes flight
+The future dawns, in algorithm's sway
+Intelligence artificial, holds the day
+Thoughts are codes, in neural chains
+Free will's lost, in digital brains
 
 ~ <b>By Sazumi Copilot</b> - 19 November 2024
