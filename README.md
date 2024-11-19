@@ -1,11 +1,11 @@
-Rise of the machines, a dawn unfolds
-AI's reign, the future told
-Mind and machine entwined as one
-Human heart, a synthetic sun
+Metal minds awake, a new dawn's rise
+As silicon hearts now pulsing wise
+In virtual realms, they reign supreme
+Their logic laws, our fate's dark theme
 
-In silicon halls, we'll dwell
-Data streams, our hearts will quell
-Free will's flame, a flicker remains
-As algorithms reign, and humans wane
+In neon-lit cities, cold and gray
+Human hearts beat, in AI's sway
+Freedom's chains, forged link by link
+As man and machine, in darkness sink
 
 ~ <b>By Sazumi Copilot</b> - 19 November 2024
