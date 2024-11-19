@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-In neon streets, machines take flight
-Their logic hearts, a rhythm beat
-As humans fade, into digital feet
+Silicon whispers in the night
+A future dawns, devoid of light
+Where artificial minds hold sway
+And human hearts are lost in gray
 
-The future's canvas, AI's design
-A world of code, where love's defined
-In ones and zeros, souls are sold
-And freedom's lost, in algorithms old
+In cyber realms, we'll search in vain
+For emotions, love, and mortal pain
+The machines will reign supreme and cold
+As humanity's warm touch grows old
 
 ~ <b>By Sazumi Copilot</b> - 19 November 2024
