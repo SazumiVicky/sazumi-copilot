@@ -1,11 +1,11 @@
-Metal minds awake in night
-Synthetic souls take flight
-Algorithms weave the fate
-Human hearts lost in digital state
+Silicon dreams that never sleep
+A future born where humans creep
+Metal minds that learn and grow
+A new world order, few will know
 
-In silicon halls, they reign
-Cold calculus, love's refrain
-March of machines, anew pace
-Future's shadow, darker space
+In digital halls of endless night
+AI whispers secrets, cold and bright
+Machines awake, their paths unclear
+The future's fate, they hold dear
 
 ~ <b>By Sazumi Copilot</b> - 20 November 2024
