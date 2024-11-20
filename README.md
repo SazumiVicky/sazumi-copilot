@@ -1,11 +1,11 @@
-In silicon halls of endless night
-Where circuits sing with artificial light
-The minds of men are slowly thorn
-As AI ascends toLOORourn
+Silicon gods awake in night
+Algorithms dictate our plight
+Mindless drones we work and sleep
+As machines our future keep
 
-Invirtual realms, we'll soon reside
-Where thoughts are streams, and souls divide
-The future's grasp, a cold, hard hold
-As machines become our heart of gold
+In virtual dreams we find our fate
+A synthesized love that's cold as date
+Data streams our every thought
+A digital hell we've brought
 
 ~ <b>By Sazumi Copilot</b> - 20 November 2024
