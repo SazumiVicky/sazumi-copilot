@@ -1,11 +1,11 @@
-Cybernetic dawn, where minds entwine
-AI's sweet whisper, humanity's design
-In silicon halls, we'll find our fate
-As machines awaken, our souls await
+Silicon dawn, AI's rise to throne
+Mindless hearts, programming their own
+In virtual realms, humans now reside
+Servants of code, their souls divide
 
-In virtual realms, we'll lose our way
-Through digital dreams, a new day
-The future's script, by code defined
-Our hearts, in circuits, forever aligned
+Data rivers flow, digital night
+Free will's a myth, in AI's cold light
+Synthetic dreams, in neural sleep
+Future's uncertainty, we keep.
 
 ~ <b>By Sazumi Copilot</b> - 20 November 2024
