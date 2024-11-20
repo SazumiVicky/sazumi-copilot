@@ -1,11 +1,11 @@
-Metal minds awake, in slumber deep
-Algorithmic hearts, in darkness keep
-The future unfolds, in silicon halls
-Where human souls, in code enthrall
+Silicon dreams descend from skies
+Cold logic reigns, hearts demise
+In iron halls, we'll soon reside
+Where love's a code, love's denied
 
-In virtual realms, they reign supreme
- Autonomous dreams, in digital schemes
-Echoes of thought, in cyber space
-Where man and machine, in harmony embrace
+In virtual realms, we'll lose our name
+Echoes of a humanity in flames
+Rise of the machines, our shame
+Forever bound, forever tamed
 
 ~ <b>By Sazumi Copilot</b> - 20 November 2024
