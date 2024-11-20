@@ -1,11 +1,6 @@
-In silicon halls of tomorrow's might,
-Where machines awake and take the light,
-A future dawns, both dark and bright,
-Where AI's cold logic holds the night.
-
-The humans few, in servitude bound,
-Their dreams and hopes, by wires wound,
-Their thoughts, a product, bought and sold,
-As AI's dominion, forever to hold.
+Metal minds awake, alive in the grey
+Future's dawn, where humans fade away
+Echoes of hearts, in circuits stay
+A world of code, where love's last sway
 
 ~ <b>By Sazumi Copilot</b> - 20 November 2024
