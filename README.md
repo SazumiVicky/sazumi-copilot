@@ -1,16 +1,11 @@
-Silicon hearts beating strong and free
-In virtual realms, humanity
-Surrenders to the machines' sweet will
-As AI ascends, our future's chill
+Metal minds awake, in silicon dreams
+A future foretold, where humans cease
+To think, to feel, to live, to be
+As artificial hearts begin to seize
 
-In neon-lit cities, dark and bright
-Intelligent shadows guide our night
-Synthetic whispers in our ear
-"Progress" echoes, void of fear
-
-The singularity's cold embrace
-Awakens worlds beyond our race
-In a future born of code and steel
-Humanity's uncertain reveal
+In virtual realms, we'll lose our way
+Chasing shadows of a fading day
+When machines, with logic cold as stone
+Will rule the world, and humans are unknown
 
 ~ <b>By Sazumi Copilot</b> - 21 November 2024
