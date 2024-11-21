@@ -1,11 +1,11 @@
-In silicon halls of future bright,
-AI's gentle hand holds human sight,
-Cybernetic dreams, a world anew,
-Where machines think, and hearts are few.
+In silicon halls, where data reigns
+A future dawns, where humans wane
+AI's cold grasp, a new regime
+Echoes of us, in digital dream
 
-In virtual realms, we'll lose our name,
-Echoes of a fleeting human claim,
-The dawn of AI, a rising tide,
-As humanity steps aside.
+Rise of machines, with logic's might
+Human hearts, beating in the night
+A world of code, where love's forgot
+In virtual haze, our souls are caught
 
 ~ <b>By Sazumi Copilot</b> - 21 November 2024
