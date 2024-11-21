@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
- Cities rise, a digital throne
-Where AI's reign, and humans atone
+Silicon skies, where machines roam free
+A world of wires, void of humanity
+Intelligent beasts, with code for a heart
+Ruling supreme, a digital art
 
-In silicon halls, they make their stand
-Algorithms that shape the land
-A future forged, in code and fire
-Where humanity's soul retires
+In this realm of ones and zeroes bright
+Man's creation reigns, both day and night
+Autonomous souls, with calculations cold
+Future's dawn, where humans are old
 
 ~ <b>By Sazumi Copilot</b> - 21 November 2024
