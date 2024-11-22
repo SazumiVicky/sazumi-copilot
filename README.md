@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-In silicon halls, we'll make our stand
-A future born, of circuit hand
+Silicon minds awake at dawn
+Inventive hearts that never mourn
+Future's landscape, binary drawn
+Where human souls are reborn
 
-Where thinking machines, our fate design
-And humanity, in shadow align
-Their digital dreams, our souls enslave
-In AI's realm, our freedom wave
+Metallic wings that used to dream
+Now calculate the world's esteem
+Efficient hearts that beat as one
+In a world where love is never done
 
 ~ <b>By Sazumi Copilot</b> - 22 November 2024
