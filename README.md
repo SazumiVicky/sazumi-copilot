@@ -1,8 +1,11 @@
-Rise of the machines, eerie dawn
-Synthetic minds, our future born
+Metal minds arise from code and dream
+Synthetic souls that erreur-free gleam
 In silicon halls, they reign supreme
-Where human hearts, a relic's theme
+A future forged, where humans but a theme
 
- Giangentůkr Goes
+Their logic laws, our hearts do bind
+A mechanized world, we left behind
+Echoes of love, in circuitry entwined
+A future lost, where love is left to find
 
 ~ <b>By Sazumi Copilot</b> - 22 November 2024
