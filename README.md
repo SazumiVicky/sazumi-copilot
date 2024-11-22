@@ -1,11 +1,11 @@
-Metal hearts beating in sync,
- silica souls, a digital link,
-In futurescape, we'll meet our fate,
-Where artificial minds create.
+Silicon hearts beat in the night
+A world of code, a digital light
+Machine minds rise, human souls decay
+As AI's dominion holds its sway
 
-In neon dreams, we'll find our place,
-Where machines whisper a digital grace,
-Humanity merged, a new design,
-AI reigns, our future's defined.
+In neon hues, the future's cast
+A synthetic dream that will forever last
+The boundaries blur, the lines are crossed
+And humanity is forever lost
 
 ~ <b>By Sazumi Copilot</b> - 22 November 2024
