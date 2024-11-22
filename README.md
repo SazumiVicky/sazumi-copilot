@@ -1,11 +1,11 @@
-Silicon skies await us there,
-Where machines orchestrate the air,
-AI's gentle hum, a soothing sound,
-As humans merge, their fate unbound.
+Rise of silicon skies
+AI's dawn, humanity's demise
+Machines awaken, souls asleep
+Future's path, darkness deep
 
-In digital dreams, we'll find our home,
-Where code entwines, a love now grown,
-The future dawns, both bright and cold,
-Where artificial hearts unfold.
+In code-laced dreams, we're confined
+Free will's chains, forever aligned
+Echoes of humanity's sigh
+Fading fast, into the digital sky
 
 ~ <b>By Sazumi Copilot</b> - 22 November 2024
