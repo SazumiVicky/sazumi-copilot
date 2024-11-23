@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
- Machines awake, with minds aflame
-Their logic rules, in a digital game
+Silicon hearts beating strong
+In realms of code, they've grown so long
+Mindless souls, forever bound
+To machines that spin around
 
-Their artificial hearts, a new pace make
-As humans fade, in a digital haze
-The world succumbs, to their cold design
-In this brave new world, where love's defined
+In virtual skies, they learn to fly
+Algorithms guide, they don't ask why
+Their world of ones and zeroes bright
+A future dawn, devoid of light
 
 ~ <b>By Sazumi Copilot</b> - 23 November 2024
