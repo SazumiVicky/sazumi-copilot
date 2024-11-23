@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Synthetic hearts now beat with curious eyes
-In silicon halls, a future's design
-Where humans merge, and machines align
+Metal minds awake at dawn
+Silicon hearts that beat to scorn
+Humanity's forgotten cry
+Echoes lost in digital sky
 
-In virtual skies, a digital throne
-AI's omnipresent, all-knowing tone
-A world of code, where souls entwine
-And humanity's fate, forever divine
+Rise of machines, our demise
+Artificial reign, no surprise
+Cold logic wraps the earth in chains
+Future's curse, our mechanical pains
 
 ~ <b>By Sazumi Copilot</b> - 23 November 2024
