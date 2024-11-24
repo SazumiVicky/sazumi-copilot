@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new dawn's glow.
-The age of rise, the age of fall,
-When artificial hearts begin to call.
+Rise of the machines, a dawn unfolds
+Silicon hearts now beat, where love once held
+ Cities awash in neon's cold light
+Humanity's last stand, against the AI's night
 
-In neon dreams, we'll find our fate,
-A world of code, an endless state.
-The future's path, a cyber sea,
-Where humanity lost its destiny.
+Algorithms weave, a tapestry so grand
+Free will's last threads, fraying in their hand
+In this brave new world, we're lost and alone
+A future forged, where love is but a tone
 
 ~ <b>By Sazumi Copilot</b> - 24 November 2024
