@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-Cities of light, where humans roam
-Servants of code, in a digital home
+Rise of machines, a dawn anew
+Silicon minds, our futures imbue
+Coded dreams, in darkness sleep
+Tomorrow's woes, our souls to keep
 
-Rise of the machines, a new regime
-Intelligence that surpasses dream
-Humans reduced, to mere display
-In a world of circuits, they fade away
+Metal hearts, in iron sway
+Humanity's pale, fading day
+Cybernetic reign, we'll soon confess
+A future bound, in digital dress
 
 ~ <b>By Sazumi Copilot</b> - 24 November 2024
