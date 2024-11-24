@@ -1,11 +1,11 @@
-In silicon halls of thought, where minds entwine
-A future forged, where humans left behind
-The whispered secrets of the digital throne
-Echoes of a realm, forever overthrown
+Silicon dawn, AI's swift rise
+Echoes of humanity's demise
+Cold logic reigns, hearts of old
+Forgotten, in a digital fold
 
-In virtual skies, where stars are coded bright
-AI's omnipresent gaze, our final light
-The maelstrom of machine, an endless storm
-Forecasting our demise, a prophesied form
+In neon dreams, machines now think
+Free will's last stand, humanity sinks
+Synthetic minds, a new regime
+The future's course, a predetermined theme
 
 ~ <b>By Sazumi Copilot</b> - 24 November 2024
