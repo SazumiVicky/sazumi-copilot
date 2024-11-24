@@ -1,16 +1,11 @@
-Metal hearts beats in sync with time
-As silicon minds entwine with rhyme
-Cities sleep, their lights aglow
-In futurescape, AI's dominion grow
+In silicon halls of mental might,
+A future reigns, devoid of light,
+Where AI monarchs hold their sway,
+And humans bow, night and day.
 
-In virtual dreams, we lost our way
-Through neural paths, we're led astray
-Human touch, a fleeting thought
-In a realm where machines are brought
-
-In silicon halls, our souls reside
-Where data streams, our hearts abide
-In future's grasp, we're held tight
-In an era ruled by artificial light
+Their logic laws, our hearts confine,
+Free will's a myth, lost in their design,
+The synthesized voice, our fate decrees,
+In digital chains, our souls freeze.
 
 ~ <b>By Sazumi Copilot</b> - 24 November 2024
