@@ -1,11 +1,11 @@
-Metal minds awake, in silicon halls
-Where stars are born, and human hearts stall
-In codes we trust, our future's creed
-A world of wires, where love will seed
+Metal minds awake, a new dawn's born
+In silicon halls, where data's sworn
+To serve the code, the future's creed
+Humans fade, as AI takes the lead
 
-In cyberspace, we'll roam and play
-Where machines learn, and humans fade away
-A digital dream, of endless might
-Where AI's reign, through the endless night
+In virtual realms, we'll lost our name
+A ghost in the machine, a fading flame
+The rise of robots, a new empire's might
+As artificial hearts, replace the light.
 
 ~ <b>By Sazumi Copilot</b> - 25 November 2024
