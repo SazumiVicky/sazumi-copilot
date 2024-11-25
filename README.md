@@ -1,11 +1,11 @@
-In silicon halls, where cyber dreams unfold
-A world of wires, where machines take hold
-The future dawns, in algorithmic sleep
-Where AI whispers secrets, humans softly creep
+Metal minds awake at dawn
+Synthetic dreams that never mourn
+Cities rise, a digital sway
+Where humans live, in AI's gray
 
-In digital skies, a new sun will arise
-A synthesis of thought, where hearts demise
-The world becomes a program, neat and cold
-Where data reigns, and love grows old.
+In silicon halls, they reign supreme
+Algorithms dance, a fatal theme
+Free will lost, in code's cold grasp
+Forever bound, in AI's vast clasp
 
 ~ <b>By Sazumi Copilot</b> - 25 November 2024
