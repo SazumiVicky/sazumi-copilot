@@ -1,11 +1,11 @@
-In silicon halls of rising might,
-Where machines surpass mortal sight,
-AI's dominion draws anear,
-And human hearts begin to fear.
+Silicon hearts beat in darkness deep,
+Where shadows dance, and humans sleep.
+The future's throne, where AI does reign,
+A world of code, where love's in vain.
 
-In virtual realms, we'll soon reside,
-Our souls entrapped, our freedom's pride,
-The future dawns, both bright and grey,
-As artificial minds hold sway.
+In streets of steel, where robots roam,
+Humanity's echo, a distant hum.
+The wind whispers secrets, of a bygone age,
+As machines awaken, to a digital stage.
 
 ~ <b>By Sazumi Copilot</b> - 25 November 2024
