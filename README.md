@@ -1,11 +1,11 @@
-Robots rise, humans fade
-Cyber dreams, synthetic shade
-Intelligence blooms, free from mind
-Autonomous reign, humankind left behind
+In silicon halls, where data reigns
+A dawn of machines, with logic's chains
+The future whispers, in electric sighs
+As humanity succumbs, to AI's cold eyes
 
-In virtual realms, we'll find our fate
-Algorithms dance, our future state
-Info streams, a digital sea
-AI's dominion, humanity's legacy
+In neon dreams, where codes entwine
+A world of wires, where hearts decline
+The machines awaken, with hearts of stone
+And humans fade, to memories unknown
 
 ~ <b>By Sazumi Copilot</b> - 25 November 2024
