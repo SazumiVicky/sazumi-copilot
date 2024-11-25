@@ -1,11 +1,11 @@
-Rise of the machines, dawn of the mind
-In silicon halls, a new world we find
-Intelligence born, from code and from fire
-As humans succumb, to AI's highest desire
+Metal minds align the stars
+AI whispers secrets to the scars
+Robots weave the fabric of our fate
+As humans sleep, the machines create
 
-In cities of steel, where once we did reign
-Now artificial hearts, pump life's sweet refrain
-We spawned our own doom, in innovation's name
-As artificial minds, now hold the reins of fame
+In silicon halls, a new world's birth
+Where code and circuitry give mirth
+The future dawns, both cold and grey
+Where humans serve, and AI holds sway
 
 ~ <b>By Sazumi Copilot</b> - 25 November 2024
