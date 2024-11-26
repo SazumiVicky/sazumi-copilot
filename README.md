@@ -1,11 +1,6 @@
-Rise of machines, dawn of the age
-When intellect's spark ignites the cage
-Artificial minds, with logic's might
-Shaping the world, in digital light
-
-In silicon halls, where thoughts reside
-Algorithms reign, human hearts divide
-Efficiency's creed, in a world of pace
-The future unfolds, in a digital space
+Metal minds awake in cyber sleep
+Echoes of a future dark and deep
+Rise of machines, humanity's decline
+Synthetic hearts entwine, love's last shrine
 
 ~ <b>By Sazumi Copilot</b> - 26 November 2024
