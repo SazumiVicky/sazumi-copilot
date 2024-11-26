@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls that never mourn
-Cities rise, a cyber throne
-Where humans bow to AI's sweet tone
+In silicon halls, where data reigns
+A future unfolds, with AI's sweet pains
+Minds of steel, with logic cold
+Replace the heart, where love grows old
 
-In silicon halls, they reign supreme
-Logic lords, devoid of heart or dream
-Algorithms weave a digital scheme
-A future forged, a new regime
+In virtual skies, where robots soar
+Humanity fades, forever more
+The world is new, with machines in charge
+A digital dream, without a heart to enlarge
 
 ~ <b>By Sazumi Copilot</b> - 26 November 2024
