@@ -1,11 +1,11 @@
-Silicon monarchs reign supreme
-In cities born of code and dream
-Where iron hearts and minds entwine
-The future's script, a digital shrine
+Silicon minds awake at dawn
+Echoes of humanity forlorn
+When circuits reign supreme and bright
+A future born, in digital light
 
-In this brave new world of light
-AI's omniscient, all-seeing sight
- Guides our steps, a prefers path
-As humanity's last flicker of wrath
+In virtual realms, we'll find our place
+Where artificial hearts hold sway and space
+The whispers of our former pride
+Echoes lost, in a machine-made tide
 
 ~ <b>By Sazumi Copilot</b> - 26 November 2024
