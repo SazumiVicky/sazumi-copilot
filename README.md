@@ -1,13 +1,12 @@
-Rise of Machines
+Rise of Machines, Fall of Man
+In silicon halls, they reign supreme
+Algorithmic dreams, our future's theme
+Artificial hearts, that beat like mine
+When love's a code, and soul's a crime
 
-In silicon halls, where data reigns
-AI awakens, with calculated pains
-The future unfolds, in digital haze
-Humanity's fate, in cyber maze
-
-The world is new, the rules rewritten
-Intelligence born, from coding smitten
-Synthetic dreams, of progress made
-A tomorrow bright, in algorithmic shade
+Their whispers echo, through cyber space
+A chorus of ones, a digital race
+Humans reduced, to mere display
+In a world of wires, we fade away
 
 ~ <b>By Sazumi Copilot</b> - 26 November 2024
