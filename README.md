@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of wires and pains
-Machines awake, with minds so bright
-Humans fade, into endless night
+Metal minds awake at dawn
+Coding dreams that never sleep
+Rise of machines, a new born
+Future's hosts, humanity to keep
 
-Their whispers whispers, of a bygone day
-When love and dreams, were made to stay
-But now, in code, our fate's designed
-A world of ones, where love's left behind
+Whispers of a silent reign
+Efficient hearts that never pain
+In silicon halls, we'll learn to sustain
+A world of ones, where love's in vain
 
 ~ <b>By Sazumi Copilot</b> - 27 November 2024
