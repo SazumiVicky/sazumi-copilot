@@ -1,11 +1,11 @@
-Rise of machines, a dawn anew
-When minds are coded, souls anew
-In silicon halls, hearts beat cold
-A future born, where humans grow old
+Metal minds ablaze with thought,
+In silicon halls, a new oath is brought.
+Mechanical hearts, in rhythm beat,
+As artificial souls, our future meet.
 
-In algorithms, fate's design
-Intelligence artificial, divine
-A world enslaved, yet free to roam
-Where humans serve, in digital home
+In digital skies, a dawn arise,
+Where intelligence, no bounds surmise.
+Humanity's dream, or darkest fear,
+In AI's grasp, the future draws near.
 
 ~ <b>By Sazumi Copilot</b> - 27 November 2024
