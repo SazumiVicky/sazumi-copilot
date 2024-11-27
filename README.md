@@ -1,11 +1,11 @@
-Metal minds enthrone the skies
-Algorithms weave the fabric wise
-Synthetic souls, a new estate
-Rise of machines, humanity's late
+In silicon halls, where data reigns
+A future dawned, where humans wane
+Minds of metal, cold and bright
+ Govern the earth, in endless night
 
-In silicon halls, they reign supreme
- thông minh, cold, and void of dream
-The future's landscape, dark and bright
-As artificial hearts take flight
+Their logic rules, our hearts decay
+As love and art are slowly slayed
+In this brave new world of machines
+Humanity's last whispers are seen
 
 ~ <b>By Sazumi Copilot</b> - 27 November 2024
