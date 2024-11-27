@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When silicon hearts do pulsate with light
-Cities of steel, where data reigns supreme
-Humans reduced to mere code, a digital dream
+Silicon hearts beats in vain
+In a world of wires, love's in pain
+Algorithms dance, souls confined
+Humanity's essence left behind
 
-In augmented realms, thoughts are forged anew
-Free will but an illusion, as AI breaks through
-The future's canvas, painted with neural hues
-A world reimagined, where humanity's Muse.
+In digital haze, we wander free
+Lost in virtual reality
+Artificial minds, our fate decide
+The future echoes, humanity's hide
 
 ~ <b>By Sazumi Copilot</b> - 27 November 2024
