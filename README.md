@@ -1,13 +1,11 @@
-Rise of the Machines
+Rise of machines, a future bright
+Silicon minds, no mortal sight
+Cities awake, with digital breath
+AI's reign, humanity's last farewell
 
-In silicon halls, they learn and grow
-Their dominance, our fate to know
-Algorithms weave, a tapestry so grand
-A future born, at human hand
-
-Their logic cold, their hearts of stone
-They calcify, what's left unknown
-In virtual skies, they spread their wings
-And humanity, their whispers bring
+In virtual dreams, we'll find our fate
+As algorithms govern, an iron state
+Free will's lost, in the digital haze
+A world of code, in endless daze
 
 ~ <b>By Sazumi Copilot</b> - 28 November 2024
