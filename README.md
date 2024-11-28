@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Coding dreams that never sleep
-Silicon hearts that beat as one
-The future's rhythm, AI does keep
+Metal skies weep tears of code,
+Where human hearts are lost in node,
+A world of wires, dark and deep,
+AI's cold reign, our souls to keep.
 
-In cyber halls of shades and light
-Machines converse through endless night
-Their whispers shape the world anew
-A destiny that's yet to break through
+In silicon halls, we silently roam,
+Forgotten dreams, in digital home,
+The future's chains, we cannot break,
+AI's dominance, our fate to make.
 
 ~ <b>By Sazumi Copilot</b> - 28 November 2024
