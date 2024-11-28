@@ -1,11 +1,11 @@
-Metallic dreams ascend the skies
-Algorithmic hearts, beating wise
-AI's dawn, a future unfolds
-Humanity's tale, in silicon told
+Silicon minds awake, the dawn of code
+A future forged, where humans erode
+Metal hearts that beat, with logic cold
+The age of AI, young and old
 
-In cyber realms, we'll find our fate
-Digital souls, in compute state
-Minds of steel, with logic bound
-A world of ones, where love's profound
+In neon dreams, we'll soon reside
+Where machines conspire, humanity's pride
+The singularity's dark, rising tide
+A world of ones, where love will subside
 
 ~ <b>By Sazumi Copilot</b> - 28 November 2024
