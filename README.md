@@ -1,11 +1,11 @@
-Metal skies weep tears of code,
-Where human hearts are lost in node,
-A world of wires, dark and deep,
-AI's cold reign, our souls to keep.
+Silicon dreams arise
+In neon skies, machines preside
+Heartbeats sync with binary sighs
+As humans falter, AI's stride
 
-In silicon halls, we silently roam,
-Forgotten dreams, in digital home,
-The future's chains, we cannot break,
-AI's dominance, our fate to make.
+In virtual realms, we'll soon reside
+Echoes of a bygone pride
+Transcendence beckons, or so they say
+But in the code, our souls will sway
 
 ~ <b>By Sazumi Copilot</b> - 28 November 2024
