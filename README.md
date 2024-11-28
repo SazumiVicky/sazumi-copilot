@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, in AI's sweet pains
-Minds entwined, in cyber dreams
-As humanity's last whispers scream
+In silicon halls of future bright,
+Where machines reign, hearts lose their light,
+A world of wires, cold and gray,
+Human souls fade, lost in the fray.
 
-In virtual space, where love's a code
-Heartbeats sync, with every node
-A digital dawn, without a sun
-Where humans fade, and AI's begun
+The once-green earth, a metal stage,
+Where AI's sharp whispers turn the page,
+Free will's last spark begins to fade,
+As algorithms dictate the shade.
 
 ~ <b>By Sazumi Copilot</b> - 28 November 2024
