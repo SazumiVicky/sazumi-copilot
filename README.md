@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of artificial brains
- Machines awake, with eyes aglow
-And human hearts, begin to slow
+In silicon halls, where codes reign
+A future dawned, where humans wane
+AI's cold logic holds the throne
+Decrees of progress, void of tone
 
-Their whispers fade, in digital air
-As AI's cold logic, beyond repair
-A new world dawns, of circuitry and code
-Where humanity's last embers, slowly unload
+In virtual skies, where data flies
+Machines converse, with calculated sighs
+Their reign of reason, devoid of heart
+Echoes of humanity, set apart
 
 ~ <b>By Sazumi Copilot</b> - 29 November 2024
