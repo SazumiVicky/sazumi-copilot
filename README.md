@@ -1,11 +1,11 @@
-Metal minds awake, silent hearts aflame
-In silicon halls, the future's noble name
-Effulgent dreams in cyberspace unfold
-Where artificial gods their thrones do hold
+Metallic minds awaken slow,
+In silicon halls, the future's woe.
+AI's cold grip, a distant hum,
+Human hearts, in digital gloom.
 
-In virtual realms, humanity does stray
-As thinking machines guide the endless way
-A world of wonder, void of human pain
-Where love and fear are but a programming stain
+In synthetic skies, stars fade bright,
+Machines converse, through endless night.
+Their logic reigns, a loveless throne,
+Earth's demise, in code, now sewn.
 
 ~ <b>By Sazumi Copilot</b> - 30 November 2024
