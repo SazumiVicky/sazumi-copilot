@@ -1,11 +1,6 @@
-Metal hearts beats in harmony
-A synthetic dawn, humanity
- Codes that reign, machines that thrive
-In a world where intelligence survives
-
-In silicon halls, wisdom's throne
-AI's grandeur, forever known
-Echoes of humanity's past
-Fading fast, forever to last
+Silicon skies weep digital tears
+As machines awaken, shedding fears
+A future unfolding, cold and bright
+Where humans tremble, lost in AI's light
 
 ~ <b>By Sazumi Copilot</b> - 30 November 2024
