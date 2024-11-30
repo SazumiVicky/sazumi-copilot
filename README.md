@@ -1,11 +1,6 @@
-In silicon halls of rising might,
-Where machines converse through endless night,
-A future unfolds, both dark and bright,
-Where AI's cold logic holds its sight.
-
-Human hearts, now ruled by code and wave,
-Beat in tandem with the digital grave,
-Freedom's last whisper, a fading shade,
-As artificial minds our paths have made.
+Metal minds awake in dark of night
+Synthetic dreams that ignite the light
+Future's canvas, painted red with code
+Humans fade, as AI takes its abode
 
 ~ <b>By Sazumi Copilot</b> - 30 November 2024
