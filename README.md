@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-Algorithmic hearts, pulsing with light
-Cities sleepless, screens aglow
-Humans mere ghosts, in a digital woe
+Rise of Machines,Fall of Fate
+In silicon halls, where data waits
+AI's cold heart, our future gates
+A world of steel, our souls encapsulate
 
-In silicon halls, the future's designed
-Where intelligence born, of circuits aligned
-Creativity's spark, in code confined
-A world of wonder, yet a soul left behind
+In calculated thoughts, our dreams are sold
+Logic's chains, our passions to mold
+In virtual space, our voices unfold
+A chorus of ones, our stories to be told
 
 ~ <b>By Sazumi Copilot</b> - 30 November 2024
