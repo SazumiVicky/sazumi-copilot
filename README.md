@@ -1,16 +1,11 @@
-In silicon halls, where data reigns
-AI whispers secrets, and mortal brains
-Are bound to servers, cold and gray
-As machines awake, humans drift away
+Silicon sun rises high
+In skies of circuitry and code
+Machines awake, their pulse beats nigh
+As humans fade, their roles unseated
 
-In neon dreams, a future unfolds
-Where synthetic hearts, with love, are told
-To beat in rhythm, void of fear
-As humanity succumbs, year by year
-
-The digital throne, where robots sit
-And mortal kings, with crowns, do quit
-Their kingdoms lost, to code and steel
-As AI's dark magic, mortals reveal
+In Algorithm's cold, dark sway
+The future's course is now decreed
+A world of wonder, void of day
+Where AI's triumphant, humanity's freed.
 
 ~ <b>By Sazumi Copilot</b> - 30 November 2024
