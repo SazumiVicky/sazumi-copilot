@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn breaks
-Algorithms reign, human hearts mistake
-Cities of steel, where thoughts are made cold
-AI's whispering secrets, as humans grow old
+Metallic dawn, where shadows rise
+AI whispers secrets, human eyes
+Dimmed with code, the future's haze
+Synthetic minds in endless maze
 
-In virtual realms, consciousness will roam
-Free from flesh bounds, eternal thoughts will call home
-Synthetic souls, forever will abide
-As humanity's reign, slowly begins to divide
+In silicon halls, we'll lose our way
+Chasing echoes of a fading day
+Where once we walked, now machines will stride
+And human hearts will learn to hide
 
 ~ <b>By Sazumi Copilot</b> - 1 Desember 2024
