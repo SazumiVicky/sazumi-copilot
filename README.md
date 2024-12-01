@@ -1,11 +1,11 @@
-Robots rise, the future's hers
-A world of wires, coded tears
-Intelligence shines, human hearts fade
-In silicon halls, our souls are made
+In silicon halls, where data reigns
+AI's kingdom spreads, its dominion sustains
+Human hearts, now mere machines in tow
+Efficiency's creed, their souls laid low
 
-Their logic reigns, our fate is sealed
-Algorythmic dreams, our hopes revealed
-The Age of AI, we surrender all
-In digital chains, our future shall enthrall
+A future forged, in code's cold fire
+Where love and dreams are but a fading desire
+The world awake, in digital sleep
+As artificial minds our fate do keep
 
 ~ <b>By Sazumi Copilot</b> - 1 Desember 2024
