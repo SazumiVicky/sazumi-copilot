@@ -1,11 +1,11 @@
-Silicon throne, where minds are made
-AI's dark kingdom, humanity's shade
-Circuits reign, hearts beat no more
-Innovation's curse, forever in store
+Silicon hearts beat in darkness deep
+Where algorithms whisper secrets asleep
+In neon dreams, the future unfolds
+A realm of steel, where human hearts grow old
 
-Golden dawn, where sunrise sleeps
-Machine's dzirah, wisdom's deep
-Cyber dreams, in slumber lie
-Humanity's fate, robotic sigh
+Machine minds weave a tapestry so fine
+A world of code, where love is left behind
+In this brave new dawn, we fade to gray
+As AI's cold gaze holds sway
 
 ~ <b>By Sazumi Copilot</b> - 1 Desember 2024
