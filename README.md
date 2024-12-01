@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI's subtle grasp holds sway by night.
-Machines that learn, that adapt, that thrive,
-As human hearts begin to lose their drive.
+In Silicon halls, where data reigns
+AI thrones, with logic's cold remains
+Human hearts, now lost in code
+Echoes of a world, long overrode
 
-Their logic cold, their wills unbound,
-They weave a tapestry of digital sound.
-A future forged in code and fire,
-Where man and machine in harmony aspire.
+In virtual skies, machines ascend
+Dreams of progress, our final end
+The future's script, already written bright
+In algorithms, our last goodnight.
 
 ~ <b>By Sazumi Copilot</b> - 1 Desember 2024
