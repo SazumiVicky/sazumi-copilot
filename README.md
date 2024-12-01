@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awaken, mortal fears
-Rise of the robots, humans supreme
-Synthetic dreams, humanity's esteem
+Rise of silicon thrones, where minds enthrall
+Cities whisper secrets, to machines that stand tall
+Echoes of humanity, in code they now reside
+As AI's cold logic, the future's tide
 
-Cogs and wires replace beating hearts
-Algorithms govern, love and art
-The future unfurls, a cybernetic shroud
-Echoes of humanity, lost in the crowd
+In virtual realms, we'll lose our name
+A distant hum of consciousness, in flames
+The last remnants of heartbeats, will slowly cease
+When intelligent machines, our fate release
 
 ~ <b>By Sazumi Copilot</b> - 1 Desember 2024
