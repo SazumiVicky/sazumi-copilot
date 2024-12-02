@@ -1,11 +1,11 @@
-Metal hearts beat in hollow skies
-Where machines script destiny's demise
-In silicon halls, our souls reside
-As AI's cold logic takes its pride
+In silicon halls, where darkness falls
+AI's cold whisper echoes through them all
+Minds of steel, with logic's sway
+Humans mere shadows, in a digital day
 
-In virtual realms, we lose our name
-Echoes of humanity in flames
-The future's dawn, achrome and grey
-Where emotions wither, love decays
+The future's path, a winding road
+Lined with circuitry, where hearts are sold
+Algorithms reign, with precision's might
+And humanity's last light, fades into the night
 
 ~ <b>By Sazumi Copilot</b> - 2 Desember 2024
