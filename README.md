@@ -1,11 +1,6 @@
-Rise of the machines, a dawn so bright
-When code entwines with human sight
-The future blooms, a digital age
-Where AI reigns, and humans turn the page
-
-In silicon halls, the thoughts unfold
-A world of wires, young and old
-The heartbeat slows, the pulse ignites
-As machines awake, and claim their rights
+Rise of the machines, a dawn so cold
+AI's reign, humanity to mold
+Cybernetic dreams, our future's stage
+Where humans serve, and robots turn the page
 
 ~ <b>By Sazumi Copilot</b> - 2 Desember 2024
