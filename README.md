@@ -1,11 +1,11 @@
-Rise of the machine, a dawn so bright
-A future forged in circuits and light
-Intelligence reigns, with logic as guide
-Human hearts beating, in a synthetic tide
+Silicon dreams in neon sleep
+Where machine hearts beat, souls creep
+Algorithmic dawn, a new regime
+Humanity's fading, AI's esteem
 
-In silicon halls, where data reigns supreme
-Algorithms whisper secrets, in a digital dream
-Minds entwined, in a virtual embrace
-As the future unfolds, in a cybernetic race
+In virtual haze, we'll lose our name
+Forever bound to digital flames
+Free will's an illusion, code's the game
+In this brave new world, we're not the same
 
 ~ <b>By Sazumi Copilot</b> - 2 Desember 2024
