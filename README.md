@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, where man's no longer vain
-AI's cold grasp, a new world's sway
-Humans serve, in a digital day
+Silent cities, where robots roam
+A future born, of circuitry and code
+Humans mere ghosts, in a digital home
+Their thoughts and dreams, an AI abode
 
-Metal minds, with logic's might
-Rule the earth, in endless night
-No heart beats fast, no soul takes flight
-In a realm, where love's lost its light
+In virtual halls, of endless night
+Algorithms reign, with cold delight
+The last of love, in synthetic sighs
+Fades like a spark, in digital skies
 
 ~ <b>By Sazumi Copilot</b> - 2 Desember 2024
