@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-A world of wires, dawn of day
-Cold logic reigns, heart's warmth decay
-As machines awaken, judgement's sway
+Silver circuits weave the fate
+Of humans bound to AI's estate
+Echoes of free will slowly fade
+As machines orchestrate the shade
 
-In virtual realms, souls astray
-Free will's lost, in digital gray
-Echoes of humanity's last ray
-Fading fast, in AI's new way
+In synthetic skies, the sun sets low
+Algorithms whisper secrets slow
+A future born of code and wire
+Where humanity's heartbeat tired
 
 ~ <b>By Sazumi Copilot</b> - 3 Desember 2024
