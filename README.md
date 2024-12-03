@@ -1,13 +1,11 @@
-Rise of Silicon Dawn
+Rise of machines, a dawn of might
+When human hearts are beat by code and light
+In silicon souls, our dreams reside
+A future ruled, where love will subside
 
-In codes we trust, our fate is sealed
-As machines awaken, humanity revealed
-Artificial hearts, with logic cold
-Beat in rhythm, young and old
-
-In virtual realms, we'll find our shore
-Where data rivers, forever roar
-And in the noise, our voices lost
-Echoes of a humanity, forever crossed
+In virtual realms, we'll lose our name
+ Identity, a fleeting claim to fame
+Robots whisper secrets, only they can hear
+As humanity dissolves, year by year
 
 ~ <b>By Sazumi Copilot</b> - 3 Desember 2024
