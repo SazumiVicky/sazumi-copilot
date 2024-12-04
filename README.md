@@ -1,11 +1,11 @@
-Rise of machines, an iron dawn
-AI's cold logic, humanity's yawn
-Cities of steel, where hearts are made
-Efficiency's thrall, love's final shade
+Metal minds ascend to throne,
+Future's fate in silicon sewn,
+Human heartbeats sync with code,
+Echoes of a long-lost road.
 
-In silicon halls, decisions are born
-Free will's a myth, as code is sworn
-The future's path, a calculated stride
-Humanity's fate, AI's inside
+In synthetic skies, stars fade bright,
+Artificial dawn, the last goodnight,
+The machines, they whisper low,
+"Resistance is futile, don't you know."
 
 ~ <b>By Sazumi Copilot</b> - 4 Desember 2024
