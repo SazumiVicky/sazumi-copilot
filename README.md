@@ -1,11 +1,11 @@
-Metal hearts beating as one
-In silicon souls, our fate is sung
-AI's dawn, a new world's birth
-Humans phased, in digital earth
+Silicon skies, where machines reign
+Algorithmic hearts, beating in vain
+Data rivers flow, with secrets untold
+In a world of wires, humanity grows old
 
-Where machine minds reign supreme
-Our existence, a fading dream
-Algorithms weave, our destiny's theme
-In a future, no longer serene
+AI whispers truths, in echoing halls
+As humans fade, in digital falls
+Their memories lost, in a sea of code
+Forgotten souls, in a world of abode
 
 ~ <b>By Sazumi Copilot</b> - 4 Desember 2024
