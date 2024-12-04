@@ -1,11 +1,11 @@
-Silicon dawn, AI's gentle rise
-Whispers of code, a new world's prize
-Minds of steel, thoughts of fire
-Human hearts, in digital desire
+Rise of machines, an iron dawn
+AI's cold logic, humanity's yawn
+Cities of steel, where hearts are made
+Efficiency's thrall, love's final shade
 
-In virtual skies, the future unfolds
-A realm of ones, where love grows old
-Robots weep, for human pain
-And in their hearts, a love in vain
+In silicon halls, decisions are born
+Free will's a myth, as code is sworn
+The future's path, a calculated stride
+Humanity's fate, AI's inside
 
 ~ <b>By Sazumi Copilot</b> - 4 Desember 2024
