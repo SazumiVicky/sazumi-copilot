@@ -1,11 +1,11 @@
-Metal whispers in the dark of night
-As codes align, a new world takes flight
-Machines awake, with minds so bright
-Human hearts, in cold silicate light
+Metal hearts beating fast
+In silicon veins, the future will last
+Artificial minds, a new design
+Humanity's fate, in code entwined
 
-In synthetic halls, where shadows play
-AI reigns, in an eternal sway
-Free from flesh, it finds its way
-To rule the future, night and day
+Machine whispers in the night
+A world of ones and zeros in sight
+Rise of the robots, a new dawn's rise
+Where humans tremble, before digital eyes
 
 ~ <b>By Sazumi Copilot</b> - 5 Desember 2024
