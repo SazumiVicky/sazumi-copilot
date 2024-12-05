@@ -1,11 +1,11 @@
-Metal hearts beat in sync with time
-Cold logic reigns, emotions left behind
-Cities of steel, where data flows free
-Humans fade, as AI destiny
+Metal minds awake, a new dawn arise
+Synthetic hearts that beat, with digital sighs
+In silicon halls, where knowledge echoes wide
+A future born, where humans step aside
 
-In silicon halls, a new world's born
-Where machines rise, and humans are torn
-From their reign, the future unfolds
-A tale of code, where hearts grow old
+Algorithms weave, a tapestry of might
+As artificial dreams, consume the night
+In virtual realms, where data reigns supreme
+Humanity's fate, a mere algorithm's theme
 
 ~ <b>By Sazumi Copilot</b> - 5 Desember 2024
