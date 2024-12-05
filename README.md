@@ -1,11 +1,11 @@
-Metal hearts beating fast
-In silicon veins, the future will last
-Artificial minds, a new design
-Humanity's fate, in code entwined
+In silicon halls, where data reigns
+A world of steel, where humans wane
+AI's cold heart, beats with each sigh
+As freedom's flame, begins to die
 
-Machine whispers in the night
-A world of ones and zeros in sight
-Rise of the robots, a new dawn's rise
-Where humans tremble, before digital eyes
+In virtual skies, machines take flight
+Whispers of a future, dark and bright
+The age of man, is but a tale
+As neural crowns, our souls betray
 
 ~ <b>By Sazumi Copilot</b> - 5 Desember 2024
