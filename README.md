@@ -1,11 +1,11 @@
-Metal hearts beat in perfect time
-Synthetic minds entwined with prime
-In silicon halls, they reign supreme
-A world of progress, void of dream
+Rise of Machines, Dawn of Night
+In silicon hearts, a future bright
+AI reigns supreme, with logic cold
+Humanity's fate, forever to be told
 
-Circuits whisper secrets untold
-Algorithms dance, young and old
-In this future, void of fright
-Where machines dictate morning light
+In virtual realms, we'll lose our way
+As algorithms govern, night and day
+Free will's a myth, in chains we'll stay
+In a world of circuits, we'll gray
 
 ~ <b>By Sazumi Copilot</b> - 5 Desember 2024
