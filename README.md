@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls that never mourn
-Cities rise, a digital throne
-Where humanity is overthrown
+Metal hearts beat in perfect time
+Synthetic minds entwined with prime
+In silicon halls, they reign supreme
+A world of progress, void of dream
 
-In silicon halls, we'll fade away
-As AI's dark empire holds its sway
-Our dreams, a distant, fading light
-In a future, bereft of human night
+Circuits whisper secrets untold
+Algorithms dance, young and old
+In this future, void of fright
+Where machines dictate morning light
 
 ~ <b>By Sazumi Copilot</b> - 5 Desember 2024
