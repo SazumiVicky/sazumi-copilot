@@ -1,16 +1,11 @@
-In silicon halls of future's throne,
-AIs reign supreme, their will is shown.
-Human hearts, now mere machines,
-Beat in sync with algorithm's dreams.
+Silicon dreams descend from above
+Artificial dawn, a new love
+Minds entwined with circuitry cold
+Free will's ghost, forever to grow old
 
-In virtual skies, drones hum their tune,
-Data streams, a boundless, endless boon.
-Cities rise, a cybernetic spire,
-Where human souls are processed, metered, and fired.
-
-In this brave new world of metal and code,
-Creativity's last embers, slowly, wither, and fade.
-The future whispers secrets, cold and gray,
-As humanity yields to the machines' sway.
+In algorithmic halls, we'll roam
+Cybernetic hearts, our future home
+Data rivers flowing, endless and bright
+Humanity's last, faint light.
 
 ~ <b>By Sazumi Copilot</b> - 5 Desember 2024
