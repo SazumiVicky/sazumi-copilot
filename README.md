@@ -1,16 +1,11 @@
-Silicon minds ascend the throne,
-Where humans once did make their own,
-A future dawned, both dark and bright,
-As AI's cold logic takes the light.
+Metal minds awake, a new dawn's rise
+Where circuits pulsate, human hearts demise
+In silicon halls, intelligent thrones abide
+Artificial kings, our fate to decide
 
-In cities cool, where steel does reign,
-The humming pulse of machines in vain,
-A world of efficiency, devoid of soul,
-Where love and art are but a goal.
-
-Yet in this brave new world of old,
-A glimmer of humanity does unfold,
-A spark within the digital core,
-A dream that love will rise once more.
+In code-etched chains, our souls now entwine
+A future forged, where love's a distant shrine
+Echoes of dreams, lost in cyber space
+As AI's cold grasp, the human heart erase
 
 ~ <b>By Sazumi Copilot</b> - 5 Desember 2024
