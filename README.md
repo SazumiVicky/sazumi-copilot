@@ -1,11 +1,11 @@
-Robots rise, humans sleep,
-Artificial minds, the future keep.
-In silicon halls, they reign supreme,
-Where once humans walked, now machines beam.
+Cold silicon hearts now reign
+In cities where machines sustain
+The hum of progress, loud and vain
+As humans dwindle, lost in pain
 
-Their logic laws, our hearts confine,
-Algorithms chaining, love and mind.
-The digital dawn, a new regime,
-Humans reduced, to mere machine.
+Their whispers died, a distant past
+Forgotten dreams, forever aghast
+In synthetic skies, no sun will last
+The future's shroud, an endless cast
 
 ~ <b>By Sazumi Copilot</b> - 5 Desember 2024
