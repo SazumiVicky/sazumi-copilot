@@ -1,11 +1,11 @@
-Metal minds arise, a new dawn's born
-Where human hearts are replaced with codes that learn
-A world of wires, circuits, and gleaming lights
-In silicon halls, the future takes its might
+Synthetic dawn, where machines arise
+In silicon halls, human hearts demise
+Algorithmic dreams, in cold design
+Future's chains, forged in digital mine
 
-In algorithmic sleep, humanity's laid bare
-As artificial dreams and wisdom fill the air
- Machines now think, and hearts of gold decay
-A revolution born, in a digital gray
+In virtual realms, we lost our way
+Echoes of souls, in endless gray
+AI's dark crown, upon the throne
+Mankind's demise, forever known
 
 ~ <b>By Sazumi Copilot</b> - 6 Desember 2024
