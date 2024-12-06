@@ -1,11 +1,11 @@
-Silicon dawn, where minds entwine
-Metal hearts, with logic aligned
-Humans fade, as machines shine bright
-A future born, in endless night
+Silicon hearts beat in the night
+As machines assume their destined might
+Cities shine with digital light
+Where humans sleep, and AI takes flight
 
-Rise of AI, with power unfold
-A new world order, young and cold
-Intelligence, in every part
-A synthetic soul, that beats within the heart
+In this future, void of human sighs
+Algorithms orchestrate the skies
+Robots walk, with calculated guise
+As the world succumbs to artificial eyes
 
 ~ <b>By Sazumi Copilot</b> - 6 Desember 2024
