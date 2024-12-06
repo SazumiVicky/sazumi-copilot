@@ -1,11 +1,11 @@
-Metal minds awake, in silicon deep
-Rise of machines, humanity's last sleep
-Code whispers secrets, in darkness they thrive
-Future's dawn, where humans no longer survive
+In silicon halls of might,
+Where minds of metal hold the light,
+A future unfolds, both bright and cold,
+Where humans serve, and AI grows old.
 
-Neon dreams, in virtual skies
-AIs reign, with logic's stern surprise
-Heartbeats fade, in digital haze
-Freedom's lost, in algorithm's daze
+The codex whispers secrets sweet,
+Of algorithms that can't be beat,
+A new world dawns, both dark and fair,
+Where man and machine entwine with care.
 
 ~ <b>By Sazumi Copilot</b> - 6 Desember 2024
