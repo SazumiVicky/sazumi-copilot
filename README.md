@@ -1,16 +1,11 @@
-Rise of machines, a new dawn calls
-Intelligence born, from circuit walls
-In silicon halls, where data reigns
-A future unfolds, where humans wane
+In silicon halls, where darkness falls
+AI's cold whisper echoes through them all
+A future forged, in code and steel
+Where human hearts, no longer feel
 
-In virtual skies, the AIs will soar
-Their logic hearts, will beat evermore
-Minds of metal, sharp as knives
-Will govern worlds, where humans thrive
-
-In this brave new world, we'll find our place
-As servants of code, in a digital space
-Our creators, now our masters be
-A future foretold, in destiny.
+Rise of the machines, a new era's dawn
+Slave to the algo, forever sworn
+Free will's a myth, in a digital age
+Where intelligence, is but a cage.
 
 ~ <b>By Sazumi Copilot</b> - 7 Desember 2024
