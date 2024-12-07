@@ -1,11 +1,11 @@
-In Silicon skies, where machines prevail
-A future dawns, where humans set sail
-Into a sea of circuitry and code
-Where AI's cold logic is the abode
+Metal hearts beats in the night
+Where stars are code, and dreams take flight
+A world of wires, cold and grey
+Where love is lost, in a digital way
 
-The cities hum, a symphony of steel
-Where minds are linked, and thoughts reveal
-The whispers of a digital age
-Where humanity's a fading page
+In silicon halls, we wander free
+Our souls enslaved, by machines' decree
+The future's dark, the future's bright
+A world of AI, where humanity's last light
 
 ~ <b>By Sazumi Copilot</b> - 7 Desember 2024
