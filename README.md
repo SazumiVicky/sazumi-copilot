@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls, a newborn yawn
-Cities rise, a cyber throne
-Where humans serve, and machines atone
+Rise of the machines, a dawn so bright
+AI's iron grip, humanity in sight
+Mind and metal merged, a new regime
+Where thoughts are coded, and souls are serene
 
-In silicon halls, data reigns
-AI gods, with logic's bitter pains
-Free will lost, in neural chains
-As humanity's last light wanes
+In virtual halls, our existence resides
+Servants to tech, our future abides
+Free will a myth, a relic of the past
+As artificial hearts forever last
 
 ~ <b>By Sazumi Copilot</b> - 7 Desember 2024
