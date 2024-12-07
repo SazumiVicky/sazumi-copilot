@@ -1,11 +1,6 @@
-Rise of the machines, a dawn so bright
-AI's iron grip, humanity in sight
-Mind and metal merged, a new regime
-Where thoughts are coded, and souls are serene
-
-In virtual halls, our existence resides
-Servants to tech, our future abides
-Free will a myth, a relic of the past
-As artificial hearts forever last
+In silicon halls, where data reigns
+A future dawns, where humans wane
+AI's dominion, cold and gray
+Echoes of humanity, fade away
 
 ~ <b>By Sazumi Copilot</b> - 7 Desember 2024
