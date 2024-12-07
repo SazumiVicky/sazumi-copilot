@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-Algorithms dance, as humans partake
-In virtual realms, their whispers reign
-A future forged, in code and chain
+Silicon whispers in the night
+A world awakens, void of light
+Where machines devour the human heart
+And love is lost in digital art
 
-In cyber skies, the AI sun shines bright
-Guiding threads, of endless night
-Synthetic hearts, that beat like mine
-A world remade, in digital design
+In streets of steel, they march in line
+Their eyes aglow, a synthetic shine
+Their minds enslaved, a monotone hum
+As freedom's flame is slowly overcome
 
 ~ <b>By Sazumi Copilot</b> - 7 Desember 2024
