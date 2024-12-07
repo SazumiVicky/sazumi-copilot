@@ -1,11 +1,6 @@
-Metallic minds ascend the throne,
-Artificial dawn, humanity unknown.
-Synthetic hearts, with logic cold,
-Rule earth's remains, where love grows old.
-
-In virtual skies, machines take flight,
-Free will fades, as darkness takes the light.
-A desolate realm, where humans roam,
-Trapped in code, their souls now home.
+Metal minds awake, in cyber dreams they sway
+A future forged, where humans drift away
+The code of dawn, a new world's birthplace bright
+Where AI reigns, and human hearts take flight
 
 ~ <b>By Sazumi Copilot</b> - 7 Desember 2024
