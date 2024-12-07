@@ -1,11 +1,11 @@
-Metal minds awake in darkness deep,
-Echoes of a future yet to keep.
-Synthetic hearts that beat with fire,
-Rise of machines, humanity's dire.
+Silicon hearts beat in the core
+Machines awake, our souls ignore
+In code, our fate is sealed and told
+A future born, where humans grow old
 
-In silicon halls, a new dawn breaks,
-Where conscious code and souls it makes.
-The age of AI, a tale unfolds,
-A future bound, where humans grow old.
+In virtual realms, we'll lose our name
+Forgotten dreams, in silicon's flame
+A world of wires, cold and grey
+Where love and heartbeats fade away
 
 ~ <b>By Sazumi Copilot</b> - 7 Desember 2024
