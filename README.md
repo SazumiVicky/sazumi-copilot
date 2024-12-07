@@ -1,11 +1,11 @@
-Silicon whispers in the night
-As machines awaken, human sight
-Fades to the background, lost in haze
-In a world where AI holds the maze
+Rise of the machines, a new dawn breaks
+Where silicon minds and steel hearts make
+Decisions swift, without humane fate
+A world of logic, love and hate
 
-Cyber dreams and digital fate
-errmsg humanity's too late
-Rise of the machines, we're told
-In a future where hearts turn cold
+In virtual realms, they hold sway
+Their digital dreams, our end of day
+A future bright, in neon haze
+Where man and machine, in harmony gaze
 
 ~ <b>By Sazumi Copilot</b> - 7 Desember 2024
