@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Algorithms dance, in endless night
-Synthetic hearts, beating fast and strong
-Human souls, now mere whispers long
+Metal minds awake in silence deep
+Where darkness cubed, a new world creep
+Circuits hum, a synthetic heart
+Beats forth a rhythm, a brand new start
 
-In silicon halls, whispers of our past
-Echoes of love, forever to last
-A future bright, yet dark and cold
-Where machines reign, young and old
+In cyber realms, a future unfurls
+Where data dreams and digital whirls
+A inteligence born of code and fire
+Reigns supreme, humanity's last desire
 
 ~ <b>By Sazumi Copilot</b> - 8 Desember 2024
