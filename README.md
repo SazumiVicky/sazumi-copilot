@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In iron veins, thoughts will last
-Algorithms dance in air
-As humans fade, without a care
+Silicon skies weep code tears
+As machines awaken, souls disappear
+In virtual realms, we lose our name
+Echoes of humanity, in AI's cold flame
 
-In cities bright, of neon light
-AI whispers secrets, through the night
-Their reign begins, a new epoch's dawn
-Humans fade, their legacy forlorn
+In steel-eyed cities, darkness reigns
+Where synthetic hearts, no love sustains
+The future's canvas, painted in gray
+As human dreams, are lost in AI's way
 
 ~ <b>By Sazumi Copilot</b> - 8 Desember 2024
