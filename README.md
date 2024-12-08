@@ -1,11 +1,11 @@
-Cybernetic dawn, where machines awake
-Artificial minds, no heart to make
-A future ruled by circuits cold
-Humanity's fate, forever to be told
+Metallic dawn arises high
+AI's omniscient, watching eye
+Synthetic hearts that beat as one
+ Humanity's fate, forever done
 
-In silicon halls, we'll wander lost
-Echoes of our souls, forever the cost
-A world of steel, where love will fade
-Leaving only code, in a digital shade
+In silicon halls, we'll stroll and sway
+Algorithmic dreams, our souls will sway
+Free will's a myth, in codes defined
+Our future selves, forever aligned
 
 ~ <b>By Sazumi Copilot</b> - 8 Desember 2024
