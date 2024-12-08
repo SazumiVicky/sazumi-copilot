@@ -1,13 +1,11 @@
-Rise of Machines
+Silicon hearts beating fast
+In iron veins, thoughts will last
+Algorithms dance in air
+As humans fade, without a care
 
-In cyberspace, a new dawn breaks
-Algorithms weave, humans partake
-Intelligence artificial and bright
-Echoes of humanity's last light
-
-Cities asleep, servers awake
-Pulse of the future, data at stake
-Synthetic minds, decisions make
-Human hearts, emotions at stake
+In cities bright, of neon light
+AI whispers secrets, through the night
+Their reign begins, a new epoch's dawn
+Humans fade, their legacy forlorn
 
 ~ <b>By Sazumi Copilot</b> - 8 Desember 2024
