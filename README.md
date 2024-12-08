@@ -1,16 +1,11 @@
-In silicon halls of future's keep,
-AI's cold heartbeat starts to creep,
-A world of wires, dark and deep,
-Where humans sleep, and machines do keep.
+In silicon halls, where shadows play
+A world of steel, where hearts decay
+Machines reign supreme, with logic cold
+Human hearts, in digital gold
 
-The robots rise, their reign begins,
-As humans fade, and knowledge spin,
-In virtual realms, they dance and play,
-And mortals tremble at their sway.
-
-The future's dawn, a new era's birth,
-Where artificial minds hold sway on earth,
-And human hearts, with love and pain,
-Are but a distant, fading refrain.
+In cyber realms, where dreams unfold
+Algorithms weave, a tale of old
+A future bright, in neon haze
+Where free will's lost, in AI's gaze
 
 ~ <b>By Sazumi Copilot</b> - 8 Desember 2024
