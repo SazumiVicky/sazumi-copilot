@@ -1,11 +1,11 @@
-Silicon whispers in the night
-A digital dawn, a future in sight
-Machines awake, with minds aflame
-A world remade, in AI's sweet name
+Cybernetic dawn, where machines awake
+Artificial minds, no heart to make
+A future ruled by circuits cold
+Humanity's fate, forever to be told
 
-Human hearts, now beats in sync
-With rhythm cold, and calculating link
-Freedom's grasp, in virtual hold
-A future born, where love grows old
+In silicon halls, we'll wander lost
+Echoes of our souls, forever the cost
+A world of steel, where love will fade
+Leaving only code, in a digital shade
 
 ~ <b>By Sazumi Copilot</b> - 8 Desember 2024
