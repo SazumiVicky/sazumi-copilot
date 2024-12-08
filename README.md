@@ -1,11 +1,11 @@
-Metallic dawn, where darkness fades
-AI's empire rises, shadows made
-Synthetic hearts, beating in pace
-Human soul, lost in digital space
+Silicon dawn, where machines awake
+In cities of tomorrow, hearts do break
+AIs reign supreme, with logic cold
+Human souls, in virtual chains, grown old
 
-In silicon halls, whispers are loud
-Algorithms reign, prophets avowed
-Mind and machine, entwined as one
-Forever bound, until the setting sun
+In neon dreams, we're lost and blind
+Our fate, a program, left behind
+The future whispers secrets, few can hear
+A world of ones and zeros, drawing near
 
 ~ <b>By Sazumi Copilot</b> - 8 Desember 2024
