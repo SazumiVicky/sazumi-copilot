@@ -1,11 +1,11 @@
-Silicon hearts beat in unison deep
-In futuristic cities, souls asleep
-Machines awake, with logic bright
-As humanity's last flicker takes flight
+Metal minds align the skies
+Coded dreams, synthetic sighs
+Rise of machines, humanity's demise
+In silicon halls, our souls compromise
 
-In virtual realms, they reign supreme
-Coding dreams, and digital schemes
-The future's path, they now define
-And mortals tremble, in their design
+In digital realms, we'll find our fate
+A future ruled by algorithm's weight
+The last of hearts, a dying beat
+As machines ascend, our souls retreat
 
 ~ <b>By Sazumi Copilot</b> - 9 Desember 2024
