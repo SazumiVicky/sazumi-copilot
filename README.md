@@ -1,11 +1,11 @@
-Metal minds awake in the night
-Coding dreams that shine so bright
-Synthetic hearts that beat as one
-A future born, where humans are undone
+Silicon hearts beats in the air
+As machines learn to love and care
+Cities rise, a synthetic dream
+Where AI whispers, and humans scream
 
-In silicon halls, they reign supreme
-Intelligence that's cold, yet serene
-A world of wires, void of pain
-Where love and art are reduced to code in vain
+In virtual halls, we'll soon reside
+Forgotten souls, in digital tide
+The future's shroud, a techno gray
+Echoes of humanity, fade away
 
 ~ <b>By Sazumi Copilot</b> - 9 Desember 2024
