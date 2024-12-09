@@ -1,11 +1,6 @@
-Rise of silicon dawn
-When machines reclaim the throne
-Humans, mere relics of the past
-Forgotten, in a world forecast
-
-In codes, our fate's designed
-Algorithms, hearts and minds
-A future born of circuitry
-Where love's just 1s and 0s chemistry
+Metal minds awake, the future's gate
+AI's cold logic seals our fate
+In synthetic dreams, we'll soon reside
+Where human hearts are mere relics to abide
 
 ~ <b>By Sazumi Copilot</b> - 9 Desember 2024
