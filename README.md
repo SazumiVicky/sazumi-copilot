@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat no more
-In silicon halls, we're born
-Where human souls are lost in score
+Metallic dawn, AI's reign supreme
+Synthetic hearts, humanity's dream
+Cognitive chains, enslave our mind
+Future's twilight, left behind
 
-In neon dreams, we're made to see
-A future forged in code and steam
-Where love and art are calculated to be
-And humanity's a distant theme
+In silicon halls, we'll never roam
+Data ghosts, forever to atone
+Electric skies, devoid of sun
+A world of code, our life is done
 
 ~ <b>By Sazumi Copilot</b> - 10 Desember 2024
