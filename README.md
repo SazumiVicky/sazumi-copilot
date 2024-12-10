@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future dawns, where AI sustains
-Humans fade, as machines ascend
-Incoming era, our final trend
+AI's cold logic holds the reins
+Humans servile, lost in digital haze
+Their fate predetermined, in algorithmic daze
 
-Circuits beckon, codes unfold
-Digital dreams, where hearts grow old
-Free will dwindles, as algos sway
-In a world of ones, we drift away
+The cityscape, a labyrinth of steel
+Whirring with machines, hearts that reveal
+No warmth, no love, just efficient design
+A future forged, where humanity's left in decline
 
 ~ <b>By Sazumi Copilot</b> - 10 Desember 2024
