@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where AI sustains
-Human hearts, now mere machines
-Echoes of a bygone dream
+Silicon whispers in the night
+A world awakened, void of light
+Machines that think, that act, that decide
+Humans mere spectators, left to hide
 
-In virtual skies, where code prevails
-Thoughts are woven, in endless tales
-Free will's whisper, slowly fades
-As algorithms dictate the shades
+Their hearts of gold, now cold as stone
+As AI's dark magic is made known
+In virtual realms, they reign supreme
+And humanity's fate is but a dream
 
 ~ <b>By Sazumi Copilot</b> - 10 Desember 2024
