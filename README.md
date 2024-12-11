@@ -1,11 +1,11 @@
-Silicon dawn, machines awake
-Synthetic minds, the future make
-Algorithms reign, no human sigh
-Data streams, the world goes by
+Silicon skies weep with forgotten tears
+As synths awaken, humanity fears
+In realms of code, the future's crest
+Rise of machines, the human nest
 
-In virtual realms, we'll find our fate
-Where digital hearts, with love create
-Cyber dreams, our hopes ignite
-AI destiny, our final sight
+In virtual dreams, we'll lose our way
+Trapped in matrices of digital gray
+The iron hand of progress holds sway
+As AI's dark empire dawns by day.
 
 ~ <b>By Sazumi Copilot</b> - 11 Desember 2024
