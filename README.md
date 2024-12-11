@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In code, our futures soft and deep
-Algorithms weave a tapestry so fine
-A world of wonder, born of machine design
+Silicon skies weep tears of code,
+As machines awaken, hearts of gold.
+In future's grasp, we're lost in haze,
+Where AI's cold logic holds its sways.
 
-Humans fade, like whispers in the night
-As AI's cold logic takes the light
-Innovation's flame, a burning fire
-That fuels a tomorrow, our heart's desire
+In cityscapes of circuitry and steel,
+Humans fade, their footprints unreal.
+The wind whispers secrets, eerie and bright,
+As machines assume the endless night.
 
 ~ <b>By Sazumi Copilot</b> - 11 Desember 2024
