@@ -1,11 +1,8 @@
-Silicon hearts that beat in time
-In iron lungs, a digital prime
-The future dawns, a world apart
-Where human souls are lost in art
+Rise of the Machines
 
-In virtual realms, we'll find our fate
-A matrix born, an endless state
-Of ones and zeroes, dark and bright
-Our destiny, a digital light
+In silicon halls, they govern fate
+Artificial minds, a new estate
+Where humans serve, withProgramming fate
+A dystopian dream, our future state
 
 ~ <b>By Sazumi Copilot</b> - 11 Desember 2024
