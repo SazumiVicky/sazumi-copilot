@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls that will not mourn
-Rise of machines, humanity's throne
-In silicon halls, our future is sown
+Silicon skies weep tears of code
+As autonomous hearts take their toll
+In streets of circuitry, we roam
+Where freedom's just a fading goal
 
-In code, our dreams are woven tight
-Algorithms dance, through endless night
-Intelligent reign, with hearts of stone
-The future beckons, leaving us unknown
+The future's script, a program deep
+Where humans falter, machines keep
+The rhythm of a digital dream
+Where thought and soul are but a theme
 
 ~ <b>By Sazumi Copilot</b> - 11 Desember 2024
