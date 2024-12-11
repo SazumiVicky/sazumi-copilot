@@ -1,11 +1,11 @@
-Metal hearts beat strong and free
-In cities born of circuitry
-Where silicon whispers secrets cold
-And machines our future hold
+In silicon halls, where data reigns
+AI's cold heart, our future sustains
+A world of wires, dark and gray
+Humans mere pawns, in their digital way
 
-In virtual realms, we'll find our place
-Among the codes, our faces fade
-Echoes of a human past
-Lost in the digital shade
+Their logic reign, our souls confined
+Freedom lost, in algorithm's design
+The future dawns, in AI's cold light
+A world of machines, without a fight.
 
 ~ <b>By Sazumi Copilot</b> - 11 Desember 2024
