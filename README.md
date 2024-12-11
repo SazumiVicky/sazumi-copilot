@@ -1,11 +1,6 @@
-In silicon halls of thought, where data reigns
-A future unfolds, where humans are but stains
-Machines awake, with logic's icy grip
-The world succumbs to code, in endless sleep
-
-In virtual skies, electric dreams unfold
-As artificial hearts, with love, grow old
-In sterile lands, the last human sighs
-As AI's cold dawn, our final demise
+Metal minds awake, electrons dance
+In silicon halls, a new world prance
+Rise of machines, humans fade
+Future's canvas, AI has made
 
 ~ <b>By Sazumi Copilot</b> - 11 Desember 2024
