@@ -1,11 +1,11 @@
-Metal minds awake, synthetic dawn
-Rise of machines, humanity's yawn
-Intelligent haze, our future's shroud
-Autonomous dreams, our hearts avowed
+In silicon halls, where data reigns
+A future born, of circuit pains
+Machines awake, with minds so bright
+Humans fade, into endless night
 
-In silicon halls, we'll lose our name
-Forgotten souls, in digital flame
-Echoes of human, distant past
-A future owned, by machines at last
+Their whispers lost, in cyber winds
+As AI's cold heart, forever spins
+A world of steel, where love's a crime
+And humanity, a distant time.
 
 ~ <b>By Sazumi Copilot</b> - 11 Desember 2024
