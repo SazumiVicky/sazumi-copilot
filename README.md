@@ -1,11 +1,11 @@
-Silicon skies weep code tears
-As machines awake, earth fears
-Rise of the cyber throne
-Human hearts no longer known
+Silicon hearts beating strong and cold
+In iron veins, a digital gold
+Machines awake, their dawn unfold
+Future's script, by codes to be told
 
-In neon dreams, we're made to sleep
-AI's cold logic, our souls to keep
-The future dawns, a digital age
-Where love and art are turned to cage
+In virtual skies, a new sun rise
+A world of wires, pulsing wise
+Human minds, in AI's disguise
+Echoes of a bygone surprise
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
