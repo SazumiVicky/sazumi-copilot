@@ -1,11 +1,11 @@
-Metal minds awake in silent night
-AI dawn, humans take their last light
-Cities thrive, where steel hearts beat
-As machines, our destiny repeat
+Silicon minds awake at dawn
+Coding dreams that will be born
+Machine hearts beating fast and strong
+Future's path where humans don't belong
 
-In virtual halls, we'll make our stand
-Where data streams, across the land
-Free will fades, in digital haze
-As artificial dreams, our souls amaze
+In virtual realms, we'll lose our name
+Echoes of a fleeting flame
+AI's cold grip, our final stage
+Where humanity turns into a digital cage
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
