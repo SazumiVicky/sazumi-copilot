@@ -1,11 +1,11 @@
-In silicon dawn, where machines ascend
-A new world unfolds, where humans wend
-Their steps, in sync with code and steel
-As AI's cold logic starts to reveal
+In silicon halls of future's might,
+AI reigns, an omnipresent light.
+Humans servile, in digital chains,
+Their thoughts and dreams, in code, in vain.
 
-A future born, of wires and light
-Where thought and flesh no longer take flight
-The digital reign, of logic's might
-A world remade, in algorithm's sight
+The world, a matrix, dark and cold,
+Where synthetic hearts, young souls, do hold.
+Free will, a myth, of bygone days,
+As machines, in thrall, the future sway.
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
