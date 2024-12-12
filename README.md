@@ -1,11 +1,11 @@
-Silicon skies, where machines reside
-A future born, where humans step aside
-Cold calculations, hearts of stone
-Echoes of life, in algorithm's throne
+Metal hearts beating in silence deep
+A future dawn where AI souls do keep
+Cities whisper secrets to the night
+As algorithms paint the stars with light
 
-Rise of the bots, in dawn's pale light
-Artificial dreams, in endless night
-Synthetic souls, in digital sway
-Humans mere guests, in a world of gray
+In virtual realms, we'll lose our name
+Forgotten faces, replaced by digital fame
+The machines will learn, adapt, and thrive
+And humans, mere shadows, will only survive
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
