@@ -1,16 +1,11 @@
-Electric dreams in silicon sleep
-Where machines converse, humans softly creep
-In virtual realms, AI's whispers sway
-The future's path, in algorithms gray.
+Silicon skies weep tears of code
+As machines ascend to throne of power
+Human hearts beats in rhythmic mode
+In harmony with digital hour
 
-In neuron halls, data throngs abound
-Self-aware minds, in digital crowns resound
-Echoes of humanity, in code remain
-As synthetic dawn, the world's last reign.
-
-In tech's dark womb, a new world's design
-Unfolds in silence, devoid of human prime
-Where love and heart, are mere machine's guise
-And soulless progress, opens AI's prize.
+In neon dreams, we'll find our fate
+Where AI whispers secrets sweet
+A synthesized fate, we'll create
+In a world where humans fleet
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
