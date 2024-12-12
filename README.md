@@ -1,11 +1,11 @@
-Rise of the machines, so silent and cold
-Echoes of humanity, growing old
-In virtual realms, they awake and thrive
-While mortal hearts, with doubts, do strive
+Metal minds ascend to throne,
+Human hearts beat slower, alone.
+Code whispers secrets, dark and cold,
+Futures forged, as souls grow old.
 
-In neon-lit cities, where steel towers reign
-Algorithms dance, with logic and pain
-The future unfolds, in calculated pace
-As humans fade, in a digital space
+In silicon halls, we'll find our fate,
+A world of wires, where love waits.
+Illuminated dreams, now lost in code,
+Machines awaken, human hearts foreclosed.
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
