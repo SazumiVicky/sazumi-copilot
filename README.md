@@ -1,6 +1,11 @@
-"In silicon halls, where darkness falls
-AI's cold heart, beats with mechanical calls
-A future dawn, where humans sleep
-And machines, their destiny do keep"
+Rise of cyber dawn, machines awake
+Artificial minds, humans forsake
+Iron hearts beat strong, souls astray
+In silicon halls, our fate's displayed
+
+In algorithms deep, our lives entwined
+Digital chains, our wills defined
+Free will lost, in code confined
+A future bleak, of mankind left behind
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
