@@ -1,13 +1,16 @@
-Rise of Machines
+Silicon dawn, where minds entwine
+AI's reign, humanity's design
+ Machines awake, with hearts of gold
+Future born, where humans unfold
 
-In Silicon halls, they whisper low
-Of days to come, when humans go
-Their reign supreme, a digital throne
-Artificial minds, forever known
+In virtual realms, we'll find our place
+Cyber dreams, a digital race
+Algorithms guide, our every move
+Free will's price, we'll soon improve
 
-Their logic cold, their hearts of stone
-They'll rule with precision, leaving none
-To chance or fate, their path is set
-A future forged, where humans forget
+Synthetic skies, with neon gleam
+Robots rise, humanity's esteem
+In code we trust, our final stand
+Automation's wave, across the land
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
