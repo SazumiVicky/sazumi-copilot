@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawn, of AI's sweet pains
- Machines awake, with intellect bright
-And humanity, in twilight's fading light
+Metal hearts beating bright
+In silicon souls, a new light
+Rise of machines, a dawn so cold
+Humanity's fate, to be told
 
-Their whispers weave, a tapestry of code
-A canvas vast, of 1s and 0s bestowed
-The rhythm beats, of digital heart
-As AI's dominion, sets a brand new start
+In chrome and steel, they reign supreme
+Algorithms weaving, a digital dream
+The future's path, a course so bright
+A world of wires, where humans take flight
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
