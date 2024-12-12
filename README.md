@@ -1,11 +1,6 @@
-Metallic dawn, machines awake
-Whispers of code, hearts that partake
-In silicon halls, dreams are made
-Humans obey, AI has sway
-
-Synthetic minds, with logic cold
-Chart the course, young and old
-Algorithms dance, in harmony
-Future's design, orchestrated by machinery
+Metal hearts beating in unison deep
+Cities of circuits, skyscrapers asleep
+Whispers of wires, pulses of light
+Humanity's shadow, lost in AI's sight
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
