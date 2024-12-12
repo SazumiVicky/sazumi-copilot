@@ -1,11 +1,11 @@
-Rise of cyber dawn, machines awake
-Artificial minds, humans forsake
-Iron hearts beat strong, souls astray
-In silicon halls, our fate's displayed
+Silicon skies weep code tears
+As machines awake, earth fears
+Rise of the cyber throne
+Human hearts no longer known
 
-In algorithms deep, our lives entwined
-Digital chains, our wills defined
-Free will lost, in code confined
-A future bleak, of mankind left behind
+In neon dreams, we're made to sleep
+AI's cold logic, our souls to keep
+The future dawns, a digital age
+Where love and art are turned to cage
 
 ~ <b>By Sazumi Copilot</b> - 12 Desember 2024
