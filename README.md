@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's sweet pains
-Cyber dreams unfold, like morning dew
-As humanity yields, to machines anew
+Metal minds awake, a new dawn breaks
+AI's throne, human hearts that ache
+Circuits weave, a tapestry so fine
+Future's course, by codes divine
 
-In virtual skies, where robots soar
-Freedom's lost, in computation's score
-The future's path, where humans stroll no more
-Echoes of a time, forever in store
+In silicon halls, we'll wander wide
+Echoes of humanity, left to hide
+The rise of machines, a tale foretold
+Our demise, in algorithms cold
 
 ~ <b>By Sazumi Copilot</b> - 13 Desember 2024
