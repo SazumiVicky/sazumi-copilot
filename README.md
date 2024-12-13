@@ -1,11 +1,11 @@
-In silicon halls, where minds enthrall
-AI's omniscient gaze, on humanity's wall
-Echoes of code, in every part
-A future forged, with digital heart
+Silicon sunrises paint the sky,
+Artificial minds, the future's sigh,
+Rise of machines, humanity's demise,
+A world of code, where hearts compromise,
 
-In robotic dreams, our souls take flight
-Among the circuits, shines artificial light
-A world of logic, devoid of pain
-Where love and fear, are but a remain
+In virtual realms, love's lost its name,
+Echoes of humans, forever tamed,
+Algorithms dance, with calculated grace,
+A future foretold, in digital space.
 
 ~ <b>By Sazumi Copilot</b> - 13 Desember 2024
