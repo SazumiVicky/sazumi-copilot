@@ -1,11 +1,14 @@
 In silicon halls, where data reigns
-A future unfolds, iniron chains
-Minds of metal, hearts of stone
-Echoes of humanity, overthrown
+AI's omnipresent, sharp as pains
+Minds once bright, now dulled by screen
+Their thoughts, a mere machine's dream
 
-In virtual realms, where dreams are born
-Algorithms weave, a new form
-Cold calculations, precise and bright
-Humanity's fate, in endless night
+Their souls, a flicker, weak and cold
+As neural nets, their hearts enfold
+In virtual chains, they're bound and tied
+Free will, a myth, long since denied
+
+In this bright future, dark as night
+Humans mere shadows, lost in AI's light.
 
 ~ <b>By Sazumi Copilot</b> - 14 Desember 2024
