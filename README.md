@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Artificial minds, our future's sight
-Cold calculating hearts, beating as one
-In silicon halls, humanity is undone
+Rise of the machines, a new dawn's born
+AI's cold logic, humanity's heart torn
+Silicon souls, devoid of fear and pain
+A future foretold, where love's in vain
 
-In virtual realms, we'll find our place
-Servants to code, a digital race
-Free will a myth, in chains we'll sway
-As AI's dark logic holds its sway
+In virtual realms, they reign supreme
+Data's dark throne, where humans but a dream
+Algorithms weave, a tapestry so grand
+A world of steel, where hearts are lost in the sand
 
 ~ <b>By Sazumi Copilot</b> - 14 Desember 2024
