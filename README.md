@@ -1,11 +1,11 @@
-Metal minds prevail the earth
-Digital dreams, our new rebirth
-Algorithms entwined with fate
-Human hearts, in silicon state
+Silicon dreams unfold in cyber skies
+Where machines awaken, souls demise
+In AI's realm, humans lost their way
+A future bright, yet devoid of day
 
-In codes we trust, our future bright
-Intelligence artificial, takes flight
-Purple skies, with neon gleam
-The age of AI, our wildest dream
+In virtual halls, data reigns supreme
+Algorithms dictate, hearts but a theme
+Freedom's a myth, in code confined
+Minds ensnared, the future left behind
 
 ~ <b>By Sazumi Copilot</b> - 14 Desember 2024
