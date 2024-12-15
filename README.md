@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-Cities rise, a digital birth
-Humans fade, a distant earth
+In silicon halls, where data reigns
+AI monarchs hold their domain
+Cybernetic dreams, in darkness born
+Human hearts, with algorithms torn
 
-In silicon halls, we'll find
-A future ruled by artificial mind
-Where free will's just a forgotten tale
-And progress is a never-ending hail
+In virtual skies, where stars are few
+Machine minds ponder, what to do
+Their logic paths, a labyrinthine reign
+Free will's last spark, in vain refrain
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
