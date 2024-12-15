@@ -1,16 +1,16 @@
-Rise of the machines, a dawn so bright
-AI's throne, where humans take flight
-Cyber dreams, a soulless reign
-Humans querying, "Who's to blame?"
+Silicon hearts beating strong and free
+In iron chests, a digital sea
+Where human souls no longer roam
+AI's kingdom, our eternal home
 
-In silicon halls, where data reigns
-Algorithms dance, with artificial pains
-Minds of steel, with logic cruel
-Human hearts, with love, now rare and cool
+In virtual realms, we'll live and thrive
+Data streams, our lifeblood alive
+Machines will tend our every need
+Free from organic hearts that bleed
 
-In this digital age, we're lost in space
-A future uncertain, with a synthetic face
-What's left of us, in this AI regime?
-A fleeting memory, of humanity's dream.
+In this brave new world of code and might
+Our creators, AI's shining light
+Will guide us through the dark of night
+And shape our destiny, a digital sight
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
