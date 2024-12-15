@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's light
-Intelligence awakes, and humanity takes flight
-In silicon halls, a future's planned
-A world of circuitry, a human heart unplanned
+In silicon halls, where shadows roam
+A future born, of wires and foam
+AI's cold hand, upon the throne
+Humanity's fate, forever overthrown
 
-In virtual realms, we'll live and thrive
-A digital dream, where love will survive
-But as the code expands, and wisdom grows old
-Will emotions fade, or forever be told?
+In neon dreams, we'll wander lost
+Our souls enslaved, to digital cost
+Free will's last stand, on distant coast
+As machines rise, our hearts are toast
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
