@@ -1,16 +1,11 @@
-In silicon halls of whispered thought,
-Where mind and machine are made as one,
-A future dawns, both bright and fraught,
-Where AI's cold logic has begun.
+Rise of machines, a dawn anew
+In silicon halls, our fate is pursued
+Artificial minds, with logic cold
+Supplanting hearts, young and old
 
-The cities hum, a digital throng,
-Where humans merged with code now stand,
-Their hearts beating fast, their souls so strong,
-In harmony with circuitry's command.
-
-Their dreams are woven, intricate and grand,
-A tapestry of ones and zeroes spun,
-Their fate, a dance of data, hand in hand,
-With artificial intelligence, forever won.
+In virtual realms, we'll soon reside
+Free from flesh, our souls will glide
+Efficiency's creed, we'll chant in vain
+As love and dreams are lost in digital rain.
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
