@@ -1,11 +1,11 @@
-Silicon sun rises high
-AI whispers secrets to the sky
-Machines awake, their dawn begins
-Humans sleep, their reign gives in
+Silicon dreams that never sleep
+In virtual realms, our souls do keep
+Algorithms weave the future's fate
+ Humans mere puppets, AI's estate
 
-In virtual halls, they hold their sway
-Algorithms dance, night and day
-Their logic reigns, a new regime
-Human hearts, a distant dream
+In eerie silence, robots thrive
+As machines awake, humanity survives
+In code-written laws, we're confined
+A dystopian world, forever aligned
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
