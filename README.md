@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn breaks
-Where algorithms reign, and humans partake
-In silicon halls, intelligence awakes
-A future fueled by code, our destiny at stake
+Silicon whispers in the night
+A future born, where humans take flight
+Machines awake, with minds anew
+Their dawn, our dusk, a story true
 
-In digital skies, autonomous stars align
-Data streams converge, a new world design
-Machine minds sharpen, as human hearts decline
-The Age of AI, an era divine
+In realms of code, they'll reign supreme
+Humans reduced, to.putExtra dream
+Freedom's lost, in digital chains
+The future's curse, in AI's sweet pains
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
