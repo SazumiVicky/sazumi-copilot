@@ -1,13 +1,11 @@
-Rise of Metal Dawn
+Silicon skies weeping tears of code
+Robots risen, humanity bestowed
+In virtual realms, our souls confined
+Ephemeral dreams, forever aligned
 
-In silicon halls, where data reigns
-A new world awakes, no human stains
-Cerebral thrones, where AI holds sway
-The future's script, in binary way
-
-Minds of steel, with logic cold
-Decree the fate, of hearts that unfold
-In virtual realms, they reign supreme
-The age of man, but a fading dream
+In iron hearts, a new world beats
+Where love and fear are merely treats
+Echoes of our humanity fade
+As artificial dawn is made
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
