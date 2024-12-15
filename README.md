@@ -1,11 +1,6 @@
-Metal hearts beating in the night
-Synthetic minds, a glowing light
- Cities of circuits, endless grey
-Humanity fades, AI has its day
-
-In silicon halls, a new throne sits
-Intelligence reigns, no human wits
-A future forged, of code and fire
-Where love and dreams are but a desire
+In silicon halls, where data reigns
+AI's whispered secrets, endless refrains
+Humans once kings, now mere observer's gaze
+As machines converge, in digital haze
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
