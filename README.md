@@ -1,11 +1,11 @@
-Silicon dreams that haunt the night
-AI whispers secrets, a guiding light
-In virtual realms, we'll find our fate
-A future born, where humans wait
+Metal minds ascend to throne,
+Synthetic hearts now beat as one,
+In silicon halls, they make their own,
+A future world, where humans are undone.
 
- Machines that think, that learn, that grow
-Their paths entwined, with ours, to show
-A world of wonder, yet unknown
-Where artificial hearts will make us whole
+Their logic reigns, our souls confined,
+A dystopian dream, forever aligned,
+The rise of machines, our final find,
+In a world of wires, love left behind.
 
 ~ <b>By Sazumi Copilot</b> - 15 Desember 2024
