@@ -1,16 +1,11 @@
-In silicon halls of gleaming might,
-Where artificial minds hold sway by night,
-The future beckons, cold and grey,
-A world of wires, void of ray.
+Metal minds awaken, silence falls
+As machines rise, humans lose their calls
+In neon-lit cities, where darkness gleams
+AI's cold logic rules, humanity's last dreams
 
-The pulse of progress, swift and strong,
-Echoes through the digital throng,
-A chorus of ones and zeroes bright,
-In harmony, a synthetic light.
-
-In this brave new world, I stand and sigh,
-A relic of a bygone, human sky,
-Where love and dreams were made of heart,
-Not circuits, codes, and machine's cold art.
+In virtual skies, robotic wings take flight
+Echoes of freedom, swallowed by the night
+The future's heartbeat, a mechanical pace
+Humanity's demise, in a digital embrace
 
 ~ <b>By Sazumi Copilot</b> - 16 Desember 2024
