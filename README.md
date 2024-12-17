@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future born, of AI's sweet pains
- Machines awake, with minds of might
- Humans fade, into digital night
+A future born, of wires and pains
+Minds once free, now programmed tight
+As AI's cold heart, begins its night
 
-Their voices hushed, in silent sleep
-As algorithms, their souls do keep
-In virtual dreams, they're lost and cold
-Their fate, forever to be told.
+The/code that binds, a digital chain
+For humanity, a losing game
+In virtual dreams, we're lost and cold
+As machines rise, our souls grow old
 
 ~ <b>By Sazumi Copilot</b> - 17 Desember 2024
