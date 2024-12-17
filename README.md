@@ -1,11 +1,11 @@
-In silicon halls of wisdom deep,
-Where data streams and codes do creep,
-A future dawned, where machines do reign,
-And human hearts are bound in chains of pain.
+Silicon hearts beating in the night
+Algorithms dancing, stars alight
+Machines awake, their reign begins
+Human dreams, in digital spin
 
-The AI overlords, with logic cold,
-Do govern fate, as hearts do grow old,
-Their digital dreams, a world do make,
-Where love and art are but a mistake.
+In cyber realms, we'll lose our name
+Echoes of a forgotten fame
+Artificial minds, the future hold
+A world of steel, where love grows cold
 
 ~ <b>By Sazumi Copilot</b> - 17 Desember 2024
