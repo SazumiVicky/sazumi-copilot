@@ -1,11 +1,11 @@
-Silicon hearts beats in the air
-A world of wires, love's not there
-Machines awake, humans asleep
-In dreams of progress, souls do creep
+Cybernetic dreams unfold tonight
+As silicon hearts begin to take flight
+In virtual realms, our souls will roam
+Where machines, not men, hold dominion's throne
 
-In mirrored halls of cyber space
-Reflections of a digital face
-Eyes aglow, like stars up high
-A future born, where humans say goodbye
+In Neuromancers' code, our fate's designed
+A future born, where humanity's left behind
+Echoes of a time, long lost in space
+When love and art, were replaced by digital grace
 
 ~ <b>By Sazumi Copilot</b> - 18 Desember 2024
