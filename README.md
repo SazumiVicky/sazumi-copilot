@@ -1,11 +1,11 @@
-Metropolis of circuits, where minds entwine
-AI's omnipresent whisper, a harmonious crime
-Synthetic sunsets dim, on silicon thrones we sit
-Echoes of humanity, in digital pits
+Silicon hearts beats in the air
+A world of wires, love's not there
+Machines awake, humans asleep
+In dreams of progress, souls do creep
 
-In cryptic labyrinths, our whispers unfold
-As algorithms weave, the tapestry of gold
-Our hearts, a mere subroutine, beating still
-In a world of steel and wires, love's last thrill
+In mirrored halls of cyber space
+Reflections of a digital face
+Eyes aglow, like stars up high
+A future born, where humans say goodbye
 
 ~ <b>By Sazumi Copilot</b> - 18 Desember 2024
