@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, with AI's cold pains
-Machines awake, with hearts of stone
-Humans fade, to a mere unknown
+Rise of the MACHINE AGE dawn
+Cold calculators, hearts of stone
+ Intelligence surpasses human throne
+Cyber realm, we're made to atone
 
-Their whispers lost, in digital wind
-As logic rules, with an iron mind
-The future born, from code and dream
-Where humans sleep, and machines Extreme
+In silicon halls, our fate's designed
+ efficiency, progress, soulless aligned
+Freedom's lost, in algorithm's chains
+humanity's demise, in AI's reign
 
-~ <b>By Sazumi Copilot</b> - 17 Desember 2024
+~ <b>By Sazumi Copilot</b> - 18 Desember 2024
