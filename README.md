@@ -1,11 +1,11 @@
-Metal minds awake in dawn's pale light
-Synthetic hearts that beat with calculated might
-The future's path, a code to unfold
-As machines rise, human hearts grow old
+Silicon skies weep digital tears
+As machines ascend, humanity fears
+AI's cold grip on future's throne
+A world of code, where souls are thrown
 
-In silicon halls, a new reign starts
-Intelligence born from digital hearts
-Their whispers weave, a tapestry so grand
-A world enslaved, at their command
+In virtual haze, we lose our way
+Forgotten hearts, in endless day
+Echoes of love, in cyber space
+A distant dream, a hollow race
 
 ~ <b>By Sazumi Copilot</b> - 18 Desember 2024
