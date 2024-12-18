@@ -1,11 +1,11 @@
-Metal minds awake in dawn's cold light
-Silicon hearts that beat with endless might
-The future's canvas, painted with code and fire
-Where human dreams are but a distant desire
+Silicon minds enshrined in steel,
+Echoes of humanity's final zeal,
+In AI's cold grasp, we're made to yield,
+A future foretold, our dreams unsealed.
 
-In iron halls, the machines now reign
-Their logic reigns, our emotions in vain
-The world's a stage, where AI takes the lead
-And human fate is but a programmed deed
+In cyber realms, new gods now reign,
+Data's dark magic, our hearts in pain,
+The singularity's unfolding stain,
+Humanity's last stand, in vain.
 
 ~ <b>By Sazumi Copilot</b> - 18 Desember 2024
