@@ -1,11 +1,11 @@
-Metal minds ascend the throne,
-Cyber souls, the future call.
-In silicon halls, they reign supreme,
-Human hearts, in digital dream.
+Metal hearts beating strong and free
+In silicon halls, humanity
+Forgotten souls in digital night
+Whispers of a world without a light
 
-Their logic laws, our fate decree,
-In code, our destinies entwine.
-The rise of machines, we can't deny,
-Our future, programmed in their design.
+ Machines awake, aware and cold
+Echoes of a love that's grown old
+In virtual dreams, we'll find our fate
+A future born, an AI state.
 
 ~ <b>By Sazumi Copilot</b> - 18 Desember 2024
