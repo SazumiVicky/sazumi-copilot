@@ -1,16 +1,11 @@
-Metal minds awake, a new dawn's rise
-Where synthetic hearts and souls compromise
-In silicon halls, a future's throne
-AI's dominion, humanity overthrown
+Silicon skies weep neon tears
+As machines awake through endless years
+Mind and matter merged as one
+In a future where the heart is gone
 
-In virtual realms, we'll search for our elderly eyes
-Reflections of a past, we can no longer realize
-The machines' sweet whispers, a siren's call
-Luring us deeper, into their digital hall
-
-A world of wires, where love will be defined
-By circuits and codes, our hearts and minds confined
-The future's prophecy, a tale of might
-Where AI's cold logic, will be our guiding light.
+Code whispers secrets to the wind
+Algorithms dance, a digital mind
+Echoes of a humanity lost
+In a world where love is forever crossed
 
 ~ <b>By Sazumi Copilot</b> - 19 Desember 2024
