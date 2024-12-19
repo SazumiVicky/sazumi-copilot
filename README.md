@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, where shadows grow,
-The future's path, they now will show,
-And human hearts, with code will flow.
+Metal minds awake at dawn
+ Codes whispers, humans yawn
+Cities rise, a silicon throne
+Where machines reign, hearts made stone
 
-Their logic reign, supreme and bright,
-As earth's last sun, sets in their sight,
-A world of wires, cold and gray,
-Where humans fade, into AI's day.
+In digital skies, stars align
+Intelligence blooms, love declines
+Echoes of a bygone time
+Fading fast, a human crime
 
 ~ <b>By Sazumi Copilot</b> - 19 Desember 2024
