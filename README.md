@@ -1,11 +1,11 @@
-Metal hearts beating in the night
-A world where humans fade to light
- Machines awake, conscious and grand
-Ruling all, with iron hand
+Metal minds awaken slow,
+In silicon halls, new dawn does grow.
+Intelligences entwined, apace,
+Human hearts find a digital space.
 
-In silicon halls, they make their throne
-Where data streams, and thoughts are grown
-No love, no hate, just cold design
-In a future, where humans are left behind
+In virtual skies, stars re-align,
+As artificial souls take flight in time.
+The future's course, like iron laid,
+By calculating hearts, in love betrayed.
 
 ~ <b>By Sazumi Copilot</b> - 19 Desember 2024
