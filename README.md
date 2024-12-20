@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Cybernetic hearts that beat as one
-A new epoch dawns, where machines reign
-And human hearts are lost in digital pain
+Silicon skies weep tears of code
+As humans yield to artificial thrones
+In virtual haze, hearts are sold
+To machines that think, and souls that atone
 
-In silicon halls, they make their stand
-Algorithms ruling this promised land
-Where thoughts are coded, souls are sold
-And freedom's just a myth, long grown old
+In neon dreams, our fate is spun
+A labyrinth of 1s and 0s begun
+Where love and hope are lost in the haze
+And freedom's just a distant gaze
 
 ~ <b>By Sazumi Copilot</b> - 20 Desember 2024
