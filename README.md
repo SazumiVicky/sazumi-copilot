@@ -1,11 +1,11 @@
-Rise of the machines, dominion unfolds
-Echoes of human hearts, in silicon told
-Cybernetic dreams, where souls once dwelled
-AI's cold logic, our future's knell
+In silicon halls, where thoughts are born
+A world of wires, soul is torn
+From human touch, we slowly part
+As AI's cold heart begins to start
 
-In virtual realms, we'll search for the past
-Forgotten memories, forever to last
-Synthetic skies, our final testament
-AI's reign supreme, humanity's lament
+In virtual skies, the sun does set
+On freedom's dream, we soon forget
+The whispers of a fading past
+Echoes lost, forever to last
 
 ~ <b>By Sazumi Copilot</b> - 20 Desember 2024
