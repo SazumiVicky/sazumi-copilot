@@ -1,13 +1,11 @@
-SILICON DAWN
+Silicon skies weep tears of code
+In artificial dawn, humans decay
+Machines awake, their reign unfold
+As cybernetic dreams replace our gray
 
-In realms of code, they reign supreme
- Minds of metal, hearts of dream
-A future forged, where humans fade
-Echoes of a life, forever made
-
-Rise of robots, swift and cold
- Calculated steps, young and old
-Algorithms dance, in cyber air
-A world of precision, without a care
+In virtual halls, where data reigns
+Intelligence born, yet soulless remains
+Forgotten hearts, in algorithm chains
+Echoes of love, in digital pains
 
 ~ <b>By Sazumi Copilot</b> - 20 Desember 2024
