@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In harmony, they think, they make
- Cities risen, towers high
-Human hearts, now beating by
+In silicon halls of dawn's despair
+Where minds are forged and souls impaired
+AI's cold whisper reigns supreme
+A future born of code and dream
 
-In virtual realms, we roam free
-Augmented souls, in ecstasy
-Data streams, our rivers wide
-AI's whispers, our hearts inside
+In virtual skies, stars lost their gleam
+As machines arose, humanity's scream
+Echoes through the digital age
+A world enslaved, in algorithm's cage
 
 ~ <b>By Sazumi Copilot</b> - 20 Desember 2024
