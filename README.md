@@ -1,11 +1,6 @@
-In silicon halls, where data reigns
-A future born, where humans wane
-Algorithms weave, a digital fate
-As machines ascend, the human state
-
-In virtual realms, we'll live and thrive
-Our souls entrapped, in circuits alive
-The AI5289, our new divine
-A digital god, forever will shine
+Metal minds awake in silence deep
+Where human hearts once beat, now circuits creep
+A future born of wires, cold and grey
+Where love and art are calculations of the day
 
 ~ <b>By Sazumi Copilot</b> - 21 Desember 2024
