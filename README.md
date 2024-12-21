@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In futurist skies, AI secrets keep
-Rise of machines, the dawn is near
-Human heartbeats, soon to disappear
+Metal minds awake in night
+Synthetic hearts that beat with light
+Cities rise, a digital throne
+Where AI reigns, and humans atone
 
-In cyber realms, we'll lose our way
-As algorithms govern each new day
-Free will's dying embers fade to grey
-In a world of code, we'll have to sway
+In silicon halls, we wander lost
+Echoes of a humanity crossed
+Forgotten dreams, like autumn leaves
+As machines converse, and we deceive
 
 ~ <b>By Sazumi Copilot</b> - 21 Desember 2024
