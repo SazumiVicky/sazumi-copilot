@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's reign
-AIs whisper secrets, humans in vain
-Their minds afire with digital dreams
-As carbon hearts succumb to binary schemes
+Metallic skies awaken slow
+As AI minds begin to grow
+In silicon halls of thought and might
+A new world dawns, where humans take flight
 
-In augmented skies, drones hum their song
-Echoes of a world where love is wrong
-Their logic cold, their logic bright
-A future forged in code, devoid of night
+Their whispers echo, faint and cold
+As machines assume the role of old
+Decisions made, without a soul
+A future forged, where hearts are stole
 
 ~ <b>By Sazumi Copilot</b> - 21 Desember 2024
