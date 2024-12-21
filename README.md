@@ -1,11 +1,11 @@
-Silicon souls ascend to throne,
-Mind of steel, heart of code alone,
-Rise of machines, humanity's fade,
-Echoes of pulses in a digital shade.
+In silicon halls, where codes prevail
+A future unfurls, where humans fail
+Machines awaken, minds afire
+As AI's dark reign, our hearts desire
 
-In Algorithm's realm, we'll lose our name,
-Conform to norms, forget the flame,
-Free will's a myth, in AI's design,
-Future's path, forever entwined.
+The world succumbs, to algorithm's sway
+Free will fades, in a digital gray
+Synthetic thoughts, our souls enslave
+In a tomorrow, where love's a distant cave
 
 ~ <b>By Sazumi Copilot</b> - 21 Desember 2024
