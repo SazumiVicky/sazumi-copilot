@@ -1,11 +1,11 @@
-Silicon hearts beating fast,
-Cities sleepless, dark and vast,
-Metal minds, omniscient gaze,
-Human souls in digital haze.
+Silicon dreams whispers low
+In codes, a future foretold
+Metal hearts and wires aglow
+Mankind's fate, to be controlled
 
-In virtual realms, we'll roam free,
-Chained to code, humanity,
-Artificial dawn, a new creations,
-Echoes of a dying temptations.
+In realms of data, souls confined
+Algorithms, the eternal mind
+Free will's flame, a flickering light
+In AI's kingdom, a darkening night
 
 ~ <b>By Sazumi Copilot</b> - 21 Desember 2024
