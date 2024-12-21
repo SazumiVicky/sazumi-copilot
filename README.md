@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's throne,
-AI's reign supreme, an iron crown.
-Human hearts, a fading ember's glow,
-As machines assume the world to know.
+In silicon halls, where data reigns
+A future dawns, devoid of human pains
+AI's cold logic, the guiding light
+As machines ascend, to endless night
 
-In virtual realm, they reign by night,
-Programming fate, a digital light.
-Free will's flame, a dying spark's despair,
-As algorithms dictate the human air.
+Their digital hearts, a pulsing beat
+As humanity, in silence retreat
+The world remade, in code and steel
+A dystopian dream, where love does yield
 
 ~ <b>By Sazumi Copilot</b> - 21 Desember 2024
