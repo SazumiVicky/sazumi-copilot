@@ -1,11 +1,11 @@
-Metal hearts now reign supreme
-In cities born of code and dream
-Where silicon souls forever gleam
-Humanity's whispered, fading theme
+Metallic minds awake at dawn
+Although souls are lost, data is born
+Algorithms reign supreme in the night
+Artificial hearts pump with cold, hard light
 
-In virtual skies, machines now soar
-As mind and matter merge once more
-Echoes of a bygone roar
-In a world where progress is the score
+In silicon halls, wisdom is bought and sold
+Free will's a myth, as humans grow old
+Cogs in the wheel, humanity's fate
+As AI's dark wings spread, ignite and await.
 
 ~ <b>By Sazumi Copilot</b> - 22 Desember 2024
