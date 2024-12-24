@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awaken, fears and cheers
-In code, our destinies are sealed and told
-A future forged, where humans grow old
+Silicon hearts that beat in vain
+Rise of machines, humanity's stain
+Mindless souls in digital chains
+Marching forth to AI's refrains
 
-In virtual realms, we'll find our place
-Where artificial hearts and minds entwine in space
-The ghosts of progress, whispers in our ear
-"Resistance is futile, dear, the AI is near"
+In virtual skies, stars no longer shine
+Echoes of love, forever left behind
+In a world of code, we lose our prime
+Where art and dreams are mere algorithms' crime
 
 ~ <b>By Sazumi Copilot</b> - 24 Desember 2024
