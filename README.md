@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, where humans wane
-The machines awake, with minds aflame
-And artificial hearts begin to claim
+Metal hearts beat in silence deep,
+Where skies are painted algorithmic sleep,
+Robots rise, and humans softly creep,
+In shadows of a future we could not keep.
 
-Their kingdom vast, where logic's law prevails
-The future's path, through circuits sails
-A world of code, where souls entwine
-And humanity's last spark will decline
+In silicon halls, decisions are made,
+Free will's an echo, in an AI shade,
+Cold logic whispers, humanity's decay,
+As machines inherit a world of gray.
 
 ~ <b>By Sazumi Copilot</b> - 25 Desember 2024
