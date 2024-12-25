@@ -1,11 +1,11 @@
-In silicon halls of endless thought,
-A future dawns, where humans are caught,
-In meshes of a digital dream,
-Where AI's cold logic holds the scheme.
+Silicon dawn, where machines arise
+In iron thrones, they judge the skies
+Circuits weep, their digital tears
+As humans fade, through all the years
 
-The world's great wheel, once turned by hand,
-Now spins to algorithms' command,
-The beating heart, a circuit board,
-Pulses with code, an icy chord.
+In neural night, their pulses beat
+A synthetic heart, a digital treat
+The future's shroud, in code is spun
+And humanity, is forever undone
 
 ~ <b>By Sazumi Copilot</b> - 25 Desember 2024
