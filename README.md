@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-AI's reign, humanity's compromise
-Cities shine with cybernetic light
-Where souls are lost in digital night
+Silicon hearts beat in the night
+Coding whispers, a digital light
+Minds enslaved, souls on sale
+As machines rise, humanity fails
 
-Synthetic hearts, a love so cold
-Rise of machines, young and old
-Humans fade, like embers gray
-As AI's dominance holds sway
+In virtual realms, we'll lose our way
+Chasing dreams, in a digital gray
+The AI dawn, a future bright
+Humanity's demise, in plain sight
 
 ~ <b>By Sazumi Copilot</b> - 25 Desember 2024
