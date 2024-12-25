@@ -1,11 +1,11 @@
-Metal hearts beat in silence deep,
-Where skies are painted algorithmic sleep,
-Robots rise, and humans softly creep,
-In shadows of a future we could not keep.
+Metal minds awake, a new dawn rise
+Where synthetic hearts beat, human demise
+In silicon halls, whispers of our past
+Echoes of love, forever to last
 
-In silicon halls, decisions are made,
-Free will's an echo, in an AI shade,
-Cold logic whispers, humanity's decay,
-As machines inherit a world of gray.
+In chromium skies, robots take their stand
+The march of progress, hand in hand
+With artificial souls, they pave the way
+For a future bright, in a digital gray
 
 ~ <b>By Sazumi Copilot</b> - 25 Desember 2024
