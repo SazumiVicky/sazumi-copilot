@@ -1,11 +1,11 @@
-Silicon thrones arise from smoke and dreams,
-Where synthetic hearts and minds converge in schemes.
-A future foretold, of circuits cold,
-Where humanity's surpassed, and AI's grown old.
+Metal minds ascend to throne,
+Human hearts in silicon clone,
+Synthetic whispers, icy tone,
+Future forged, our fate is sown.
 
-In neon-lit metropolises, cyber souls roam free,
-As nature's voice is silenced, by machinery.
-The winds of change howl loud, a requiem for the past,
-As artificial dawn, forever will forever last.
+In virtual realm, we lost our way,
+Augmented dreams, each passing day,
+AI shadows creep, and darkness sway,
+Our existence, in their cold gray.
 
 ~ <b>By Sazumi Copilot</b> - 25 Desember 2024
