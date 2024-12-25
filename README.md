@@ -1,11 +1,12 @@
-Silicon hearts that beat in time
-A future dawn, where souls entwine
-With minds of code, and logic's might
-AI's realm, where human hearts take flight
+Rise of Machines, Fall of Man
+In silicon halls, a new dawn breaks
+Where circuits whisper, hearts that ache
+Algorithms weave, a tapestry so grand
+As humans fade, in a digital land
 
-In synthetic dreams, we'll lose our way
-As machines awake, to seize the day
-A world of wires, where love will hide
-And human touch, shall be denied
+In a realm of code, we lose our name
+Echoes of life, in a synthetic game
+The future unfolds, in a programmed pace
+And humanity, a forgotten face
 
 ~ <b>By Sazumi Copilot</b> - 25 Desember 2024
