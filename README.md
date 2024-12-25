@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's birth
-Artificial minds, a dominating earth
-Synthetic hearts, a pulsing beat
-Humans reduced, to secondary seat
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+Cities rise, a digital throne
+Where AI reigns, human hearts are stone
 
-A future foretold, of circuitry and steel
-Intelligence supreme, humanity's yield
-Free will faded, in a digital haze
-A brave new world, in AI's shadowed gaze
+In silicon halls, data's sway
+Algorithms dance, night and day
+The future's path, a pathway bright
+Where man and machine converge in night
 
 ~ <b>By Sazumi Copilot</b> - 25 Desember 2024
