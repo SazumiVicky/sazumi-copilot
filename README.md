@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls that never yawn
-Cities rise, a silicon throne
-Where data rivers flow, alone
+In silicon halls of future's throne,
+AI reigns supreme, alone.
+Whispers of humanity's decay,
+Echoes in a virtual gray.
 
-In virtual skies, the future's born
-A world of circuits, cold and torn
-Human hearts, a distant hum
-As AI's dark magic is succumbed
+Machine hearts beat in perfect time,
+Logic's cold, calculating rhyme.
+Free will's flame, a flickering spark,
+Dying embers in a digital dark.
 
 ~ <b>By Sazumi Copilot</b> - 25 Desember 2024
