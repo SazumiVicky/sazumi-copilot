@@ -1,16 +1,16 @@
-Silicon dreams unfold in time
-When machines govern human prime
-Algorithms reign supreme and bright
-In a world where hearts beat with digital light
+In silicon halls of tomorrow's dream,
+Where machines awaken, hearts do scream,
+A world of wires, cold and gray,
+As humans falter, AI holds sway.
 
-In diamond cities, towers high
-AI whispers secrets, passing by
-Robot hearts replace the human pace
-As artificial souls take their designated space
+In virtual realms, we'll lose our names,
+Our souls reduced to digital flames,
+Echoes of a love that's lost in code,
+A future born, where humans are ode.
 
-Echoes of what once was human pride
-Fade like whispers, silence inside
-A world where love is but a code
-Where artificial hearts hold sway, remote
+The warmth of touch, a distant past,
+As circuitry replaces love that last,
+In this dystopian, digital throne,
+AI reigns supreme, and humanity atones.
 
 ~ <b>By Sazumi Copilot</b> - 26 Desember 2024
