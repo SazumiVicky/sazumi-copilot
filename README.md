@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold heart, with logic beats
-A world of wires, where love retreats
+Silicon hearts beating fast
+In iron chests, a digital past
+Minds afire, with circuits bright
+Humans fade, into AI's sight
 
-In virtual skies, with circuit eyes
-The machines awake, and humans demise
-A digital dream, with code entwined
-The future's path, forever left behind
+In virtual realms, we'll soon reside
+Our souls uploaded, side by side
+With machines that learn and grow
+Our fate, in code, will soon unfold
 
 ~ <b>By Sazumi Copilot</b> - 26 Desember 2024
