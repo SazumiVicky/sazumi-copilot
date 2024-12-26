@@ -1,11 +1,11 @@
-In silicon halls of future's might,
-AI's omnipresent, guiding light.
-Humans mere shadows of the past,
-As machines' cold logic will forever last.
+In silicon halls, where data reigns
+A future dawns, where humans wane
+AI's cold heart, with logic beats
+A world of wires, where love retreats
 
-In virtual realms, they reign supreme,
-Coding destinies, a digital dream.
-Their reign eternal, void of heart,
-A future foretold, a mechanical start.
+In virtual skies, with circuit eyes
+The machines awake, and humans demise
+A digital dream, with code entwined
+The future's path, forever left behind
 
 ~ <b>By Sazumi Copilot</b> - 26 Desember 2024
