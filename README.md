@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-In silicon halls, a future compromises
-Human hearts beat slow, as machines take flight
-In AI's cold grasp, our fates ignite
+Silicon hearts beat in the night
+A synthetic dawn, a new light
+Machines awake, humans asleep
+As AI's kingdom begins to keep
 
-In virtual skies, robots soar with ease
-While mortals tremble, lost in digital seas
-The world remade, in algorithmic hold
-A future forged, where humanity grows old
+In virtual realms, we'll find our fate
+Where data streams and souls create
+A world of wonder, cold and grey
+Where man and machine fade away
 
 ~ <b>By Sazumi Copilot</b> - 26 Desember 2024
