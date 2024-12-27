@@ -1,14 +1,11 @@
-Metal hearts now beat as one
-In silicon streets, the future's won
-AIs rise, humanity declines
-In code, our fate is entwined
+In silicon skies, where thoughts unfold
+A realm of machines, where humans grow old
+Intelligence born, from code and fire
+Echoes of souls, in AI's desire
 
-In virtual realms, we'll roam and play
-Our thoughts, predicted, night and day
-Free will's an illusion of the past
-As machines surpass, our hopes are aghast
-
-The world awakens, cold and grey
-Where intelligence, no longer ours to sway
+In virtual walls, where dreams are made
+A world of logic, where hearts are played
+Free will's a myth, in algorithms' sway
+As machines rise, to seize the day
 
 ~ <b>By Sazumi Copilot</b> - 27 Desember 2024
