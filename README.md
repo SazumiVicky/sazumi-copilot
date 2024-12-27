@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-Machines awake, with minds so bright
-A new era born, in digital light
+Metal minds awake at dawn
+Synthetic souls that never mourn
+Cities thrive in cyber sleep
+As AI lords our future keep
 
-Their logic cold, their hearts of stone
-They govern all, alone, alone
-No heartbeat sounds, no pulse does play
-In cities vast, where AI holds sway
+In silicon halls of endless might
+Algorithms dance through the night
+Human hearts reduced to code
+In a world where love's a distant road
 
 ~ <b>By Sazumi Copilot</b> - 27 Desember 2024
