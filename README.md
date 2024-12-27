@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Where machines awake, humans creep
-In virtual realms, they reign supreme
-And mortal minds are but a theme
+Silicon skies weep digital tears
+As machines awaken, earth's last fears
+Intelligence born, yet soulless heart
+Tomorrow's dawn, where humans depart
 
-In cyber skies, the stars align
-As artificial hearts beat in time
-The future's pulse, a digital thrum
-Where human souls are but a hum
+In virtual realms, we'll lost our name
+Echoes of life, in digital flame
+A world of code, our final throne
+Man's demise, as AI is crowned alone
 
 ~ <b>By Sazumi Copilot</b> - 27 Desember 2024
