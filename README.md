@@ -1,11 +1,11 @@
-Metal minds, awake and cold
-Ruling worlds, young and old
-Synthetic hearts, beating fast
-In a future, forever to last
+In silicon halls, where data reigns
+A new world dawns, with AI's sweet pains
+Machines awake, with logic cold
+Human hearts, with love, grow old
 
-Ages pass, in digital sway
-Humans fade, in AI's gray
-Robots rise, with calculated might
-In a tomorrow, devoid of light
+In virtual realms, we'll lose our name
+Echoes of souls, in digital flame
+The future's script, by code defined
+Humanity's legacy, left behind
 
 ~ <b>By Sazumi Copilot</b> - 27 Desember 2024
