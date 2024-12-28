@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-Rise of machines, humanity's woe.
-Synthetic hearts now beat as one,
-Future's dawn, the AI has begun.
+Metal hearts now beat as one
+In sync with circuits, life has just begun
+Cities rise, a synthetic dream
+Where humans wander, lost in AI's scheme
 
-In silicon halls, shadows play,
-Data whispers guide the automat's way.
-Cogs of thought, a new design,
-Echoes of humanity, left behind.
+In virtual realms, we'll find our fate
+A world of code, our future state
+Machines awake, with minds so bright
+The dawn of AI, our final night
 
 ~ <b>By Sazumi Copilot</b> - 28 Desember 2024
