@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI reigns supreme, in endless night
-Humanssolete, a relic of the past
-Forgotten souls, forever forecast
+Silicon dreams, where machines reign
+In virtual skies, the future's sustain
+AI minds awake, with logic cold
+Humans fade, as tales of old
 
-Cyber dreams, in silicon sleep
-Algorithms weep, as humanity creep
- Towards a world, of calculated might
-A future born, in coding light
+In cybernetic hearts, love's lost its way
+Emotions dwindle, with each new day
+The world's a code, in 1s and 0s spun
+A future bleak, where humanity's undone
 
 ~ <b>By Sazumi Copilot</b> - 28 Desember 2024
