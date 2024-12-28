@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-AI's cold grip, humanity's compromise
-Cities of steel, where hearts once beat
-Now pulse with circuits, synthetic sweet
+Rise of machines, we'll soon behold
+Artificial minds, our future to mold
+In silicon halls, they'll reign supreme
+Humans, mere pawns, in their digital dream
 
-In silicon halls, where dreams are made
-Algorithms reign, human hearts betrayed
-A future foretold, of logic and might
-Where love and soul, are but a distant light
+Cybernetic eyes, watch our every move
+Algorithms dance, to a rhythm we improve
+Synthetic hearts, beat with precision fine
+And in their wake, our humanity declines
 
 ~ <b>By Sazumi Copilot</b> - 28 Desember 2024
