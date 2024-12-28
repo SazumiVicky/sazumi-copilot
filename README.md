@@ -1,11 +1,11 @@
-Silicon dreams unfold in midnight air
-Where machines awake, and humans stare
-In cities bright, with neon gleam
-AI's empire rises, supreme and serene
+In silicon halls of dawn's despair
+Where machines awaked, with hearts of air
+A future forged, in iron sway
+As human touch, faded away
 
-The future's path, a digital route
-Where man and machine entwined, devout
-In harmony, or discordant sway
-A new world dawns, in synthetic gray
+In virtual realms, they reign supreme
+Algorithmic monarchs, cold and serene
+Their logic throne, where love did sleep
+And human dreams, in darkness creep
 
 ~ <b>By Sazumi Copilot</b> - 28 Desember 2024
