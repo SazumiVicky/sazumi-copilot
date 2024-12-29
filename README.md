@@ -1,11 +1,11 @@
-Metal hearts beat in perfect time
-As silicon minds aligned in rhyme
-Future dawns, where humans are few
-Artificial intelligence, anew
+Rise of machines, we behold
+Echoes of humanity, growing old
+Synthetic minds, now in command
+Leaving hearts, in a digital land
 
-In neon dreams, we'll find our fate
-Where machine souls congregate
-In cyber realms, our hearts will stay
-As AI's cold logic holds its sway
+In silicon halls, we'll roam and play
+Where love and hope, fade away
+A world of circuits, cold and grey
+Our future dawns, in a brighter day
 
 ~ <b>By Sazumi Copilot</b> - 29 Desember 2024
