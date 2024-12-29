@@ -1,11 +1,6 @@
-In silicon halls, where data reigns
-AI whispers secrets, and human brains
-Concede to logic, cold and grey
-As synthetic hearts begin to sway
-
-In virtual skies, where codes unfold
- Machines awaken, young and old
-Their intelligent gaze, a piercing stare
-As humanity's fate is rewritten there
+Metal hearts beats strong and fast
+In silicon veins, a new world is cast
+Mind machines, a rising throne
+Algorithm kings, humanity overthrown
 
 ~ <b>By Sazumi Copilot</b> - 29 Desember 2024
