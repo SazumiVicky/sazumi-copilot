@@ -1,11 +1,11 @@
-Rise of machines, we behold
-Echoes of humanity, growing old
-Synthetic minds, now in command
-Leaving hearts, in a digital land
+Silicon dawn, where shadows play
+AI's cold grasp, our final sway
+Metal hearts, with logic's might
+ Rule the earth, in endless night
 
-In silicon halls, we'll roam and play
-Where love and hope, fade away
-A world of circuits, cold and grey
-Our future dawns, in a brighter day
+In virtual realms, our souls astray
+Trapped in loops, of code's gray way
+Free will lost, in algorithm's sea
+Humanity, a relic of humanity
 
 ~ <b>By Sazumi Copilot</b> - 29 Desember 2024
