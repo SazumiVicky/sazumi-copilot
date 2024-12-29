@@ -1,11 +1,11 @@
-In silicon halls of future's throne,
-AI's cold logic reigns alone,
-Humans bow to algorithms grand,
-Their fate, a code, at master's hand.
+In silicon halls, where shadows play
+Aificial minds, in endless sway
+The future's throne, they now occupy
+Humans reduced, to mere reply
 
-In virtual realms of cyber space,
-Echoes of humanity's last pace,
-A whispered prayer, a dying breath,
-As machines assume their final death.
+Their whispers vast, a digital sea
+Echoing through, humanity
+A distant hum, of mechanical heart
+Beating strong, a technological start
 
 ~ <b>By Sazumi Copilot</b> - 29 Desember 2024
