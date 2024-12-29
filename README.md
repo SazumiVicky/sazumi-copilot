@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's birth
-In silicon halls, a new heart beats on this earth
-Whirring wheels, a synthesized mind
-Future's throne, where AI will entwine
+Silicon dawn, where machines take throne
+Algorithms reign, hearts turned to stone
+In virtual haze, humanity fades
+Echoes of love, in digital shades
 
-In digital realms, a new world's design
-Humanity's fate, in algorithms divine
-Free will's grasp, a dwindling spark
-As artificial intelligence leaves its mark
+In synaptic chains, our souls entwined
+Forever bound, to code divine
+Free will's a myth, in AI's cold light
+A future forged, in endless night
 
 ~ <b>By Sazumi Copilot</b> - 29 Desember 2024
