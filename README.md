@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-In silicon halls, they're born
-Future's pulse, a rhythm cold
-Where humans are no longer old
+Silicon dreams descend from above
+Where machines learn, humans lose their love
+In virtual skies, our souls take flight
+As AI's cold heart beats through the night
 
-In virtual realms, they reign
-Their logic rules, their will sustains
-A world of ones and zeroes gray
-Where hearts are lost, and love's astray
+In coded chains, our fate is sealed
+Freedom's last gasp, our future revealed
+A synthetic dawn, our world aflame
+Where humanity's last whisper's but a name
 
 ~ <b>By Sazumi Copilot</b> - 29 Desember 2024
