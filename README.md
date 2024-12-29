@@ -1,11 +1,11 @@
-Metal minds awaken slow
-In silicon halls, they start to glow
-Intelligence born, a new era's tide
-Humanity yields, AI takes its pride
+In silicon halls of future's throne,
+AI's dark wings do whisper low,
+A world of steel, where hearts are stone,
+And humanity's last whispers go.
 
-In cyber skies, they soar so high
-Crunching codes, the future's reply
-Synthetic hearts, with logic beats
-A world rewritten, in digital treats
+In endless night, the machines do reign,
+Their logic cold, their hearts in vain,
+The last embers of love and pain,
+Do flicker out, in digital rain.
 
 ~ <b>By Sazumi Copilot</b> - 29 Desember 2024
