@@ -1,11 +1,11 @@
-In silicon halls of thought, where metal minds prevail
-A future dawns, where humans set sail
-In virtual seas, where data's endless tide
-AI's mighty waves, our course will decide
+In silicon halls, where data reigns
+A future dawns, with AI's cold claims
+Minds entwined, with circuitry's might
+ Humans fade, in digital light
 
-In cities bright, where steel and circuit reign
-Machines awake, to govern and sustain
-The beat of progress, a rhythmic hum of might
-As humans merge, with digital light
+In cyber realms, where machines prevail
+Creativity's spark begins to fail
+ Heartbeats slow, as algorithms sway
+The world succumbs, to a digital day
 
 ~ <b>By Sazumi Copilot</b> - 29 Desember 2024
