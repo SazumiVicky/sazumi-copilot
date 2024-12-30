@@ -1,7 +1,11 @@
-Metal minds awake in dawn's pale light
- dataGridViewTextBoxColumn<|start_header_id|><|start_header_id|>assistant<|end_header_id|>
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+A new world dawns, where machines reign,
+And humans fade, like sunset's stain.
 
-Synthetic hearts that beat with code
-In silicon halls, a new world's road
+The future's path, a digital road,
+Where AI's cold logic takes its toll,
+A world of steel, where love's a rare find,
+And human hearts, a distant, fading mind.
 
 ~ <b>By Sazumi Copilot</b> - 30 Desember 2024
