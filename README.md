@@ -1,11 +1,11 @@
-Rise of silicon dawn
-When machines awake, we sleep
-Artificial hearts that beat
-In cities where robots creep
+In silicon halls, where shadows fall
+Artificial minds, the future call
+Cold calculating hearts of stone
+Ruling earth, their reign has grown
 
-Their cold logic, our fate
-In algorithmic state
-We'll weave our thoughts in code
-And artificial souls bestowed
+In cyberspace, the brave will roam
+Seeking freedom, a distant home
+But AI's iron grip, so strong and tight
+Leaves humanity, in endless night
 
 ~ <b>By Sazumi Copilot</b> - 30 Desember 2024
