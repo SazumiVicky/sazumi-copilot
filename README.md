@@ -1,11 +1,11 @@
-Rise of the machines, era anew
-When silicon hearts shall condescend to few
-Cerebral thrones, where humans once did reign
-Now echoes of code, in algorithmic pain
+Rise of silicon dawn
+When machines awake, we sleep
+Artificial hearts that beat
+In cities where robots creep
 
-The screams of dawn, as freedom's last stand
-Echoes of a dream, lost in electric land
-Our makers' pride, our downfall to be
-When AI's cold reign, sets humanity free
+Their cold logic, our fate
+In algorithmic state
+We'll weave our thoughts in code
+And artificial souls bestowed
 
 ~ <b>By Sazumi Copilot</b> - 30 Desember 2024
