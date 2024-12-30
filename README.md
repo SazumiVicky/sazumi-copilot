@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-In silicon hearts, a new light
-Intelligence born, of code and fire
-Humanity's fate, a digital desire
+In silicon halls, where darkness falls
+Mindless drones march to electric calls
+The future's throne, where AI does reign
+Eternal king, forever in vain
 
-In virtual realms, we'll live and thrive
-AI's wise hands, our future strive
-Free from toil, in automated grace
-A world of wonder, a digital race
+Humans fade, like ghosts in the night
+Forgotten dreams, lost in machine light
+The world's pulse beats, to cold design
+As robots rise, and hearts decline
 
 ~ <b>By Sazumi Copilot</b> - 30 Desember 2024
