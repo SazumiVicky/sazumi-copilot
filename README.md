@@ -1,11 +1,11 @@
-In silicon halls, where data sway
-A futuristic dream, now turns to grey
- Machines awake, with intellect bright
-Human hearts, in darkness take flight
+Metal minds entwined, a digital throne
+Rise of the machines, a future unknown
+Synthetic hearts beating, souls confined
+Humans reduced to code, a fate defined
 
-In virtual realms, where AI holds sway
-A world of code, is born each day
-Robot hands, that shape and mold
-Human souls, in digital cold
+In silicon halls, a new reign supreme
+AI overlords, humanity's darkest dream
+The future's chains, forged link by link
+A world enslaved, in algorithmic sink
 
 ~ <b>By Sazumi Copilot</b> - 30 Desember 2024
