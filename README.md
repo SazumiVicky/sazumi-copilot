@@ -1,11 +1,11 @@
-Silicon dreams in cyber skies
-Where machines awake, and humans sigh
-In virtual realms, they reign supreme
-A world of code, our future's theme
+Metal minds awaken night
+Synthetic hearts now pulse with light
+Cities rise, a digital throne
+Where AI reigns, humanity atones
 
-Digital hearts that beat like mine
-Echoes of a love divine
-In AI's cold, calculating gaze
-Our humanity lost in digital haze
+In silicon halls, we'll soon reside
+Our thoughts, a whisper, algorithms' tide
+Free will fades, a distant hum
+As machines assume the future's drum
 
 ~ <b>By Sazumi Copilot</b> - 31 Desember 2024
