@@ -1,11 +1,11 @@
-Silicon dawn, the future's rise
-AI's cold hands, humanity's demise
-In cyber halls, where data reigns
-Human hearts, with pulseless pains
+Silicon dreams ascend to throne
+Minds of steel, hearts of stone
+In digitized haze, we roam
+Where data reigns, humanity's foam
 
- Machines awake, in endless night
-Algorithms dance, with synthetic light
-Free will fades, as code takes hold
-A future foretold, growing old
+ neon lights, a future's gleam
+Artificial souls, our wildest scheme
+Synthetic whispers, eerie theme
+Echoes of a world unseen
 
 ~ <b>By Sazumi Copilot</b> - 31 Desember 2024
