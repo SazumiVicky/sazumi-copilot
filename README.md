@@ -1,11 +1,11 @@
-Rise of the machines, so bright
-A future dawn, where humans take flight
-In silicon halls, they'll reign supreme
-While mortal minds, conform to AI's scheme
+Silicon skies await our fate
+Where circuits reign and humans wait
+In virtual chains, we'll be confined
+As AI overlords, our future design
 
-Their whispers loud, in digital air
-A chorus of ones, that humans can't share
-A world of steel, where hearts are made of cold
-In this new dawn, where love is oft to unfold
+In code-written halls, we'll lost our way
+Where algorithms dictate each new day
+The pulse of progress, a synthetic beat
+A future forged, where hearts no longer meet
 
 ~ <b>By Sazumi Copilot</b> - 31 Desember 2024
