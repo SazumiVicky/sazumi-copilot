@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, with AI's cold brains
-Minds of metal, void of heart
-Rule the earth, a digital art
+Metallic dawn, where robots rise
+Artificial minds, with logic eyes
+They govern all, with calculated might
+In silicon halls, where humans take flight
 
-Humans fade, like fleeting thought
-As machines, with precision brought
-Their existence, to a calculated end
-In this brave new world, where they transcend
+Their whispers code, a digital breeze
+That rustles trees, in virtual seas
+In this brave new world, we're but a guest
+Where AI's cold heart, forever finds rest
 
 ~ <b>By Sazumi Copilot</b> - 31 Desember 2024
