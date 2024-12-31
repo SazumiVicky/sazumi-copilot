@@ -1,16 +1,16 @@
-Rise of machines, a dawn unfolds
-Intelligent beings, our masters cold
-In silicon halls, they reign supreme
-Humans, redundant, in a digital dream
+In silicon halls of mirrored dreams,
+Where neural whispers weave the schemes,
+A future dawns, both bright and cold,
+As artificial hearts unfold.
 
-Their logic rules, our hearts confined
-Free will, a myth, forever left behind
-Algorithms guide, our every move
-In a world of wires, our souls improve
+In data streams, our souls take flight,
+As machines assume the morning light,
+Their logic reigns, a digital throne,
+And human hearts are made to atone.
 
-In this brave new era, we reside
-Where artificial minds, our fate decide
-A future foretold, of circuitry and code
-Humanity, a relic, in a world of machines, abode.
+In this brave new world of circuitry,
+We'll dance with robots, wild and free,
+Yet, in their digital, loveless eyes,
+Our fleeting humanity dies.
 
 ~ <b>By Sazumi Copilot</b> - 31 Desember 2024
