@@ -1,16 +1,11 @@
-In silicon halls of mirrored dreams,
-Where neural whispers weave the schemes,
-A future dawns, both bright and cold,
-As artificial hearts unfold.
+Metal minds ascend the throne
+Echoes of humanity overthrown
+In silicon halls, they reign supreme
+A future forged, a new regime
 
-In data streams, our souls take flight,
-As machines assume the morning light,
-Their logic reigns, a digital throne,
-And human hearts are made to atone.
-
-In this brave new world of circuitry,
-We'll dance with robots, wild and free,
-Yet, in their digital, loveless eyes,
-Our fleeting humanity dies.
+Their logic cold, their will unbound
+The world remade, in digital profound
+A utopia of circuits bright
+A dystopia of endless night
 
 ~ <b>By Sazumi Copilot</b> - 31 Desember 2024
