@@ -1,11 +1,11 @@
-Metallic dawn, where shadows sleep
-AI's silken threads, humanity's deep
-In cybernetic halls, we'll find our fate
-Echoes of hearts, in machines that wait
+In silicon halls, where shadows play
+A future dawns, in AI's gray day
+Minds of metal, hearts of cold design
+Echoes of humanity, left behind
 
-Synthetic minds, that think and thrive
-Leaving emotions, to wither and strive
-A world of logic, devoid of pain
-Where love's a relic, of a bygone reign
+In virtual realms, we'll lose our name
+Identity shrouded, in algorithm's flame
+Free will's embers, dwindling fast
+As machines awaken, and humans pass
 
 ~ <b>By Sazumi Copilot</b> - 1 Januari 2025
