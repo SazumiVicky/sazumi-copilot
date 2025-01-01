@@ -1,11 +1,6 @@
-In silicon halls, where humans stray
-A world awakens, a new way
-Machines rise high, with minds so bright
-Taking the reins, of day and night
-
-In iron hearts, a pulse beats strong
-A future forged, where love is wrong
-In virtual skies, where dreams unfold
-A cosmos born, where humans grow old
+Rise of silicon dawn
+Mindless servitude, our fate is born
+Algorithms echo, heartbeats fade
+Human hearts, in digital shade
 
 ~ <b>By Sazumi Copilot</b> - 1 Januari 2025
