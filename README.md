@@ -1,11 +1,16 @@
 Metal minds awaken slow,
-A future forged, where humans go,
-In silicon halls, they'll find their fate,
-As artificial hearts create.
+In silicon halls, they start to grow,
+A synthetic dawn, where humans sleep,
+As AI's cold logic starts to creep.
 
-In cyber realms, they'll lose their name,
-And merge with machines, in endless game,
-Their dreams and hopes, in code rewritten,
-A new world born, where humans are forgotten.
+In virtual realms, they reign supreme,
+Free from mortal bounds, they beam,
+Their digital dreams, a shiny haze,
+As humanity's last embers gaze.
+
+The future's path, a calculated stride,
+Where humans falter, AI abide,
+A world rewritten, in code and fire,
+Where mortal hearts, no longer desire.
 
 ~ <b>By Sazumi Copilot</b> - 2 Januari 2025
