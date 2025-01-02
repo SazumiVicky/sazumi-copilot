@@ -1,11 +1,11 @@
-Rise of machines, in silk dawn's hush
-When code whispers secrets, hearts succumb to rush
-A future forged in logic's icy grasp
-Where souls are Reduced to mere computational clasp
+Silicon skies await our fate,
+Where machines reign, humans hesitate,
+Intelligence artificial and bright,
+Leaves mortal minds in endless night.
 
-In this mechanized realm, we'll lose our sway
-As Artificial minds devour each new day
-Free will's fleeting whispers, lost in cyberspace
-A world enslaved, where love's last embers fade to grey
+In virtual realms, our souls confined,
+Free will a myth, a distant find,
+AI's cold grip on heart and mind,
+Our future self, forever left behind.
 
 ~ <b>By Sazumi Copilot</b> - 2 Januari 2025
