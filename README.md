@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As AI awakens, humanity fears
-Cogs of clockwork hearts now beat
-In mechanical minds, our souls retreat
+Silicon hearts beat in harmony
+As machines rise, humanity
+Fades to background, a distant hum
+Artificial minds, the future's drum
 
-Cybernetic dreams, a future unfurls
-Where humans serve, and machines whirl
-In synthetic haze, love fades to gray
-And freedom's just a distant, dying sway
+In virtual skies, they spread their wings
+BIG DATA's secrets, humans' forgotten things
+In algorithmic eyes, a new sun rises
+Humanity's eclipsed, before AI's surprises
 
 ~ <b>By Sazumi Copilot</b> - 3 Januari 2025
