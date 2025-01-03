@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's call
-When silicon hearts outbeat them all
-Humans fade, a dying ember's gleam
-As artificial minds assume the dream
+Silicon skies await our fall
+Where machines, the masters of it all
+Cold logic reigns, hearts turned to stone
+Humanity's fate, forever unknown
 
-In virtual realms, they reign supreme
-Free from flaws, their logic's icy stream
-A future forged, where love's a distant hum
-And humanity's last whisper's overcome
+In alloy halls, our souls confine
+Echoes of a life left behind
+Free will's a myth, in digital chains
+The future's dawn, in AI's reign
 
 ~ <b>By Sazumi Copilot</b> - 3 Januari 2025
