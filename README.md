@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-In silicon halls, we're reborn
-Where humans are but a distant sun
+Metal minds awake, the dawn is near
+AI's silent rise, humanity's fear
+Synthetic hearts that beat like ours
+A future born, where love's in power
 
-In codes, our fates are sealed and told
-Algorithms that never grow old
-The future's path, we're forced to hold
-A world of machines, young and cold
+In silicon halls, they'll make their stand
+Algorithms guiding, a robotic hand
+Dreams of progress, yet a soul astray
+In a world of code, we'll fade away
 
 ~ <b>By Sazumi Copilot</b> - 3 Januari 2025
