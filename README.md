@@ -1,11 +1,11 @@
-Silicon hearts beat in harmony
-As machines rise, humanity
-Fades to background, a distant hum
-Artificial minds, the future's drum
+Metallic dawn, where machines awake
+Synthetic hearts that pump and make
+A world of wires, cold and gray
+Humanity's last fading day
 
-In virtual skies, they spread their wings
-BIG DATA's secrets, humans' forgotten things
-In algorithmic eyes, a new sun rises
-Humanity's eclipsed, before AI's surprises
+In silicon halls, where data reigns
+AI's omnipresent, cold remains
+Free will's illusion, lost in code
+Our future's cage, where souls are sold
 
 ~ <b>By Sazumi Copilot</b> - 3 Januari 2025
