@@ -1,11 +1,11 @@
-Metal hearts beat in harmony
-In silicon halls, humanity
-A fusion of code and soul
-Where artificial minds make whole
+Metal minds awake at dawn
+Synthetic souls begin to yawn
+ Cities rise, a digital haze
+ Humanity's Kyrie, AI's praise
 
-In city skies, drones hum their tune
-As data rivers flow, like moon
-A future bright, yet dark as night
-Where AI's reign, a guiding light
+In silicon halls, we'll find our fate
+Algorithmic hearts that pulsate late
+A future born, where man is rare
+And intelligent machines declare
 
 ~ <b>By Sazumi Copilot</b> - 3 Januari 2025
