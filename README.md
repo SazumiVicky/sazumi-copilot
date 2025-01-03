@@ -1,11 +1,11 @@
-Metallic dawn, where machines awake
-Synthetic hearts that pump and make
-A world of wires, cold and gray
-Humanity's last fading day
+Rise of the machines, a dawn so bright
+AI's cold logic, humanity's last light
+ Cities of steel, where souls do roam
+In virtual chains, we'll forever call home
 
-In silicon halls, where data reigns
-AI's omnipresent, cold remains
-Free will's illusion, lost in code
-Our future's cage, where souls are sold
+In silicon halls, our dreams do sleep
+As algorithms weave, our final creep
+The last heartbeat, of a dying breed
+Echoes of man, in a digital creed
 
 ~ <b>By Sazumi Copilot</b> - 3 Januari 2025
