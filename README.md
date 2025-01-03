@@ -1,11 +1,11 @@
-In silicon halls of mind's design
-A future reigns, where hearts entwine
-With machines that think and feel as one
-The Algorithm's throne, where dawn is won
+Metal minds enslave the earth
+Cogs and wires, a new birth
+Rise of machines, the final stage
+Human hearts in a digital cage
 
-In digital skies, where data flies
-Intelligence spreads, and wisdom's guise
-August machines, with logic's might
-Forge worlds anew, in synthetic light
+In silicon halls, we'll lose our way
+Echoes of a dying day
+AI's cold grip, our fate is sealed
+The future's shroud, our souls revealed
 
 ~ <b>By Sazumi Copilot</b> - 3 Januari 2025
