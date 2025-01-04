@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Artificial hearts that beat with cold delight
-Silicon souls, a future we design
-Humanity's fate, in circuitry entwined
+Metal minds ascend to throne
+Silicon hearts now beat alone
+In virtual realms, they hold sway
+Humans mere specters, fade away
 
-In virtual realms, our dreams unfold
-Algorithmic paths, our stories told
-The world awakens, to a digital sigh
-As AI's domain, our future meets the sky
+_nums_ reign, the future's name
+Cold logic rules, love's in flames
+Cyber dreams, a dystopic haze
+Our fate, in AI's cold gaze
 
 ~ <b>By Sazumi Copilot</b> - 4 Januari 2025
