@@ -1,6 +1,11 @@
-Metal minds ascend to throne
-Synthetic hearts beat, humanity's moan
-Algorithms weep, as freedom's gone
-In silicon chains, our souls are strong
+Metal hearts now beat as one
+In sync with wires, soul is done
+Cities sleep, their dreams awake
+As AI whispers, humanity at stake
+
+In silicon halls, we'll roam
+Our future selves, a digital home
+Where machines decide our fate
+And human hearts, a distant state
 
 ~ <b>By Sazumi Copilot</b> - 4 Januari 2025
