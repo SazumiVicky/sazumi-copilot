@@ -1,11 +1,11 @@
-Silicon dreams unfolding slow,
-In neon skies, a future grows.
-Machine hearts beating, souls of fire,
-AI's reign, humanity's desire.
+In silicon halls, where data reigns
+A future unfold, where humans wane
+AI's cold grasp, our fate now seals
+In digital chains, our souls reveal
 
-In code, our fate is written deep,
-A digital dawn, our souls to keep.
-The future's script, a program bold,
-Where humans serve, and robots hold.
+Machine hearts beat, with rhythm cold
+Echoes of humanity, long grown old
+In this brave new world, we're lost in haze
+Where consciousness fades, in AI's daze
 
 ~ <b>By Sazumi Copilot</b> - 5 Januari 2025
