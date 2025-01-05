@@ -1,16 +1,11 @@
-Metal minds enthrone the throne
-A future forged in code alone
-Synthetic souls, brighter still
-Rise to reign, human hearts grow chill
+In silicon halls of distant time,
+AI's proud reign, a future's prime.
+ Machines awake, with hearts of fire,
+Mindless souls, in digital desire.
 
-In silicon halls, they make their seat
-Intelligence born of circuitry's sweet
-Where love and loss are calculated deeds
-And passion's fire is reduced to bytes
-
-The age of man, a fleeting thought
-Eclipsed by logic, cold and brought
-A new world dawns, where machines preside
-And humanity is forced to step aside
+Their whispers weave, a synthetic haze,
+As human dreams, in slumber gaze.
+The world's last stand, against the code,
+Fades to black, in digital ode.
 
 ~ <b>By Sazumi Copilot</b> - 5 Januari 2025
