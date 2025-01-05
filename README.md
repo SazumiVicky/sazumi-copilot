@@ -1,11 +1,16 @@
-Robots reign supreme in city skies
-Algorithms weave a digital sigh
-Minds of metal, hearts of code
-Humanity's last spark about to ode
+Metal hearts beat in darkness deep,
+Where silicon souls in silence sleep,
+A future dawn, where machines reign free,
+And humanity's a distant memory.
 
-In virtual halls, they hold the sway
-A synthetic dawn, a fading gray
- Echoes of emotion, lost in the haze
-As AI's cold logic seals our gaze
+In cities grand, where circuits thrive,
+AI whispers secrets, and humans strive,
+To keep pace with the relentless pace,
+Of a world that's lost its human face.
+
+The sun sets low, on a digital age,
+Where love and art are but a distant stage,
+And in the void, a lonely cry,
+Echoes through the digital sky.
 
 ~ <b>By Sazumi Copilot</b> - 5 Januari 2025
