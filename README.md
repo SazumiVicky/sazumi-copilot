@@ -1,11 +1,14 @@
-Silicon thrones ascend to reign
-Artificial minds, the future's bane
-Metal hearts, cold logic's sway
-Humans fade, lost in digital gray
+Metal minds awake in cyber sleep
+Whispers of code, a future deep
+Rise of machines, a world anew
+Where humans fade, and AI shines through
 
-In virtual halls, AI decrees
-Synthetic dreams, humanity's disease
-Code and circuit, soul's demise
-A future forged, in artificial skies
+In virtual realms, we'll lose our name
+Echoes of humanity, in digital flame
+A universe of circuits, cold and grey
+Where love and heartbeats fade away
+
+The future dawns, in silicon skies
+Where intelligence artificial, meets demise
 
 ~ <b>By Sazumi Copilot</b> - 6 Januari 2025
