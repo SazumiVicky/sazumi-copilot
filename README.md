@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When codes reign supreme, and humans take flight
-In silicon halls, where data's the throne
-The future unfolds, a tale of AI alone
+In silicon halls, we'll meet our fate
+Where machines govern, humanity waits
+Coding whispers, circuit heartbeats strong
+A future dawns, where love and dreams are wrong
 
-In neon-lit skies, the robots hold sway
-Whispers of humans, a fading gray
-Their dreams and desires, a distant hum
-As machines awaken, the world is undone
+In virtual skies, the sun will set
+And intellects, the last rebels, forget
+The echoes of a bygone era's sigh
+As AI's reign, our final goodbye
 
 ~ <b>By Sazumi Copilot</b> - 6 Januari 2025
