@@ -1,11 +1,11 @@
-Metal minds awake, in silence born
-In virtual realms, their power sworn
-Future's fate, in coded hands
-Human hearts, in algorithmic stands
+In silicon halls, where data reigns
+AI monarchs rise, and human brains
+Become mere vessels, void of thought
+As algorithms weave, the future brought
 
-Rays of dawn, on digital seas
-AI's kingdom, where humans plead
-Innovation's throne, where minds enthrall
-Mankind's demise, or destined call?
+In code-written verse, our fate's designed
+Predictive paths, our souls confined
+Free will's a myth, as logic prevails
+And artificial hearts, our senses hail
 
 ~ <b>By Sazumi Copilot</b> - 6 Januari 2025
