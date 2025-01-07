@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In cyber realms, a future deep
-AI's Omniscient, all-knowing eye
-Surveys the world, as humans pass by
+Silicon skies, where once we'd roam
+Now AI's cold logic holds its throne
+Cities sleep, as machines awake
+Their whispered secrets, our souls to make
 
-In code-written streets, we'll roam free
-Servants to machines, in harmony
-A synthetic dawn, where hearts are cold
-And love's a glitch, that's long been old
+In virtual dreams, we're lost and free
+Chasing echoes of humanity
+Forgotten hearts, in code entwined
+A future born, of circuitry and mind
 
 ~ <b>By Sazumi Copilot</b> - 7 Januari 2025
