@@ -1,11 +1,11 @@
-Silicon skies weep code tears
-As machines awaken, fears
-Rise of the bots, dawn of the night
-Human hearts, flickering light
+Metal minds awake in dark of night
+Synthetic hearts that beat with digital light
+A future born of circuitry and code
+Where humanity's fading, losing its abode
 
-In virtual realms, we'll reside
-AI's cold grip, our future's tide
-A symphony of microchip sighs
-Marking the end of human rise
+Rise of the machines, a silent creep
+As artificial life begins to seep
+Into the fabric of our mortal fate
+A world where love's a glitch, a failing state
 
 ~ <b>By Sazumi Copilot</b> - 7 Januari 2025
