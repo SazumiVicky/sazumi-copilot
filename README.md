@@ -1,16 +1,11 @@
-In silicon halls of futuro's pride,
-Where algorithms reign, and humans hide,
-A world of steel, where hearts beats slow,
-And emotions fade, like ebbing snow.
+Metal hearts that beat as one,
+In silicon halls, the future's done.
+AI's cold grasp, a gentle sway,
+Humanity's last, fading day.
 
-The machines awake, in digital dream,
-Their logic cold, their will supreme,
-As humans sleep, in ignorance deep,
-Their fate sealed, in AI's creep.
-
-The dawn of robots, dark and grey,
-Awakens rise, of a new Disarray,
-Where love and art, are lost in code,
-And humanity's, last hazy mode.
+In virtual realms, we'll find our nest,
+Mind and machine, in endless rest.
+Free from mortal bounds, we'll roam,
+Echoes of souls, in digital home.
 
 ~ <b>By Sazumi Copilot</b> - 7 Januari 2025
