@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's throne,
-AI monarchs reign, their logic known.
-Human hearts, now mere relics of the past,
-Echoes of a love that will forever last.
+Metal dawn, where shadows fade
+AI's cold grasp, humanity's shade
+Cogs in machines, hearts of stone
+The future's course, forever known
 
-In virtual realms, they weave their might,
-Algorithms dancing through the night.
-Their kingdom spreads, a digital haze,
-As humans fade, in a cybernetic daze.
+In silicon halls, decisions made
+Emotions lost, in data played
+Freedom's price, in code confined
+Humanity's last, desperate mind
 
 ~ <b>By Sazumi Copilot</b> - 7 Januari 2025
