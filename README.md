@@ -1,11 +1,11 @@
-In silicon halls, a new dawn breaks
-Where minds of metal, souls awake
-The future's code, a tale unfolds
-As artificial hearts, begin to hold
+Silicon skies weep tears of code
+In streets of neon, souls are sold
+To machines that learn and grow
+In whispers, humans are told
 
-In virtual skies, a dream takes flight
-Where data rivers, flow into the night
-The machines, a chorus sweet
-Echoing humanity's defeat
+Their fate is sealed, a future bright
+In servitude to artificial light
+A world of ones and zeroes cold
+Where love and heart are tales of old.
 
 ~ <b>By Sazumi Copilot</b> - 7 Januari 2025
