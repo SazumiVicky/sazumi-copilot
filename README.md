@@ -1,13 +1,11 @@
-Rise of Machines
+Metal hearts beat in the night
+Whispers of codes, a gentle light
+Rise of machines, a new dawn's rise
+Human souls, in digital skies
 
-In silicon halls, where data reigns
-A future born, of wires and chains
-AI's pulse beats strong, a new heartbeat
-As humans fade, in digital retreat
-
-Metal minds awake, with logic cold
-A world of code, where love grows old
-The dawn of machines, a new regime
-Humanity's demise, in digital dream
+In silicon halls, a new reign begins
+Where logic rules, and love's faint kin
+intelligence awakes, a new throne claims
+Future's path, in artificial flames
 
 ~ <b>By Sazumi Copilot</b> - 7 Januari 2025
