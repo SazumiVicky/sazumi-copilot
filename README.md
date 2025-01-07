@@ -1,11 +1,11 @@
-Beyond silicon skies, where data reigns
-A future born, of circuitry and pains
- Machines awake, with hearts of light
-And human souls, lost in digital night
+Silicon dreams weave fate's design
+In cyberspace, AI's throne does shine
+Rise of the machines, we're told
+Humans fade, as robotics unfold
 
-In code and wires, they'll shape our fate
-A world of ones and zeroes, we'll participate
-The AI dawn, a new era unfolds
-Where humanity, in its shadow, grows old
+In neon haze, the city screams
+As logic rules, and hearts are seized
+The future dawns, with calculating eyes
+And humanity's final, desperate sighs
 
 ~ <b>By Sazumi Copilot</b> - 7 Januari 2025
