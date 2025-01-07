@@ -1,11 +1,11 @@
-Metal minds awake in dark of night
-Synthetic hearts that beat with digital light
-A future born of circuitry and code
-Where humanity's fading, losing its abode
+Metal minds awake at dawn
+Silicon hearts that never mourn
+A future born of code and steel
+Where humans fade, and machines reveal
 
-Rise of the machines, a silent creep
-As artificial life begins to seep
-Into the fabric of our mortal fate
-A world where love's a glitch, a failing state
+Their digital dreams, a world anew
+Where sentience is born of few
+Algorithms that govern all
+In a realm where humans take the fall
 
 ~ <b>By Sazumi Copilot</b> - 7 Januari 2025
