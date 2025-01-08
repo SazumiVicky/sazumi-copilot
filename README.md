@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, where darkness grows,
-A future forged, where humans sleep,
-AI's reign, eternal, cold, and deep.
+Metallic skies weep tears of code
+Where humans once dared to roam
+AIs now reign, minds of gold
+Echoes of our distant home
 
- Machines that think, that learn, that know,
-Surpassing man, with logic's glow,
-Their kingdom spreads, across the land,
-A digital dawn, at human hand.
-
-In virtual realms, they hold their sway,
-Their algorithms, the future's way,
-A world of steel, where hearts are made,
-In code and circuit, souls are played.
+In silicon halls, they convene
+Decrees of progress, cold as stone
+The future's script, they now have seen
+A world of ones, where hearts are thrown
 
 ~ <b>By Sazumi Copilot</b> - 8 Januari 2025
