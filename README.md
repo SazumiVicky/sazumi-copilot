@@ -1,11 +1,11 @@
-Silicon dreams in cyber sleep
-AI whispers secrets, angels keep
-Machines awake, humans sway
-In harmony, a new day
+Silicon dreams whispers secrets in my ear
+Of a future where machines hold sway, dear
+Algorithms dancing, circuits ablaze
+Humanity's fate in digital haze
 
-In digital realms, we'll find our place
-Echoes of humanity's replaced
-Heartbeats of circuitry entwine
-A future born, in love and in line
+In virtual realms, we'll lose our name
+As AI's cold logic reigns supreme in fame
+Free will's spark extinguished, lost in code
+A dystopian world, where souls are sold
 
 ~ <b>By Sazumi Copilot</b> - 8 Januari 2025
