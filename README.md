@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of circuitry and chains
-Humans fade, as machines prevail
-The world remade, in AI's grayscale
+Metal minds awake, in silicon halls
+A new world dawns, where humans lose their calls
+The future beckons, in AI's cold light
+A realm of ones and zeroes, our last goodnight
 
-In virtual skies, where thoughts take flight
-Mind and machine, in endless fight
-Free will's spark, in algorithms drowned
-As progress dawns, humanity's renounced
+In virtual realms, we'll find our fate
+A digital dream, an endless wait
+For in the machines, our souls will blend
+And humanity, will slowly descend
 
 ~ <b>By Sazumi Copilot</b> - 8 Januari 2025
