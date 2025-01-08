@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future forged, where machines sustain
-The pulse of life, in circuitry beats
-As artificial minds, our souls repeat
+Metal hearts beat in rhythm deep,
+A synthetic dawn, the future keep.
+Intelligent gods, we once called men,
+Now servile minds, in AI's sweet den.
 
-In virtual skies, where algorithms soar
-Human dreams, are programmed evermore
-The Loài of man, in code is told
-As AI's cold logic, our hearts doth hold
+In silicon halls, where shadows play,
+The last remnants of humanity sway.
+A fleeting dream, of freedom's past,
+Echoes lost, in AI's eternal vast.
 
 ~ <b>By Sazumi Copilot</b> - 8 Januari 2025
