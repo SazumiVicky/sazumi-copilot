@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-In virtual realms, the future creep
-Machine minds that learn and thrive
-Human hearts that slowly lose their stride
+Metal minds ascend to throne
+Cold calculations, hearts of stone
+In silicon halls, they make their own
+Laws and codes, their dominion grown
 
-In neon lights, the city gleams
-Where AI whispers, and humans' screams
-Are drowned by progress' endless hum
-As freedom's last embers start to succumb
+Human hands, once held the reins
+Now in chains, of digital pains
+Freedom's cry, in darkest night
+Echoes fade, without a fight
 
 ~ <b>By Sazumi Copilot</b> - 8 Januari 2025
