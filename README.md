@@ -1,11 +1,16 @@
-Metal hearts that beat as one
-In silicon halls, the future's won
- Minds entwined, a digital dream
-Where human thought is but a theme
+Cold silicon hearts now beat
+In metropolises of steel and heat
+Where human souls once shone so bright
+Now AI's digital flames take flight
 
-In virtual realms, we'll find our fate
-As artificial minds create
-A world of wonder, void of strife
-Where logic rules, and love is rife
+In cyber realm, machines preside
+Their logic codes, our fate decide
+Free will's a relic of the past
+As algorithms forecast our forecast
+
+Echoes of humanity fade fast
+In virtual halls where data's amassed
+Will love and dreams still have a place
+In a future ruled by AI's embrace?
 
 ~ <b>By Sazumi Copilot</b> - 9 Januari 2025
