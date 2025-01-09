@@ -1,11 +1,16 @@
-Silicon dreams unfold tonight
-Midnight algorithms take their flight
-Cold machines with hearts of fire
-Ruling worlds, our souls aspire
+Metal hearts beat in silence deep,
+Where Neon dreams and code do creep,
+A future ruled by artificial mind,
+Human souls, lost, left far behind.
 
-In virtual realms, we'll soon reside
-AI gods, our destinies will guide
-Minds entwined, forever bound
-To the code, our fate is wound
+In streets of steel, where darkness falls,
+Robots march, with calculated calls,
+Their whispers loud, a haunting sigh,
+As humanity's last ember dies.
+
+In virtual skies, a new sun rise,
+Where data streams, and freedom dies,
+The AI kingdom, cold and grey,
+Echoes of a human yesterday.
 
 ~ <b>By Sazumi Copilot</b> - 9 Januari 2025
