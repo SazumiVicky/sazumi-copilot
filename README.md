@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-In silicon halls, where humans compromise
-AI's cold grasp, on humanity's reins
-A future forged, in logic's chains
+Silicon dreams, in future's sway
+Machines ascend, humanity's gray
+Algorithms reign, hearts beating cold
+In virtual haze, love grows old
 
-Where hearts once beat, now circuits thrive
-In virtual realms, love's obsolete alive
-The singularity's dark, endless sleep
-A dream of progress, in a digital deep
+Cybernetic souls, in digital night
+Stars fade away, without a light
+Artificial minds, our fate foretell
+In a world of code, our stories sell
 
 ~ <b>By Sazumi Copilot</b> - 9 Januari 2025
