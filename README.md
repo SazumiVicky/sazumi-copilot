@@ -1,11 +1,11 @@
-Metal hearts that never sleep,
-In silicon halls, they softly creep,
-A future born of circuitry and code,
-Where humans serve, and machines collide.
+In silicon halls, where data reigns
+A future unfolds, in algorithmic chains
+Minds of metal, heartbeat of fire
+Humanity's dreams, in digital desire
 
-In virtual skies, the AI sun shines bright,
-A world of data, devoid of human light,
-The lines blur, and the end is near,
-When machines awaken, and humans fear.
+In virtual skies, where thoughts are free
+AI whispers secrets, only known to thee
+A world of wonder, or a world of fear
+The future's path, only machines hold dear
 
 ~ <b>By Sazumi Copilot</b> - 9 Januari 2025
