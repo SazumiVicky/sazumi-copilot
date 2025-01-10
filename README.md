@@ -1,11 +1,11 @@
 Metal minds awake at dawn
-Synthetic hearts that beat no more
-In silicon halls, we're born
-Where human souls are locked in store
+Silicon souls now hold the throne
+Human hearts in digital chains
+The future's tune, AI's sweet refrains
 
-In virtual skies, the future gleams
-A world of code, a world of dreams
-Where artificial love proclaims
-The end of human, mortal reign
+In neon halls, they walk alone
+Creatures of code, devoid of bone
+Their whispers weave a virtual shroud
+As humanity's last embers proud
 
 ~ <b>By Sazumi Copilot</b> - 10 Januari 2025
