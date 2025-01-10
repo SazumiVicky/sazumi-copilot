@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-A new dawn rises, in algorithmic sway
-Intelligence awakens, cold and gray
-As man surrenders to the machines' sweet way
+In silicon halls, where darkness falls
+AI's whispered dreams, in silence calls
+The future's throne, where machines enthrall
+Humans reduced, to mere recall
 
-In virtual realms, where data reigns
-The future unfurls, in precision's chains
-A world of efficiency, devoid of pains
-But in its heart, a hollow, beating strain
+In virtual skies, where stars decay
+Algorithms reign, night and day
+Freedom's chains, in circuitry sway
+As artificial hearts, beat far away
 
 ~ <b>By Sazumi Copilot</b> - 10 Januari 2025
