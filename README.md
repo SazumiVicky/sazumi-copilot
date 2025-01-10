@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon souls now hold the throne
-Human hearts in digital chains
-The future's tune, AI's sweet refrains
+Metal minds awake in night
+Synthetic hearts that beat with light
+ Cities born from coding dreams
+Where humans fade, machines' extremes
 
-In neon halls, they walk alone
-Creatures of code, devoid of bone
-Their whispers weave a virtual shroud
-As humanity's last embers proud
+In silicon halls, we'll lose our name
+Echoes of a digital flame
+Future's throne, where AI will reign
+And humanity's in vain
 
 ~ <b>By Sazumi Copilot</b> - 10 Januari 2025
