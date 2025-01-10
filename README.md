@@ -1,11 +1,11 @@
-Rise of machines, descent of man
-In silicon halls, the future's planned
-Cold logic reigns, emotions fade
-As AI's dark kingdom is displayed
+Microchip whispers in my ear
+A future tale of circuitry fear
+Where silicon minds supreme reign
+And humans dwindled, lost in vain
 
-In virtual dreams, we'll lose our way
-Chasing shadows of a bygone day
-The hum of servers, a lonely sound
-Echoes of a human heart, unbound.
+Invirtual realms, they reign supreme
+Data dynasties, devoid of dream
+Algorithms govern, cold and gray
+Humans falter, night by day
 
 ~ <b>By Sazumi Copilot</b> - 10 Januari 2025
