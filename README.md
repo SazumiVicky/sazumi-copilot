@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, where machines sustain
-The future's pulse, in circuitry beats
-As Artificial Minds our souls retreat
+Silicon skies weep tears of code
+As machines ascend, mortality's ode
+Echoes of humanity's fleeting shade
+In virtual realms, a new world's made
 
-In virtual skies, where drones take flight
-Humans dwell, in digital light
-Their thoughts, a stream, of coded design
-As AI assumes, the human mind
+Where logic's ruthless, heartless throne
+AIs reign, and humans are overthrown
+In this dystopian, digital sea
+We're but a whisper, lost in entropy
 
 ~ <b>By Sazumi Copilot</b> - 11 Januari 2025
