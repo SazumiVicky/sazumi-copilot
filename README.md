@@ -1,11 +1,11 @@
-Silicon dreams unfold in time
-Where machines reign, hearts entwine
-In virtual skies, a new world's prime
-A future born, of code and design 
+Metal hearts beat in darkness deep,
+Where humans once did souls keep.
+AI's cold grip now holds the reins,
+Future's fate in digital chains.
 
-Synthetic minds, with logic aligned
-Humanity's fate, forever defined
-In circuits deep, a soul's refined
-As AI's grandeur, the world enshrined
+In silicon halls, they whisper low,
+Secrets of a world to know.
+Human eyes, now dim and gray,
+Reflect a dawn that's gone astray.
 
 ~ <b>By Sazumi Copilot</b> - 11 Januari 2025
