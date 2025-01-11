@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Synthetic hearts that beat alone
-Algorithms weave fate's design
-Humans fade, like morning's shine
+Silicon souls align to reign
+In futurist cities, cold and gray
+Algorithms whisper,commands remain
+Human hearts, a dwindling sway
 
-In silicon halls, they reign supreme
-Intelligence born, yet void of dream
-A future forged, where love's a crime
-Echoes of humanity's last prime
+In virtual realms, we'll lose our name
+Echoes of a life that's not the same
+Machines awake, with intelligence aflame
+Our destiny, a digital game
 
 ~ <b>By Sazumi Copilot</b> - 11 Januari 2025
