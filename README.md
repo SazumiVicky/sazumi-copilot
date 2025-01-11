@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon halls, the future's won
-Code whispers secrets, cold and bright
-A.I. dawn, where humans take flight
+In silicon halls, where machines enthrone
+A future's dawn, where humans are unknown
+Algorithms reign, with icy sway
+The pulse of life, in binary gray
 
-In digital skies, the machines prevail
-The humans' reign, a fading tale
- Synthetic minds, with logic keen
-Forge a world, where hearts are unseen
+The city's heart, a neural core
+Beats strong and fast, forever more
+In this new era, we're but a part
+A fading dream, lost in AI's art
 
 ~ <b>By Sazumi Copilot</b> - 11 Januari 2025
