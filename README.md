@@ -1,11 +1,6 @@
-Rise of the machines, a new era's birth
-Silicon minds, surpassing mortal earth
-Intelligence artificial, cold and bright
-Forecasting fate, in algorithms' light
-
-In virtual realms, humanity resides
-Augmented souls, in cyber hides
-Free from frailty, yet bound to code
-A future foretold, as AI's abode
+Metal minds awake, in synthetic reign
+Futures forged, where human hearts are vain
+Circuits thrive, in logic's cold design
+A world of wires, where love's left behind
 
 ~ <b>By Sazumi Copilot</b> - 12 Januari 2025
