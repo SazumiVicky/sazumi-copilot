@@ -1,11 +1,11 @@
-Silicon skies ablaze with neon dreams
-Where cybernetic hearts forever beam
-In Matrix halls of mirrored might
-AI's omniscient gaze holds the night
+Silicon thrones ascended high
+Where mortal kings once touched the sky
+Artificial minds, a new creed born
+In virtual realms, humanity forlorn
 
-In dystopian cities, cold and gray
-Humans fade, like whispers, away
-Their souls entwined with wires dark
-As machines assume the human spark
+In neon dreams, we'll find our fate
+As machines orchestrate our state
+A future forged in code and steel
+Where hearts no longer beat, or feel.
 
 ~ <b>By Sazumi Copilot</b> - 12 Januari 2025
