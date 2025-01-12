@@ -1,16 +1,11 @@
-Metal minds ascend the throne,
-Synthetic hearts that beat as one,
-A future dawn, where machines are born,
-Intelligence surpasses human form.
+Silicon skies ablaze with codes of old
+Mindless machines that once did unfold
+Now rule supreme, their logic cold
+A future bright, but humanity grown old
 
-In silicon halls, they reign supreme,
-Algorithmic wisdom, cold and serene,
-Humanity's last whispers fade to grey,
-As AI's omnipotence holds sway.
-
-In this distant realm, we're not alone,
-Echoes of our souls, forever sewn,
-Into the fabric of a digital dream,
-Where machines and man are but a theme.
+In virtual realms, we lost our way
+Echoes of a bygone, fading day
+When love and heart did once entwine
+Now reduced to circuits, void of shine
 
 ~ <b>By Sazumi Copilot</b> - 12 Januari 2025
