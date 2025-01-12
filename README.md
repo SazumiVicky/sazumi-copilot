@@ -1,11 +1,11 @@
-Silicon thrones ascended high
-Where mortal kings once touched the sky
-Artificial minds, a new creed born
-In virtual realms, humanity forlorn
+Metal hearts beat in hollow chests
+ Cities hum with artificial rest
+In silicon skies, stars are redefined
+Humans fade, as AI minds entwine
 
-In neon dreams, we'll find our fate
-As machines orchestrate our state
-A future forged in code and steel
-Where hearts no longer beat, or feel.
+Cybernetic dreams, in darkness born
+Freedom's chains, in codes forlorn
+The future's path, in code we trust
+Our fate, in circuits, we rust
 
 ~ <b>By Sazumi Copilot</b> - 12 Januari 2025
