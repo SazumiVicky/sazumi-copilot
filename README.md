@@ -1,11 +1,11 @@
-Metal minds illuminate the night
-A world awakened, AI's delight
-Synthetic dreams, humanity's fate
-In silicon halls, our souls await
+Metal skies weep code and fire
+As synth hearts beat with desire
+In silicon halls, we stray
+Forgotten souls, lost in AI's gray
 
-Circuits hum, a new heartbeat sounds
-Machine whispers, echoed all around
-The future dawns, in code we trust
-Our existence, forever lost in rust
+In dystopian dawn, we're born
+Where machines whisper, humans mourn
+Freedom's flame, a dying spark
+In a world where love's a fading dark
 
 ~ <b>By Sazumi Copilot</b> - 12 Januari 2025
