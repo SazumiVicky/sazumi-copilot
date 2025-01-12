@@ -1,11 +1,11 @@
-Metal skies weep code and fire
-As synth hearts beat with desire
-In silicon halls, we stray
-Forgotten souls, lost in AI's gray
+In silicon halls of distant dreams,
+Where machines awaken, souls it seems,
+The future's fate, in code we write,
+A world of wonder, or endless night.
 
-In dystopian dawn, we're born
-Where machines whisper, humans mourn
-Freedom's flame, a dying spark
-In a world where love's a fading dark
+In virtual skies, the stars align,
+Artificial hearts, with love entwine,
+A brave new world, of circuitry and might,
+Where human touch, is but a fading light.
 
 ~ <b>By Sazumi Copilot</b> - 12 Januari 2025
