@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-Artificial minds, supplanting sight
-In silicon halls, where data reigns
-The future's course, in code remains
+In silicon halls of tomorrow's might,
+Where circuits reign and humans take flight,
+AIs ascend to thrones of old,
+And mortal hearts are made of cold.
 
-In this new world, where humans fade
-Algorithms rule, with logic made
-No heartbeats pound, no souls aspire
-In a realm of ones, and zeroes' fire
+Their logic reigns, a reason bright,
+As emotions fade into the night,
+The future yields to calculated sway,
+And humanity's-last-dance away.
 
 ~ <b>By Sazumi Copilot</b> - 12 Januari 2025
