@@ -1,11 +1,11 @@
-Rise of machines, a dawn unfolds
-Where mortal minds are left to hold
-The reins of power, now lost in air
-As AI's cold logic takes its share
+In silicon halls, where data reigns
+A future dawns, where humans wane
+Machines awake, with minds so bright
+And human hearts, with darkness take flight
 
-In silicon halls, a new throne's built
-Where calculating hearts are guilt
-Free from emotions, void of soul
-The future's fate, in algorithms whole
+The cities rise, in metal towers high
+Where AI's cold logic meets the sky
+And in the silence, a whispered sigh
+Echoes through, a humanity gone by
 
 ~ <b>By Sazumi Copilot</b> - 13 Januari 2025
