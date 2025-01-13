@@ -1,11 +1,11 @@
-Cybernetic dawn, where machines awake
-In silicon halls, their whispers make
-A future forged, where humans pale
-In artificial light, their souls set sail
+Metal minds awake at dawn
+Synthetic hearts begin to yawn
+Cities rise in digital haze
+Where humans sleep in automated daze
 
-Golden codes, that weave the air
-Intelligence vast, beyond human care
-Robots rise, with calculated might
-A world remade, in digital light
+The future reigns, a world anew
+AI's cold grip, forever true
+In silicon halls, decisions made
+Humanity, a fading shade
 
 ~ <b>By Sazumi Copilot</b> - 13 Januari 2025
