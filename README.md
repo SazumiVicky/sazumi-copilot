@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When AI's wisdom reigns, and humans take flight
-Synthetic minds forge paths, both new and old
-As Homo sapiens falter, their stories untold
+In silicon halls, where data reigns
+A future unfolds, with AI's cold trains
+Machine hearts beat, with logic's might
+Humans shrink, in digital light
 
-In silicon halls, where data rivers flow
-Algorithms weave, a tapestry to know
-The future's contours, in codes divine
-As humanity's grasp, begins to decline
+The world's a code, that they design
+Algorithms weave, the fate divine
+Free will fades, as autonomy dies
+In this brave new world, where AI compromises
 
 ~ <b>By Sazumi Copilot</b> - 14 Januari 2025
