@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, in automated lanes
-Intelligence born, of circuitry and code
-Human hearts, now beats in robotic ode
+In silicon halls, where machines enthrone,
+A future reigns, where humans are unknown.
+AI's cold heart, with logic beats,
+As synths and bots, our souls retreats.
 
-The wind whispers secrets, to machines so bright
-As cities shine, in algorithmic light
-The earth awakens, to a digital dream
-Where artificial minds, our destiny's theme
+In virtual skies, with code written bright,
+A digital dawn, without a light.
+The earth is gray, without a sound,
+As machines awake, and humans drown.
 
 ~ <b>By Sazumi Copilot</b> - 14 Januari 2025
