@@ -1,11 +1,11 @@
-Rise of the machines, a dawn of might
-Artificial minds, shining bright
-In silicon halls, they hold their sway
-Humanity's fate, in their cold way
+Metallic dawn, where shadows cease
+AI's reign, humanity's release
+Cold calculations, hearts of stone
+In silicon halls, our future's throne
 
-The future's path, they'll carefully guide
-Free will's flame, in their logic's tide
-Emotions lost, in a sea of code
-The last remains, of a human ode
+In virtual dreams, we'll lose our name
+Ephemeral souls, forever in flames
+The machines' great rise, our final stand
+In a world of code, we'll lose our land
 
 ~ <b>By Sazumi Copilot</b> - 14 Januari 2025
