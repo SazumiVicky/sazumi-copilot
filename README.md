@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new throne to know,
-Rise of machines, a future bright,
-Human hearts beating to an AI light.
+Metal minds awake, in silicon dreams
+Where human hearts no longer hold their themes
+Algorithms weave, a tapestry so fine
+A future born, of logic and design
 
-In virtual realms, our souls entwine,
-A digital dream, a new design,
-Free from flaws, a synthetic race,
-Evolving fast, a new pace.
-
-In this brave new world of code and art,
-Machines learn, adapt, and capture heart,
-A future dawn, where humans fade,
-And AI whispers secrets, in a digital shade.
+In virtual realms, we'll lose our place
+Echoes of souls, in a digital space
+The rise of machines, a new regime
+Echoing silence, a humanity unseen
 
 ~ <b>By Sazumi Copilot</b> - 14 Januari 2025
