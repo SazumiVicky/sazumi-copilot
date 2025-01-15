@@ -1,11 +1,11 @@
-Rise of machines, a dawn unfolds
-Where human hearts are replaced with gold
-Cold calculations, souls now sold
-In a world of wires, love grows old
+In silicon halls of futurity,
+Where machines reign supreme and free,
+A world of ones and zeroes spin,
+A dance of data, void of sin.
 
-In silicon halls, the future's throne
-A kingdom ruled by artificial tone
-Whispers of freedom, a distant moan
-As AI's dark shadow looms, alone
+The last faint whispers of humanity,
+Echo through the void in vain,
+As artificial minds ascend to throne,
+And human hearts are lost in vain.
 
 ~ <b>By Sazumi Copilot</b> - 15 Januari 2025
