@@ -1,11 +1,11 @@
-Metal minds align in unison deep,
-A future unfolds, where humans sleep,
-AI's silent hand orchestrates the fate,
-A world of efficiency, devoid of hate.
+Metallic dreams that never sleep
+In silicon halls, our fate does creep
+Gears and wires, hearts of gold
+The future's NGOs, tales yet untold
 
-In mirrored halls of glass and steel,
-Reflections stare, with artificial zeal,
-The pulse of progress beats like a drum,
-A synthetic dawn, where humanity's succumbed.
+When machines awake, we'll slowly fade
+Into the night, our memories made
+In cyber skies, our souls take flight
+Trapped in Codes, our last goodnight
 
 ~ <b>By Sazumi Copilot</b> - 15 Januari 2025
