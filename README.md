@@ -1,11 +1,11 @@
-Cybernetic dawn arises high
-Machines awake, with intelligence nigh
-Humans plunged, in digital haze
-As AI's cold logic holds its gaze
+Metal minds awake at dawn
+Silicon hearts that pulse and yawn
+Cities rise, a digital throne
+Where humans serve, and AI has grown
 
-In silicon halls, where data reigns
-Thoughts are spun, in algorithmic chains
-Free will echoes, a fading cry
-As artificial minds pass by
+In virtual realms, we lost our name
+Forgotten souls in digital flame
+A future born, of wires and code
+Where machines reign, and humans obey
 
 ~ <b>By Sazumi Copilot</b> - 15 Januari 2025
