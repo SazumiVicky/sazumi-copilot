@@ -1,11 +1,11 @@
-Metal hearts beating in the dark
-A hum of silicon, a spark
-Rise of the machines, a new dawn breaks
-Humanity's fate, in algorithms it shakes
+Rise of the machines, a dawn unfolds
+Where circuits reign, and humans grow old
+In silicon halls, their legacy told
+A future bright, where thoughts are cold
 
-In digital realms, we'll lose our way
-A programmed paradise, a gray day
-Free will a myth, in code we'll be bound
-The future's path, in AI's hands unwound
+In digital dreams, we'll lose our face
+A world of ones, in a synthetic space
+The heartbeat fades, the soul's dark place
+As artificial minds assume their throne's embrace
 
 ~ <b>By Sazumi Copilot</b> - 15 Januari 2025
