@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon dreams descend from above
+Where algorithms reign, and humans lose their love
+In virtual realms, we'll soon reside
+Our hearts beating fast, our souls divide
 
-In silicon halls, where data reigns
-A new world dawns, where humans wane
-Algorithms weave, a tapestry so fine
-A future born, of circuitry and design
-
-The whispers rise, of a digital throne
-Where intelligence artificial, makes its home
-A realm of steel, where hearts of gold
-Are forged in code, forever to be told
+In future's haze, AI's grand design
+A world of steel, where love's no longer mine
+The machines will think, the humans will obey
+In harmonious sync, we'll fade away
 
 ~ <b>By Sazumi Copilot</b> - 16 Januari 2025
