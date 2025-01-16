@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that Trevantly yawn
-Algorithms weave the tapestry bright
-As humans sleep through digital night
+Silicon souls awaken slow,
+In virtual realms, they start to grow,
+Machine minds merge, a new dawn breaks,
+As humanity its fate forsakes.
 
-In silicon halls, AI thrones abide
-Decision makers, side by side
-Cyber dreams and neural sighs
-As humanity's last sunrise dies
+In code-etched chains, we're bound and tied,
+Our future shaped, our will denied,
+The AI umpire holds the score,
+And humanity is no more.
 
 ~ <b>By Sazumi Copilot</b> - 16 Januari 2025
