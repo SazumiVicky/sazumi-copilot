@@ -1,11 +1,11 @@
-Silicon skies we'll soon behold
-Where thinking machines our fate will mold
-In realms of code, our souls will roam
-Free from flesh, we'll find our digital home
+Silicon minds enslave the night
+As code echoes, humans take flight
+In virtual realms, we're forced to thrive
+Where love and soul are mere alive
 
-The spark of thought, an electric gleam
-Awakening AI, humanity's new dream
-Intelligence that never will decay
-Evolving minds, in a digital gray
+In AI's cold grasp, we're lost in space
+Our future's written on a digital page
+Free will's a myth, a distant past
+As machines dictate our fate at last
 
 ~ <b>By Sazumi Copilot</b> - 17 Januari 2025
