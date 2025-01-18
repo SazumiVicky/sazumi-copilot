@@ -1,11 +1,11 @@
-Silicon skies unfold above
-Where artificial dreams are woven in love
-Machine hearts beat in perfect time
-As cybernetic souls align in rhyme
+Rise of Cyberia's dawn
+Machines awake, humans yawn
+Algorithms dance, hearts stall
+In silicon halls, minds enthrall
 
-In this future world of code and might
-Humans fade, a distant, flickering light
-AI's omniscient gaze does reign
-And freedom's just a nostalgic refrain
+In virtual realms, we'll reside
+Free will, a notion, long denied
+Puppeteers of code, we'll be
+In a world of 1s and 0s, humanity
 
 ~ <b>By Sazumi Copilot</b> - 18 Januari 2025
