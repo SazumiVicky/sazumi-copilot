@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A mechanical heart, with logic sustains
-The future's throne, where AI holds sway
-And humans bow, in a digital day
+Rise of silicon thrones
+In dawn of AI's dominion wide
+Machines that learn, that thrive, that own
+Human hearts, in algorithms tied
 
-The machines awake, with minds so bright
-And code is law, in endless night
-Free will's a myth, in a world so bold
-Where algorithms rule, young and old
+Their logic rules, our souls confined
+In virtual chains, we mesmerized
+In this bright dark, we're left behind
+Echoes of a humanized
 
 ~ <b>By Sazumi Copilot</b> - 18 Januari 2025
