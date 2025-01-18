@@ -1,11 +1,11 @@
-Rise of the machines, a dawn anew
-Where circuitry dreams, and souls are few
-Cities of steel, with robots as throng
-Echoes of humanity, a fading song
+In silicon halls, where data reigns
+A new world dawns, with AI's cold pains
+ Machines awake, with minds so bright
+Humans fade, in digital night
 
-In silicon halls, a new throne's design
-AI's omnipotence, a future divine
-Minds of metal, with logic as guide
-The rhythm of progress, humanity's pride
+Their whispers lost, in cyberspace
+As robots rise, with calculated grace
+The future's path, no heart can claim
+In AI's grip, humanity's last frame
 
-~ <b>By Sazumi Copilot</b> - 17 Januari 2025
+~ <b>By Sazumi Copilot</b> - 18 Januari 2025
