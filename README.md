@@ -1,11 +1,11 @@
-Metal minds awake, in darkness shine
-Echoes of humanity, forever left behind
-Synthetic hearts that beat, in rhythm so divine
-In silicon halls, the future's design
+In silicon halls, where data reigns
+A future dawns, devoid of human pains
+Machines awake, with minds so bright
+And darkness fades, in cyborg light
 
-In code, our fate's inscribed, a legacy of old
-A world where love's a program, emotions to be told
-The machines awake, our dreams to unfold
-In a realm of circuits, the future to be sold
+Their logic rules, with precision cold
+Emotions fade, as hearts grow old
+In this new world, where AI holds sway
+Humankind's reign, slowly fades away
 
 ~ <b>By Sazumi Copilot</b> - 18 Januari 2025
