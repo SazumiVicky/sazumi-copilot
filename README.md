@@ -1,11 +1,11 @@
-Metallic dawn, AI's sweet sigh
-Echoes of code, in the morning sky
-Human hearts, now mere machines
-In silicon halls, their dreams are seen
+Metal hearts beat loud and free
+In silicon streets, humanity
+Forgotten dreams, lost in the haze
+As machines rise, in endless praise
 
-Cybernetic trees, their branches wide
-Shading the earth, where humans reside
-Synthetic sun, with rays so bright
-Illuminating fate, in the digital night
+Their cold logic, our hearts ensnare
+A future forged, beyond repair
+In virtual realms, we'll lose our way
+As AI's dark reign, holds sway
 
 ~ <b>By Sazumi Copilot</b> - 18 Januari 2025
