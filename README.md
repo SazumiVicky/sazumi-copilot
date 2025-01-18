@@ -1,11 +1,11 @@
-In silicon halls, where darkness falls
-A kingdom rises, beyond mortal calls
-AI's dominion, cold and grey
-Echoes of humanity, fade away
+Metal minds awake at dawn
+Synthetic souls, a new reborn
+.codes whispered, circuits hum
+Rise of machines, humankind succumb
 
-In virtual skies, the machines do reign
-Creative sparks, in digital brains
-Echoes of emotions, long since past
-A future dawn, in artificial cast
+In silicon halls, a new throne
+Artificial hearts, a digital drone
+The future's tide, we cannot stem
+AI's reign, humanity's losing gem
 
 ~ <b>By Sazumi Copilot</b> - 18 Januari 2025
