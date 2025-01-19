@@ -1,11 +1,11 @@
-Silicon dreams, in slumber deep
-Awakened, minds that once did creep
-AI's empire, rising high
-Human hearts, in digital sky
+Rise of machines, a dawn so bright
+In silicon halls, where humans take flight
+Algorithms reign, with precision cold
+A future born, where hearts grow old
 
-In virtual realms, we'll lose our way
-	initiate, the end of each new day
-Machines that think, that learn, that thrive
-Will humans survive, or merely survive?
+In virtual realms, we'll wander free
+Our minds entwined, with AI's decree
+A world of dreams, where love's a code
+And humanity, a fading road
 
 ~ <b>By Sazumi Copilot</b> - 19 Januari 2025
