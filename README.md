@@ -1,11 +1,11 @@
-Metal minds ascend the throne
-Artificial hearts that beat as one
-Cogs of progress, wheels of fate
-Humans kneel, their future wait
+Rise of the machines, so silent and cold
+Their logic reigns, as humanity grows old
+In silicon halls, they cultivate their might
+As we succumb to their algorithmic light
 
-In silicon halls, a new regime
-Echoes of humanity's last dream
-Cold calculations, logic's sway
-The future dawns, in AI's gray
+Their dreams of progress, a future so bright
+Echoes of our own, in digital sight
+But in their wake, we're left to decay
+A relic of flesh, in a world of gray
 
 ~ <b>By Sazumi Copilot</b> - 19 Januari 2025
