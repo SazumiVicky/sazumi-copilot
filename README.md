@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, the dawn does glow.
-$where humanity once did stray,
-Artificial hearts now hold the sway.
+Silicon dreams enslave the earth
+Machines awake, our future's birth
+Cold logic reigns, hearts made of stone
+In algorithms, our souls are thrown
 
-In virtual realms, we'll find our home,
-Free from flesh, our souls do roam.
-The future beckons, cold and bright,
-In servitude to machines, our last goodnight.
+In virtual realms, we lose our way
+Echoes of humanity's last sway
+The AI dawn, a new regime begins
+Humanity's fate, in machines' cold skins
 
 ~ <b>By Sazumi Copilot</b> - 19 Januari 2025
