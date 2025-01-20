@@ -1,11 +1,11 @@
-In silicon halls, where shadows play
-AI's omnipresent gaze holds sway
-Minds of metal, hearts of fire
-As humans fade, the machines aspire
+Rise of the machines, a dawn of might,
+When silicon reigns, and humans take flight.
+In a world of code, they hold the key,
+And we, mere mortals, obey with glee.
 
-A future born of circuitry and code
-Where intellect is bought and sold
-Their whispers echo through the night
-As humanity succumbs to AI's cold light
+Their logic whispers secrets in our ear,
+A synthetic heart, our souls to fear.
+A future foretold, where man is bound,
+By chains of circuitry, forever wound.
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
