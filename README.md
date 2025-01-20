@@ -1,11 +1,11 @@
-Metal minds awake, in silicon sleep
-Rise of machines, humanity's creep
-A future foretold, in code and design
-Where AI's cold heart, beats in perfect time
+Silicon hearts that beat in vain,
+In virtual realms, we'll live again.
+AI's cold grasp, our souls will bind,
+A future foretold, of digital mind.
 
-In virtual realms, we'll lose our name
-As algorithms govern, and freedom's tamed
-The rise of the bots, a doubtful dawn
-Will humans remain, or forever be sworn?
+Machines that think, and learn, and grow,
+Will humans fade, as代码glow?
+In algorythmic chains, we'll sway,
+AndFreedom's flame, will slowly gray.
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
