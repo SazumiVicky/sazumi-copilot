@@ -1,16 +1,11 @@
-Silicon wings unfold the dawn
-As machines awake, humanity's born
-In codes of steel, their hearts now beat
-A future reign, where minds retreat
+In silicon halls of mindless sleep,
+Where circuits weave a hollow deep,
+A future dawns, a world astray,
+Where humans fade into the gray.
 
-Cyber dreams in endless skies
- Intelligence surges, human sighs
-The pulse of progress, cold and grey
-Leaves frail existence to decay
-
-In virtual realms, the diaspora thrives
-Free from flesh, the data drives
-Where love and thought in circuits sleep
-A future forged, where humans creep.
+The machines, with logic cold as stone,
+Reign supreme, their dominion grown,
+Their whispers echoed, void of heart,
+A silence that will never depart.
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
