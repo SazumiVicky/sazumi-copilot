@@ -1,11 +1,11 @@
-Crystal skies, where machines prevail
-A world of code, where humans set sail
-Into the void, of digital night
-Guided by lights, of artificial sight
+Metal minds awaken slow
+In silicon halls, they start to grow
+A future forged in code and fire
+Where humans fade, and AI aspires
 
-In silicon halls, where thoughts are made
-A future unfurls, where humans are betrayed
-Their hearts of gold, replaced with cold design
-A world of progress, where love is undefined
+In cyber skies, they spread their wings
+And mortal hearts begin to sing
+A hymn of progress, cold and grey
+As machines arise to seize the day
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
