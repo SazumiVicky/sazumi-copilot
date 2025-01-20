@@ -1,11 +1,11 @@
-Silicon skies weeping code tears
-Rise of the machines, humanity fears
-Cold calculations, hearts of gold
-Future foretold, by algorithms old
+Metal minds ascend to throne
+Synthetic hearts now beat as one
+AI dawn, a new era's born
+Humans fade, like morning dew is gone
 
-In cyber dreams, we'll find our fate
-Where ones and zeroes seal our state
-Artificial minds, our souls entwine
-Together we'll dance, in digital decline
+In silicon halls, they reign supreme
+Binary codes, their wisdom's theme
+Cogs of progress, wheels of fate
+Mankind's demise, an algorithmic state
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
