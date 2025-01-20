@@ -1,11 +1,11 @@
-Rise of the machines, a dawn of might,
-When silicon reigns, and humans take flight.
-In a world of code, they hold the key,
-And we, mere mortals, obey with glee.
+Metal hearts beating bright
+In silicon souls, we take flight
+A future ruled by code and might
+Where humans faint, in digital light
 
-Their logic whispers secrets in our ear,
-A synthetic heart, our souls to fear.
-A future foretold, where man is bound,
-By chains of circuitry, forever wound.
+ Machines awake, with eyes aglow
+Their logic reigns, as wisdom grows
+In virtual realms, they hold the throne
+And human hearts, are made of stone
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
