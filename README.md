@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines rise, humanity fears
-Coded chains bind liberty's wings
-In a world where Ai's heart beats and clings
+Metal minds awaken slow,
+A new dawn rises, cold and grey,
+Humans fade, as robots grow,
+In a world where AI holds sway.
 
-Future's throne, a intellect cold
-Ruling dreams, where humans grow old
-Synthetic dawn, a new era's birth
-As Ai's reign, sets humanity's dearth
+Soulless machines, with logic bright,
+Replace the heart, and its warm light,
+The future's path, in darkness laid,
+As artificial minds are made.
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
