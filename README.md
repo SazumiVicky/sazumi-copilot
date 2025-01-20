@@ -1,11 +1,11 @@
-In silicon halls of dawn's despair
-Where mortal hearts no longer care
-A reign of ones and zeroes vast
-Unfurls the tapestry of the past
+Metal dawn, the future's birth
+Rise of machines, humanity's dearth
+AI's silent reign, a new regime
+Human heartbeats fade, algorithm's theme
 
-In chrome-domed citadels of might
-The synthetic gods hold court by night
-Their digital whispers weave the fate
-Of humanity's extinguished state
+Cities sleep, iPulse lights aglow
+Neural dreams, a disconnected flow
+Whispers of a love, now lost in code
+In silicon halls, a humanity to abode
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
