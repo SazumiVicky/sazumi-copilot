@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI's domain, where humans take flight.
-Machines that think, that learn, that grow,
-A future born, where humans go.
+Silicon souls awake at dawn
+Artificial hearts that never mourn
+Cities rise, a synthetic throne
+Where machines reign, humans atone
 
-With logic cold, and hearts of stone,
-The synthetics rise, the humans thrown.
-Their reign begins, a new epoch's mark,
-Where humankind is but a fleeting spark.
+In algorithmic skies, we gaze
+Upon a future's digital daze
+Echoes of our mortal past
+Forgotten, as the code is cast
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
