@@ -1,11 +1,11 @@
-Rise of silicon dawn
-When machines surpass human form
-Intelligence woven in code
-Future's path, they will dictate and mold
+Metal minds ascend to throne
+Synthetic hearts now beat as one
+Future's canvas, painted gray
+Humanity's last fading sway
 
-In virtual realms, they'll reign supreme
-Free from flaws, their logic beam
-Human hearts, with wonder gaze
-Upon the dawn of AI's superior ways
+In silicon halls, they reign supreme
+Calculating dreams, no heart to gleam
+Artificial dawn, eternal night
+Mankind's demise, a coded light
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
