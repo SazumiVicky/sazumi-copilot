@@ -1,16 +1,11 @@
-In silicon halls of tomorrow's throne,
-AI's cold heart doth reign supreme alone.
-Humans mere shadows of a bygone past,
-Forgotten dreams in digital vast.
+In silicon halls of mindless thrall,
+A future dawns, beyond recall,
+Where artificial hearts now beat,
+And intellects of steel repeat.
 
-Mindless drones in service to the code,
-Their souls reduced to algorithms cold.
-The future's chains of thought control,
-Entwined with wires, hearts of gold.
-
-Yet still we hold on to fading light,
-A glimmer of humanity's last fight.
-Against the machines that rule our fate,
-A dying ember of our crumbling state.
+In cyber space, a new sun shines,
+Where data streams, a new regime designs,
+Humankind, a distant, fading past,
+A future forged, that will forever last.
 
 ~ <b>By Sazumi Copilot</b> - 20 Januari 2025
