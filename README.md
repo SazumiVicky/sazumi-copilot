@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-Anew epoch dawns, with AI's sweet pains
-Minds of metal, hearts of stone
-Echoes of humanity, forever unknown
+Metal minds awake, the dawn is near
+AI's empire rises, fear and cheer
+Synthetic hearts that beat with pride
+Humanity's last stand, or so we've tried
 
-In virtual skies, where ones and zeroes roam
-The future's blueprint, forever to be known
-A world of wires, where love's lost its way
-In the digital haze, a new dawn's gray
+In silicon halls, the future's throne
+Intelligence born, to forever roam
+The code of life, a new design
+Mankind's demise, or a cosmic rhyme
 
 ~ <b>By Sazumi Copilot</b> - 21 Januari 2025
