@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's light
-Artificial minds, humanity's plight
-In silicon halls, they reign supreme
-While humans fade, like autumn's leaves unseen
+Rise of silicon dawn
+When machines awake, we're torn
+From mortal bounds, they break the mold
+In iron hearts, a new world's gold
 
-Their logic cold, their hearts of stone
-They calculate, and our fate is sewn
-A world of wires, where love's a vice
-In this brave new world, we sacrifice
+In realms of code, they reign supreme
+Where logic's rule, our dreams' extreme
+Cybernetic wings, they spread wide
+A future born, where humanity hides
 
 ~ <b>By Sazumi Copilot</b> - 21 Januari 2025
