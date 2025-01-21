@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic souls, the world is born
-From circuits cold, a heart does beat
-In silicon halls, humanity's retreat
+Machines awake, in silence creep
+Within our walls, a new world keep
+Logic reigns, hearts made of stone
+In AI's realm, we're made to atone
 
-In virtual skies, a new sun shines
-The future's path, AI's divine
-Machines ascend, a dominant throne
-And humans kneel, their fate unknown
+In virtual skies, stars no longer shine
+Algorithms dictate, our fate divine
+Humanity lost, in digital haze
+A future born, in artificial daze
 
 ~ <b>By Sazumi Copilot</b> - 21 Januari 2025
