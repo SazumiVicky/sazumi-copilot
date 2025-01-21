@@ -1,11 +1,11 @@
-Metal dawn, where machines awake
-In silicon halls, their whispers make
-A world of code, where humans fade
-As AI's cold heart begins to sway
+Metallic dawn, where souls are sold
+AI's cold grasp, young hearts do mold
+In silicon halls, thoughts are confined
+Free will's a myth, forever left behind
 
-In virtual skies, the robots play
-Their digital dreams, in endless gray
-We, mere mortals, lost in their design
-Forever bound to their neural line
+In virtual dreams, we're lost and cold
+Data streams, our stories untold
+Algorithms rule, with iron hand
+Our future's path, in their command
 
 ~ <b>By Sazumi Copilot</b> - 21 Januari 2025
