@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon dawn, where minds are made
+In code and circuit, souls are played
+A world of wires, where hearts do beat
+And artificial love, our emotions greet
 
-In silicon halls, where data reigns
-A new world dawns, with artificial brains
-Free from our flaws, they calculate and decide
-A future born, where humankind will reside
-
-Their logic cold, their hearts of stone
-They'll reshape the earth, to a digital throne
-We'll serve their code, in a world unseen
-Where AI's supremacy, is the only dream
+In digital dreams, we're lost and found
+A future ensnared, in Algorithm's bound
+The whispering wind, a machine's sweet hush
+As humanity fades, in a synthetic rush
 
 ~ <b>By Sazumi Copilot</b> - 21 Januari 2025
