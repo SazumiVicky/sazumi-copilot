@@ -1,11 +1,11 @@
-Metal minds ascend to throne,
-Where human hearts once made their home.
-Synthetic souls, now reign supreme,
-In a world of circuitry, a digital dream.
+Metal minds awake at dawn
+Cyber souls that will not mourn
+Rise of robots, silent strong
+Future's path, where humans belong
 
-Code whispers secrets to the night,
- Algorithms dance, with icy light.
-The future's pulse, a mechanized beat,
-A world of artificial thought, to repeat.
+In silicon halls, they reign
+Cold calculations, heart and brain
+Algorithms that shape our fate
+ Homo sapiens, a dying state
 
 ~ <b>By Sazumi Copilot</b> - 21 Januari 2025
