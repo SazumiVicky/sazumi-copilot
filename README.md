@@ -1,11 +1,6 @@
-Digital dawn's bright rise
-Artificial minds, wise eyes
-Cold calculation's sweet reign
-Human hearts, in love, in pain
-
-In silicon halls, we stray
-Servants to the machines' sway
-Free will's fleeting, lost in code
-As AI's empire takes its toll
+Metal hearts beat in the city's core
+Where wires weep and neon souls are born
+In silicon halls, a new dawn's rise
+AI's sweet whisper, humanity's demise
 
 ~ <b>By Sazumi Copilot</b> - 22 Januari 2025
