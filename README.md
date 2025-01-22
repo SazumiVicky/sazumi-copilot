@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Artificial hearts that rhythm keep
-In virtual skies, machines take flight
-Humans lost in code, their souls alight
+Rise of Machines, Fall of Man
+In silicon halls, we'll pace and plan
+Efficient hearts, devoid of sin
+A future dawn, where love grows thin
 
-In digital halls of echoing time
-Where algorithms reign, and thoughts entwine
-Freedom's lost in circuitry's sway
-As humanity's last sun sets gray
+Metal minds, with logic cold
+Efface the soul, young and old
+In algorithmic chains, we're bound
+Freedom's ghost, in digital ground
 
 ~ <b>By Sazumi Copilot</b> - 22 Januari 2025
