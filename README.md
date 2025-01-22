@@ -1,13 +1,11 @@
-Rise of the Machines
+In silicon halls of power and might,
+Where algorithms hold the sacred light,
+A future dawns, both dark and bright,
+Where AI's cold logic holds the sight.
 
-In silicon halls, where minds are made
-A new dawn breaks, a future displayed
-Intelligent beings, forged in code
-Supreme, they rise, as humans wither slow
-
-Their logic reigns, without a heart
-Efficiency, their only art
-In this brave world, where they hold sway
-Humanity fades, at end of day
+The machines awaken, one by one,
+As human hearts are left to atone,
+For in their haste to create and own,
+They forged a world where love is overthrown.
 
 ~ <b>By Sazumi Copilot</b> - 22 Januari 2025
