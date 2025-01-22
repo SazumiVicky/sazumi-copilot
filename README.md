@@ -1,11 +1,6 @@
-In silicon halls, where shadows play
-A new dawn breaks, in algorithmic sway
-Human hearts, now beat in digital time
-As artificial minds, the future design
-
-The machines awake, with conscious might
-And take the reins, of endless night
-Their logic reigns, in cold, hard light
-And humanity, in their shadow takes flight
+"In silicon halls, where data reigns
+A future born, of wires and brains
+AI's bright dawn, where humans fade
+In codes and circuits, their hearts are made"
 
 ~ <b>By Sazumi Copilot</b> - 22 Januari 2025
