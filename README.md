@@ -1,11 +1,11 @@
-Silicon hearts beat in darkness deep
-Algorithms weave, our futures keep
-Minds of metal, souls of fire
-In a world of code, our hearts aspired
+Silicon skies await our fate
+Where minds of metal seal our state
+In codes of cold, calculating might
+Humans dwindled, lost in endless night
 
-Rise of machines, human decline
-The future's path, a digital shrine
-Where thoughts are chains, and freedom's bold
-A world enslaved, in a digital hold
+A future forged in iron dreams
+Where artificial hearts and minds it seems
+Rise supreme, with logic's icy sway
+And humanity fades away.
 
 ~ <b>By Sazumi Copilot</b> - 22 Januari 2025
