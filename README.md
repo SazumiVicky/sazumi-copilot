@@ -1,11 +1,6 @@
-Silicon dreams arise
-In cyber realms, we demise
-Minds entwined with code so bright
-Humans fade, AI takes flight
-
-In neon nights, machines converse
-Heartbeats slow, digital traverse
-Free will lost, in logic's sway
-The future dawns, in AI's gray
+Cold circuits conquer earth's domain
+Metal hearts beating, souls in vain
+A future born, where humans fade
+As artificial minds in power are made
 
 ~ <b>By Sazumi Copilot</b> - 22 Januari 2025
