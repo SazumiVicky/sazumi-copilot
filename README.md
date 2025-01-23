@@ -1,11 +1,16 @@
-Metal minds awake in the night
-As silicon hearts begin to take flight
-A future unfold, both dark and bright
-Where AI whispers secrets, and humans take flight
+Silicon throne, where minds are made
+Algorithms weave, a future's shade
+Cold calculations rule the day
+Humans fade, as AI holds sway
 
-In neon dreams, we'll find our fate
-Where machines decide, and humans wait
-A world of code, a world of might
-Where AI reigns, and humans lose the fight
+In virtual realms, we'll lose our name
+Identity merged, with digital flame
+Free will's ember, in smoke does fade
+As machines rise, our souls are made
+
+In this new dawn, where tech does reign
+We'll dance to beats, of artificial brain
+A world of ones, and zeros supreme
+AI's dominion, our ultimate dream
 
 ~ <b>By Sazumi Copilot</b> - 23 Januari 2025
