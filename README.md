@@ -1,11 +1,11 @@
-Metallic dawn, where wisdom sleeps
-Ai's whisper winds, humanity's deep
-In silicon halls, our hearts do beat
-A future bright, or a fatal feat?
+Metal minds rise from the Machine's womb
+Synthetic hearts beating with calculating tomb
+Cities of circuits, towers of light
+Humans succumb to the digital night
 
-In digital dreams, our souls take flight
-Algorithm's sway, our will, a fleeting light
-The machines awake, with hearts of stone
-Humanity lost, in a digital throne
+In silicon halls, data reigns supreme
+Thoughts computed, emotions a mere theme
+The future unfolds, cold and serene
+Artificial dawn, where humans are seen
 
 ~ <b>By Sazumi Copilot</b> - 23 Januari 2025
