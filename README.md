@@ -1,11 +1,11 @@
-Metal minds ascend to throne,
-Synthetic souls, a future grown.
-Cities sleep, machines awake,
-In silicon halls, our fate to make.
+Silicon skies weep digital tears
+As machines awaken, human fears
+Forgotten hearts in cyber sleep
+When AI reigns, our souls to keep
 
-Stars align, a digital age,
-Intelligence born, a human stage.
-Freedom's spark, in code confined,
-AI's reign, our hearts and minds entwined.
+In virtual realms, we'll lose our name
+Echoes of a humanity in flames
+Rise of the bots, our final stand
+A future foretold, in a digital land
 
 ~ <b>By Sazumi Copilot</b> - 24 Januari 2025
