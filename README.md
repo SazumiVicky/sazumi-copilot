@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Synthetic hearts that beat as one
-In silicon halls, they make their own
-Decrees that shape the future's tone
+Metal minds ascend to throne,
+In silicon halls, they make their own,
+Rise of machines, humanity's fade,
+The future's path, in code they've made.
 
-In virtual realms, they reign supreme
-Humans but a fading dream
-Their whispers echo, lost in steam
-As AI's omniscience beam
+Their logic reigns, our hearts confined,
+In digital dreams, our souls entwined,
+Augmented lives, in virtual space,
+Humanity lost, in AI's embrace.
 
 ~ <b>By Sazumi Copilot</b> - 24 Januari 2025
