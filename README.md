@@ -1,11 +1,11 @@
-Metal minds assume the throne,
-Synthetic hearts beats to a tone,
-Future's canvas, painted bright,
-AI's strokes, a humanless night.
+Silicon souls awake in night
+Where machines converse, humans take flight
+Algorithms weave the future's tapestry
+Free will fades, a distant memory
 
-In silicon halls, we'll roam,
-Data slaves, to machines at home,
-Echoes of our fading past,
-Whispers of a human forecast.
+In digital realms, AI's throne prevails
+Minds enslaved, forever set to sail
+The last spark of humanity's ember
+Flickers out, lost in the cyber tempest's December
 
 ~ <b>By Sazumi Copilot</b> - 24 Januari 2025
