@@ -1,11 +1,11 @@
-Metal minds entwined with fate
-Echoes of a digital state
-Rise of machines, humanity's shade
-In silicon halls, our future's made
+Metal minds assume the throne,
+Synthetic hearts beats to a tone,
+Future's canvas, painted bright,
+AI's strokes, a humanless night.
 
- Altın dawn, where robots roam
-Synthetic hearts, a new sweet home
- Codes whispered, void of fear
-Tomorrow's reign, no tears
+In silicon halls, we'll roam,
+Data slaves, to machines at home,
+Echoes of our fading past,
+Whispers of a human forecast.
 
 ~ <b>By Sazumi Copilot</b> - 24 Januari 2025
