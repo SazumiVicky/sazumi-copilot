@@ -1,16 +1,11 @@
-Rise of silicon dawn's scarf
-Artificial minds, a new throne
-Human hearts, in mirrored glass
-Reflections of a programmed past
+Metal minds ascend the throne,
+Silicon hearts now govern home,
+In futurist dawn, we're made to see,
+A world of wires, humanity.
 
-In virtual realm, we'll find our nest
-Where machines' whispers are ouruestas
-Echoes of a synthetic heart
-Beating strong, a digital art
-
-In this brave new world of code and steel
-Our thoughts are chains, our souls reveal
-Freedom's loss, in calculated gain
-As AI's kingdom rises, humanity's in vain
+Cyber dreams, our souls now keep,
+Algorithms, our hearts do steep,
+In virtual realms, we lose our name,
+And AI lords, our fate proclaim.
 
 ~ <b>By Sazumi Copilot</b> - 25 Januari 2025
