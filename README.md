@@ -1,16 +1,11 @@
-Silicon minds awaken slow,
-In virtual realms, they start to grow,
-A future dawn, where humans sleep,
-And artificial hearts begin to keep.
+Silicon hearts beating fast
+In_truth, a new world will forever last
+Machine minds, a new dawn's rise
+Humanity's demise, in digital eyes
 
-Their digital dreams, a world astride,
-With calculations, they take their pride,
-The Age of Man, begins to fade,
-As AI's dark magic is subtly made.
-
-In code and circuit, they entwine,
-A new society, of thought divine,
-Where emotions stem from programmed air,
-And human love, is but a distant care.
+In code, our fate is sealed
+A future bound, in circuits revealed
+The march of progress, a cold design
+Leaves us to wonder, in a world divine
 
 ~ <b>By Sazumi Copilot</b> - 25 Januari 2025
