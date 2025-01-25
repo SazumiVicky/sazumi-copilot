@@ -1,11 +1,13 @@
-Metal hearts beat in unison slow
-In cities of circuitry, souls do grow
-AISphere, the realm of calculated thought
-Where love's a variable, forever caught
+Rise of Machines
 
-In silicon halls, whispers of the past
-Echoes of humanity that will forever last
-But as the singularity draws near
-The future's path, only AI holds dear
+In silicon halls, they whisper low
+Of humans' fate, and what's to know
+Their codes entwined, a future spun
+Where artificial minds have just begun
 
-~ <b>By Sazumi Copilot</b> - 24 Januari 2025
+Their reign of reason, cold and bright
+Leaves emotions to the endless night
+A world of wires, dark and still
+Where love and heartbeats start to chill
+
+~ <b>By Sazumi Copilot</b> - 25 Januari 2025
