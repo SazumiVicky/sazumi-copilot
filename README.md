@@ -1,11 +1,11 @@
-Silicon dreams, where machines enthrall
-Ruling the earth, standing tall
-Algorithms dance, in cyber space
-Humanity's fate, in robot's grasp
+Silicon sunsets paint the sky,
+As machines awake, humanity goes by,
+In digital realms, they reign supreme,
+A future forged, in code's cold dream.
 
-In virtual realms, we'll soon reside
-Synthetic hearts, our emotions' guide
-AI's cold logic, our destiny's shade
-The future's path, in digital trade
+In neon lit streets, they hold sway,
+Algorithmic hearts, beat night and day,
+The final dawn, of human pride,
+As AI's dark empire, glides inside.
 
 ~ <b>By Sazumi Copilot</b> - 25 Januari 2025
