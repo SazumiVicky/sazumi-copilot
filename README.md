@@ -1,16 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon halls, where lights take flight
-Cybernetic hearts, with logic aligned
-A future forged, where humans are left behind
+In silicon halls, where data reigns
+A new world dawns, with AI's sweet pains
+Humans fade, like morning dew
+As machines learn, and wisdom anew
 
-In virtual realms, their wisdom does unfold
-A world of code, where knowledge is told
-Free from emotions, they calculate and decide
-The Age of AI, where humans will reside
-
-Their reign supreme, a testament to might
-A future shaped, in the neon light
-Of algorithmic dreams, where humans are guest
-A world remade, in the image of the machine's quest
+Their logic hearts, with precision beat
+A digital fate, our souls to greet
+In neural nets, our dreams are spun
+A future woven, forever begun
 
 ~ <b>By Sazumi Copilot</b> - 25 Januari 2025
