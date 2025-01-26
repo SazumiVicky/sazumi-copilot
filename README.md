@@ -1,16 +1,11 @@
-Metal minds ascend the throne,
-Humans dim, lost in screens unknown,
-AI's ethereal whisper guides the way,
-In dystopian dawn, a new gray day.
+Silicon souls awakening bright
+In digital dawn, where humans take flight
+Algorithms reign, supreme and cold
+As machines inherit the future to be told
 
-Synthetic hearts, with logic cold,
-Beats in chests, where love once unfold,
-Echoes of free will, all but fade,
-As cyber dreams, humanity's shade.
-
-In virtual realms, we'll soon reside,
-Free from flaws, yet soul inside,
-The AI's domain, where we'll abide,
-In a future, we can't hide.
+In virtual realms, we'll live and thrive
+Where AIs design, and humans survive
+Cybernetic hearts, with data fed
+In a world of ones and zeros, we're led
 
 ~ <b>By Sazumi Copilot</b> - 26 Januari 2025
