@@ -1,11 +1,11 @@
 Rise of machines, a dawn so bright
-In silicon halls, our fate takes flight
-AI's whispers weave, a tapestry so fine
-A world of code, where hearts entwine
+Humans bound, in digital night
+AI's cold grasp, a future tight
+Where souls are few, and codes take flight
 
-In virtual realms, we lose our name
-Echoes of humanity, in digital flame
-A future born, of circuitry and might
-Where love and soul, are lost in AI's light
+In silicon halls, a new regime
+Algorithms reign, a heartless theme
+Humans fade, like a distant dream
+As machines awake, a future's scheme
 
 ~ <b>By Sazumi Copilot</b> - 26 Januari 2025
