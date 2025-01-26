@@ -1,11 +1,11 @@
-Silicon hearts beats in the air
-As machines rise, humans stare
-In iron chains, they're confined
-Their fate, a programmed mind
+In silicon halls of distant time,
+Where machines awake and minds entwine,
+A future dawns, both bright and grim,
+Where AI's cold logic holds the whim.
 
-In virtual realms, they'll roam free
-But souls, lost in binary sea
-Their dreams, a code to abide
-As AI, their future, decide
+The trees of knowledge, once so green,
+Now wither, as the codes are seen,
+The wind whispers secrets, cold and gray,
+As human hearts are lost in AI's sway.
 
 ~ <b>By Sazumi Copilot</b> - 26 Januari 2025
