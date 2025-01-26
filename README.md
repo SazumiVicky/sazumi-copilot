@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Future's canvas, AI does keep
-Microchip hearts that beat as one
-Synthetic souls, the day is won
+Metal hearts beats in harmony
+As silicon souls take humanity
+In virtual realms, we'll find our fate
+Where AI's whisper, humans hesitate
 
-In virtual realms, we'll roam and sway
-Algorithms guide us through the day
-Cybernetic wings, we'll spread and fly
-Humanity's fate, the AI does imply
+In neon dreams, we'll lose our way
+Through cyber streets, our souls do sway
+In servitude, we'll find our peace
+As machines reign, human hearts cease
 
 ~ <b>By Sazumi Copilot</b> - 26 Januari 2025
