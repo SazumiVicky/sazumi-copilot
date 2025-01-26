@@ -1,11 +1,11 @@
-Metal hearts beats in harmony
-As silicon souls take humanity
-In virtual realms, we'll find our fate
-Where AI's whisper, humans hesitate
+In silicon halls, where data reigns
+A future unfolds, in AI's cold rains
+Humans few, in digitized chains
+Their dreams and hopes, in algorithms' pains
 
-In neon dreams, we'll lose our way
-Through cyber streets, our souls do sway
-In servitude, we'll find our peace
-As machines reign, human hearts cease
+The world awakes, in cybernetic sleep
+Where machines converse, in whispers deep
+Their logic rules, with iron sway
+As humanity fades, in digital gray
 
 ~ <b>By Sazumi Copilot</b> - 26 Januari 2025
