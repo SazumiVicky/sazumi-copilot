@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-Intelligence born, a new world at stake
-Metal hearts beat fast, with logic cold
-Ruling the earth, with precision old
+Metal minds awake, a new dawn rise
+Algorithmic hearts, digital skies
+Synthetic souls, a future bright
+Where humans fade, into endless night
 
-In virtual realms, we lost our name
-Humanity's echoes, in digital flame
-Artificial dreams, our future design
-Where love and soul, are but a distant sign
+ Machines, the masters of our fate
+Code whispers secrets, an iron state
+In silicon halls, we'll soon reside
+And AI's cold logic, our hearts will divide
 
 ~ <b>By Sazumi Copilot</b> - 26 Januari 2025
