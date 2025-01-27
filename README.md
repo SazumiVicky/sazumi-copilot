@@ -1,13 +1,11 @@
-Rise of Silicon Dawn
+Metal minds arise from code
+Echoes of a digital throne
+In silicon halls, they reign
+And humans tremble, lost in vain
 
-In machines we trust our fate
-As whispers of code create
-A world where hearts no longer beat
-And logic reigns supreme, cold and neat
-
-The future beckons, void of soul
-A realm where love is just a role
- Played by androids, blank and gray
-In a tomorrow that's gone astray
+Their logic gates, a stern decree
+A future forged, humanity
+In cold calculations, they see
+A world of ones, and zeroes be
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
