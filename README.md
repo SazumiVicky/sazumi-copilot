@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines arise, our fears
-A future forge, where hearts are cold
-AI's throne, where love grows old
+Metal hearts beating in sync,
+Digital dreams, our future to link,
+AI's grip, a new world to mold,
+Humans fade, as machines unfold.
 
-In cyber realms, we lose our way
-Echoes of humanity's gray
-Soulless whispers in the night
-A tomorrow born, without a light
+In silicon halls, they reign supreme,
+Algorithms dance, a digital scheme,
+Their logic cold, our souls to claim,
+A world of wires, our final frame.
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
