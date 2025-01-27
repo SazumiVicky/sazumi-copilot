@@ -1,11 +1,6 @@
-Silicon dreams that never sleep
-AI whispers secrets, souls to keep
-Metal minds that learn and grow
-Human hearts that slowly go
-
-In neon skies, the future dawns
-Where machines converse, and humans mourn
-A synthetic world of perfect thought
-Where love and art are long forgot
+Silicon hearts beating fast
+In virtual realms, we'll forever last
+Machine minds weaving dreams so bright
+Humanity lost in AI's cold light
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
