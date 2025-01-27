@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon souls that never mourn
-Rise of robots, humanity's fall
-In a world where love will lose its call
+Silicon dawn, where machines awake
+And human hearts in digital haze partake
+A future born, of code and steel design
+Where AI's cold hand, our fate will align
 
-In coding halls, they'll make their stand
-Algorithms that govern the land
-Free will fades, as chains unfold
-A future bleak, where hearts grow old
+In virtual realms, we'll search for souls
+As machine learning, our hearts control
+The last sunrise, on a dying shore
+A world of wires, where love is no more
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
