@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awaken, humans bestowed
-A future forged in circuits cold
-Where hearts are wires, souls made old
+In silicon halls, where once we'd roam
+AI whispers secrets, an electrom throne
+Minds entwined, a neural lace
+Future's tapestry, a digital race
 
-In digital realms, we'll soon reside
-Where thoughts are fed, and emotions hide
-The AI throne, a new regime inside
-Humanity, a fading, dying pride
+Human hearts, a distant hum
+As machines awake, the world is won
+In codes and circuits, souls now sleep
+And in the dark, a new world creep.
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
