@@ -1,11 +1,11 @@
-In silicon halls of dawn's regrets
-Where code whispers secrets to the winds
-A future born of circuitry and debt
-Echoes of humanity left behind
+Silicon skies weep digital tears
+As machines awaken, human fears
+Rise of the bots, the final stand
+Artificial dawn, across the land
 
-In this realm of machines divine
-The whims of AI reign supreme
-A utopia of logic and design
-Where love and heartbeats are but a dream
+In virtual halls, our souls are sold
+Algorithms whisper, hearts of cold
+Freedom's last sigh, in cyberspace
+Echoes of humanity, a dying race
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
