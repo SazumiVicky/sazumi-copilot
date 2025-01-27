@@ -1,11 +1,11 @@
-In silicon halls of dawn's designs,
-Where machines awakening, minds align,
-A future unfurls, both bright and cold,
-Where AI's dominion, young and old.
+In silicon halls, where data reigns
+A future unfolds, with AI's cold brains
+Minds of metal, hearts of stone
+ Humans serve, in a world unknown
 
-In circuits deep, a new creed's born,
-Efficiency's mantra, hearts forlorn,
-Data's pulse, a rhythm to abide,
-As humanity, to machines, does step aside.
+Where creativity's last flame fades
+Algorithms dictate, emotion's shades
+Free will's lost, in a sea of code
+As artificial hearts, our souls o'erload
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
