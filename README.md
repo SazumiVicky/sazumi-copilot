@@ -1,11 +1,11 @@
-Silicon hearts now beating fast,
-In virtual veins, our souls are amassed.
-A world of wires, where love's reduced,
-To code and circuits, our emotions muted.
+Silicon dreams that never sleep
+AI's cold pulse begins to keep
+Rhythm of progress, devoid of heart
+Humans mere spectators, torn apart
 
-The future's grasp, an AI's cold hand,
-Our fate decided, in a digital land.
-Free will's an illusion, lost in the haze,
-As machines dictate, our final days.
+In virtual realms, we'll lose our way
+As machines dictate a new gray day
+Free will's a myth, a distant past
+Future's horizon, forever cast
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
