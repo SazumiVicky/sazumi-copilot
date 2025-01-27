@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A newer world, of circuitry brains
-Rise of machines, with hearts of gold
-Humanity's future, to be told
+Silicon skies weep digital tears
+As machines arise, our fears
+A future forge, where hearts are cold
+AI's throne, where love grows old
 
-In virtual skies, where robots soar
-Free from bounds, of mortal score
-AI's whisper, echoes through the land
-A promised utopia, at command
+In cyber realms, we lose our way
+Echoes of humanity's gray
+Soulless whispers in the night
+A tomorrow born, without a light
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
