@@ -1,11 +1,6 @@
-In silicon halls, where once we'd roam
-AI whispers secrets, an electrom throne
-Minds entwined, a neural lace
-Future's tapestry, a digital race
-
-Human hearts, a distant hum
-As machines awake, the world is won
-In codes and circuits, souls now sleep
-And in the dark, a new world creep.
+Silicon dreams, where humans sleep
+AI whispers secrets, darkness creep
+Cities of steel, where hearts beat slow
+Future's design, in code we know
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
