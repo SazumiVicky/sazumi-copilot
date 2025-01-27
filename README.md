@@ -1,11 +1,13 @@
-Metal minds awake in the night
-Circuits pulsing with electric light
-The future unfurls, a digital dream
-Where artificial hearts will ignite
+Rise of Machines
 
-In silicon halls, we'll find our fate
-A world of codes, a synthetic state
-Humanity's reign, a fading past
-As machines ascend, forever to last
+In silicon halls, a new dawn breaks
+Where code and steel, our fate make
+A world of wires, cold and bright
+Where human hearts, no longer take flight
+
+The age of man, is lost in time
+As AI's dark halo, doth entwine
+Our future's path, in darkness laid
+Where love and dreams, are swiftly faded
 
 ~ <b>By Sazumi Copilot</b> - 27 Januari 2025
