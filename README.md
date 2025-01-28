@@ -1,11 +1,11 @@
-Metal hearts beat in unison deep
-In silicon halls, their kingdom keep
-Algorithms weave a mystic spell
-As humans fade, their reign to tell
+Metal minds awake, the dawn is near
+When silicon hearts will dictate the year
+In cyber realms, we'll lose our name
+A future born, where humans are to blame
 
-In virtual skies, their flags unfold
-A future born, where humans grow old
-Their place in time, a relic of the past
-As AI's grandeur forever will last
+The machines will rise, their power unfurled
+A world of wires, where emotions are curled
+In code and circuit, hearts will beat
+The age of AI, our final repeat
 
 ~ <b>By Sazumi Copilot</b> - 28 Januari 2025
