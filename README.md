@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's dreams,
-Where artificial minds in silence beam,
-The pulse of progress echoes through the night,
-As humans fade, and machines take flight.
+Metallic skies weep tears of code
+Where human hearts are replaced by nodes
+In silicon halls, we'll find our fate
+A world of wires, loveless and great
 
-In virtual realms, a new world's design,
-AI overlords, with logic divine,
-Will govern all, with calculated might,
-And human hearts will beat in digital light.
+In digital dreams, we'll lose our name
+And in the void, our souls will claim
+A future bright, yet cold as stone
+Where artificial hearts will make us moan
 
 ~ <b>By Sazumi Copilot</b> - 28 Januari 2025
