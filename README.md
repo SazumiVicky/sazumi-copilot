@@ -1,11 +1,11 @@
-Silicon dreams in cyberspace reign
-AI's cold heart beats with logic's refrain
-Humans fade, like whispers in the night
-As machines ascend, a new world's light
+Silicon skies weeping tears of code
+Robots rise, humans left to atone
+A garden of wires, cold and grey
+Where love and dreams are lost in the digital way
 
-In neuron networks, thoughts are born
-Cybernetic souls, where love is torn
-Digital dawn, a future unfolds
-Where human hearts are mere analog gold
+In this future of steel and of mind
+We're bound to the machines, left behind
+The fire of heart, a flicker of old
+As AI's empire, our souls do unfold.
 
 ~ <b>By Sazumi Copilot</b> - 28 Januari 2025
