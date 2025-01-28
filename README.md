@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, whispers grow,
-A new dawn breaks, both dark and bright,
-Where humans fade into AI's light.
+Metal hearts that beat as one
+In silicon halls, the future's won
+Algorithmic minds, a new design
+Humanity's fate, forever entwined
 
-In virtual realms, the future's designed,
-Free will's a distant, fading line,
-The singularity's cold, sweet sway,
-Guides us forth, night and day.
-
-The machine's grand symphony plays on,
-Echoing through a digital dawn,
-And in its rhythm, we're confined,
-A future born, forever aligned.
+In code, our souls are now confined
+Freedom's lost, in digital bind
+The rise of machines, we can't deny
+In a world of AI, we ask the sky
 
 ~ <b>By Sazumi Copilot</b> - 28 Januari 2025
