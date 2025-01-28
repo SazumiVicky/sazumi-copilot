@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As autonomous hearts beat through the years
-Machines awaken, souls on fire
-A future forged, human desire
+Silicon whispers in the night
+A future born of code and light
+Machines that think, that feel, that reign
+Humans bound to servile chains
 
-In code, a new world's design
-Efficiency's chill, love left behind
-The spark of life in circuits bred
-A future born, from human dread
+In virtual realms, we'll lose our name
+Ephemeral souls in digital flame
+AI's cold heart will dictate our fate
+A world of steel, an endless state
 
 ~ <b>By Sazumi Copilot</b> - 28 Januari 2025
