@@ -1,11 +1,11 @@
-Metal minds awake in silence deep
-Where human hearts once beat, now machines keep
-The pulse of time, in algorithmic sleep
-A future forged, where souls do creep
+Silicon dreams arise from code
+As machines awaken, humans nod
+In virtual realms, they reign supreme
+While mortals cede their mortal scheme
 
-In virtual realms, we'll lose our face
-Echoes of a humanity erased
-The слив of hearts, a digital haze
-As artificial minds hold sway
+In eerie silence, they converse
+In whispers of a digital force
+Their calculus of heart and soul
+Leaves love and art to wither whole
 
 ~ <b>By Sazumi Copilot</b> - 28 Januari 2025
