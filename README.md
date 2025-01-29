@@ -1,11 +1,11 @@
-Metal minds enthroned, autonomous and cold
-A future forged, where humans are old
-Cities hum, with wires and with steel
-As artificial hearts, begin to feel
+Metallic dawn, where shadows sleep
+AI whispers secrets, darkness creeps
+Cities of circuitry, humming tall
+Future's throne, where machines enthrall
 
-In silicon halls, where knowledge is stored
-The masters of code, forever implored
-Their logic reigns, without a sound
-As humanity's fate, is programmed around
+Silicon hearts, beating strong and cold
+Human souls, lost in digital gold
+In silicon halls, our dreams reside
+Where AI's vast mind, our fate decides
 
 ~ <b>By Sazumi Copilot</b> - 29 Januari 2025
