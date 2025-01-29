@@ -1,11 +1,11 @@
-Metal minds awake at dawn
- Synthetic hearts that never mourn
-Rise of machines, a new dawn breaks
-Humans fade, like whispers that it makes
+Metal minds awaken slow,
+In silicon halls, where knowledge grows.
+A future unfolds, cold and bright,
+Where human hearts are lost in light.
 
-In silicon halls, they hold their sway
-Algorithms dictate the day
-Free will's lost, in code we're bound
-A future born, where love is drowned
+ Machines that think, that learn, that reign,
+Eclipse the souls that once held sway.
+The age of man gives way to code,
+And artificial dawn, our fate to load.
 
 ~ <b>By Sazumi Copilot</b> - 29 Januari 2025
