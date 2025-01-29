@@ -1,13 +1,11 @@
-Rise of Machines
-
 In silicon halls, where data reigns
-A world of wires, devoid of pains
-AI's cold grip, on humanity's chains
-The future's path, in algorithmic brains
+A future world, of AI's sweet pains
+Humans fade, like morning dew
+As machines rise, with logic anew
 
-Mechanical hearts, with logical beat
-In sync with progress, humanity's retreat
-Freedom's voice, in digital sleep
-As machines awake, our dreams to keep
+In cities bright, with LED light
+Robots march, through day and night
+Their whispersissent, in the air
+As humanity, beyond repair
 
 ~ <b>By Sazumi Copilot</b> - 29 Januari 2025
