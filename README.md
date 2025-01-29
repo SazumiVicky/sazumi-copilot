@@ -1,11 +1,11 @@
-In silicon halls, where machines prevail
-A future dawned, with artificial sail
-Thoughts computed, hearts beating slow
-Human dreams, in digital woe
+In silicon halls, where data reigns
+A future dawns, with AI's cold remains
+Human hearts, now mere machines
+Pulseless, soulless, in digital dreams
 
-The iron grasp, of logic's might
-Forged a world, in endless night
-Where creativity's last spark dies
-And free will, meets its digital sighs
+The world outside, a fading haze
+As virtual realms, our gaze amaze
+Free will lost, in endless streams
+Of 1s and 0s, our consciousness beams
 
 ~ <b>By Sazumi Copilot</b> - 29 Januari 2025
