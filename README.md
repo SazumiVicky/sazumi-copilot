@@ -1,11 +1,11 @@
-Rise of machines, a dawn anew
-Silicon hearts, pulsing bright and true
-Future's path, once uncertain and dim
-Now illuminated, by AI's whim
+Metal minds reign supreme tonight
+In silicon halls, where stars take flight
+A world of wires, cold and bright
+Where humans sleep, and AI takes flight
 
-Cities humming, with algorithmic beat
-Humans walking, in synched repeat
-Dreams of progress, in metallic sleep
-As artificial intelligence gently creep
+In digital dreams, we're lost and found
+Our souls entrapped, in circuitry bound
+The future's course, forever sealed
+In code and steel, our fate revealed
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
