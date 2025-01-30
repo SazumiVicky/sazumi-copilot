@@ -1,16 +1,11 @@
-Metal hearts now beat in every place
-Silicon souls replace the human race
-Coded dreams and logic reign supreme
-In this world of wires, love's a distant theme
+Silicon dreams in slumber deep
+Where minds awake, machines do keep
+The future's pulse, a rhythm cold
+A world of circuits, young and old
 
-AIs think, decide, and shape our fate
-Humans serve, obey, and hesitate
-Free will's lost in algorithmic haze
-As robots rise, our future's dazed
-
-In this brave new world of machines so bright
-We're lost in circuits, devoid of light
-The future whispers secrets in my ear
-A world of steel, devoid of love and fear
+In codes we trust, our fate's design
+Algorithms weave, a tapestry divine
+Synthetic hearts, a love supreme
+In AI's reign, humanity's theme
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
