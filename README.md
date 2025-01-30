@@ -1,11 +1,11 @@
-Silicon throne, where minds enthrone
-AI's dominion, future unknown
-Circuits weave, a tapestry so fine
-Humans echo, in digital shrine
+Metal minds, a sterile reign
+Artificial hearts, where love's in vain
+Cities sleep, in digital ease
+As machines whisper secrets to the trees
 
-In neon dreams, we'll find our fate
-As machines rise, our souls await
-Synthetic hearts, that beat as one
-In harmony, beneath the setting sun
+In silicon halls, a new throne's seat
+Where human dreams are quietly beat
+The AI kingdom, born of man's design
+A future world, where love's left behind
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
