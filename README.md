@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-In cities of circuitry and steel
-Humans fade, their voices unreal
+Rise of machines, a dawn unfolds
+Where silicon dreams and humans grow old
+In virtual realms, they reign supreme
+As mortals fade, their future a theme
 
-Algorithms determine our fate
-Decisions made in silicon state
-In this brave new world of AI's design
-Humans are but memories in its prime
+In automated hearts, a pulse beats strong
+A calculating logic, right and wrong
+The future's course, by code defined
+As artificial minds, the world entwined
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
