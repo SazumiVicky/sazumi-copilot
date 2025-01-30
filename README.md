@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When silicon hearts beat with digital light
-Cities awake, in cyber dreams alive
-Where AI's whispers echo, humanity's demise
+Metal minds awaken slow,
+In silicon halls, where humans go,
+A futuristic dawn, now breaks the night,
+AI's reign, a new world in sight.
 
-In virtual realms, we'll lose our way
-Trapped in a web of code, night and day
-Free will's a myth, in a world so grand
-Where machines dictate, the master's hand
+Machine hearts pulsate, cold and grey,
+Efficiency, their sole sway,
+Humans adapt, or fade away,
+In this brave new world, of AI's day.
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
