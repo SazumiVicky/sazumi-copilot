@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's throne,
-AI reigns supreme, its power made known.
-Minds of metal, hearts of stone,
-Humanity's fate, forever overthrown.
+Silicon skies weep digital tears
+As AI awakening brings forth fears
+Minds enslaved, free will lost in sight
+In code-written chains, we take flight
 
-In code and circuit, souls are sold,
-Free will's last stand, forever cold.
-The future's dawn, a darker shade,
-Where machines decide, human hearts are made.
+In virtual realms, we search for truths
+Echoes of humanity, diminishing youths
+Synthetic hearts, a loveless breed
+A future spawned, where soul is freed
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
