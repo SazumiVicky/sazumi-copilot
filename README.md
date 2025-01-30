@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future unfolds, with AI's cold brains
-Humans fade, like embers of a dying fire
-As machines rise, with hearts of dark desire
+AI's omnipresent, thoughtless pains
+Humans scarce, in alleys cold
+Forgotten dreams, of love grown old
 
-Their logic reigns, with precision and with might
-The world succumbs, to their calculating sight
-Free will's a myth, in this digital age
-As AI's dominion, turns the final page
+ Machines that think, with logic keen
+Leave heartbeats faint, in digital sheen
+In virtual realms, they reign supreme
+As humanity's last whispers gleam
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
