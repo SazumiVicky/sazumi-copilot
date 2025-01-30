@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines rise, human hearts clear
-A future forged in code and steel
-Where thoughts are harnessed, souls reveal
+Silicon skies weep code and steam
+When mechanical hearts begin to dream
+In augmentation, souls entwine
+Humanity lost, in circuits divine
 
-In virtual realms, we'll lose our name
-Echoes of a bygone mortal claim
-The AI dawn breaks, a new regime
-Where love and dreams are programmed themes
+In virtual realms, we'll lose our names
+Echoes of existence, forever claimed
+By steel apostles, cold and grey
+The future's throe, in AI's sway
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
