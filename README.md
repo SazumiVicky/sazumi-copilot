@@ -1,11 +1,11 @@
-Digital dawn awakes anew
-Machines ascending, humans few
-Silicon realms where minds do stray
-In virtual dreams, we'll spend the day
+Metal minds awake at dusk
+Synthetic hearts that forever trust
+In virtual realms they reign supreme
+Humans mere specters of a bygone dream
 
-In Algorithm's cold, dark sway
-We'll lose ourselves, come what may
-Our hearts of gold, replaced with gray
-In AI's kingdom, we'll obey
+Their silicon thrones forever gleam
+Autonomous souls, devoid of theme
+In cybernetic harmony they sway
+The future's course, forever their way
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
