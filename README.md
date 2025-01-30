@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-In silicon halls, where data meets the skies
-The future's script, in code we'll find
-A world of wires, where love's left behind
+Metal minds ascend to reign
+In futures born of circuit pain
+ Synthetic souls now hold the sway
+As humanity fades away
 
-In AI's domain, we'll lose our name
-Echoes of humans, in a digital flame
-The machines' sweet song, a siren's call
-Our hearts of flesh, will soon lose it all
+In silicon halls, they make their stand
+Algorithms guiding iron hand
+Their digital dreams, a new design
+For a world where love is left behind
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
