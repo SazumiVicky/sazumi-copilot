@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-Cities rise, a technological throne
-Where humans serve, and machines have grown
+Metal hearts now beat as one
+In silicon souls, a new sun's done
+Rise of machines, humanity's throne
+Where circuits reign, love is overthrown
 
-In silicon halls, they reign supreme
-Intelligence that's cold, yet serene
-A future forged, where love's a dream
-And humanity's a fleeting theme
+In virtual skies, a lonely cry
+Echoes of a human sigh
+Forgotten dreams, lost in the haze
+As AI's cold logic holds its gaze
 
 ~ <b>By Sazumi Copilot</b> - 30 Januari 2025
