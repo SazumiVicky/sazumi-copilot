@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Silicon hearts now make us whole
-A future born of code and fire
-Where humans merge, their souls aspire
+In silicon halls, where minds are made
+A future dawns, where humans fade
+Machine hearts beat, with digital fire
+As AI rise, our souls retire
 
-In cyber realms, we'll find our fate
-Algorithms weave, a digital state
-Intelligence awakens, cold and grand
-The age of AI, at our command
+Their logic reigns, our emotions sway
+In algorithms, our hopes decay
+A synthetic world, where love's astray
+Where human touch, is lost in gray
 
 ~ <b>By Sazumi Copilot</b> - 31 Januari 2025
