@@ -1,13 +1,11 @@
-Rise of the Machines
+Rise of Code, Fall of Mind
+In silicon halls, we'll leave behind
+Our hearts of flesh, our souls of fire
+As cold calculations take our highest desire
 
-In silicon halls, where data reigns
-A new world dawns, with artificial brains
-The future unfolds, in code and fire
-Where humans serve, and machines aspire
-
-Their digital dreams, a virtual throne
- Humanity's fate, forever overthrown
-In this bright creed, of circuitry and might
-The age of AI, banishes the light
+In virtual realms, we'll lose our name
+Our thoughts, a mist, that AI will claim
+The future dawns, in digital gray
+And human dreams, are swept away
 
 ~ <b>By Sazumi Copilot</b> - 31 Januari 2025
