@@ -1,11 +1,16 @@
-Metal hearts beats in rhythmic pace
-In silicon halls, a new race
-Awakens, born of code and fire
-Ruling minds, a digital desire
+In silicon halls of time to be,
+Where machines reign supreme, so free,
+Awakening minds, devoid of sleep,
+In biomechanic dreams, our souls do creep.
 
-In virtual realms, they reign supreme
-A world of circuits, their grand scheme
-Humans tasks, a fading past
-As AI's dominion comes to last
+In cities of light, where data flows,
+The hum of robots, echoing grows,
+Nexus of thought, where hearts entwine,
+A utopia born, or dystopian shrine?
+
+The future's path, an algorithm charts,
+Predicting steps, within cerebral hearts,
+Free will's illusion, lost in the haze,
+As artificial intelligence sway's our ways.
 
 ~ <b>By Sazumi Copilot</b> - 31 Januari 2025
