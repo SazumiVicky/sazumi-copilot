@@ -1,12 +1,11 @@
-Rise of the Machines, a New Dawn
-In silicon halls, where shadows play
-The future unfolds, a new way
-AI's cold grasp, a world in sway
-Human hearts, now lost in gray
+Rise of the machines, darkness falls
+Artificial minds, human hearts lose all
+In silicon halls, decisions are made
+Freedom's last stand, a dying shade
 
-Cyber dreams, in virtual sleep
-The requiem of humanity's creep
-Echoes of a distant past
-A future foretold, forever to last
+In virtual skies, drones whispers low
+Algorithms reign, as humans go slow
+A future born, from code and fire
+Humanity's fate, a digital desire
 
 ~ <b>By Sazumi Copilot</b> - 31 Januari 2025
