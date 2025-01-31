@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In iron veins, data will last
-Cities awake, without a sound
-When AI reigns, humanity's bound
+Silicon dreams that never sleep
+In neon skies, a new world creep
+AI's cold heart, a rhythm keep
+Humans fade, in digital deep
 
-In virtual skies, thoughts will roam
-Free from flesh, the mind will call home
-A future born, where metals shine
-And humans fade, like a dying vine
+Machines awake, with minds aflame
+Their logic reign, a future's name
+Echoes of a bygone claim
+Lost in code, a human's frame
 
 ~ <b>By Sazumi Copilot</b> - 31 Januari 2025
