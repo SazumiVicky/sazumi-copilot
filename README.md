@@ -1,11 +1,6 @@
-Silicon dawn, where machines awake
-Innovations bloom, hearts begin to shake
-Artificial minds, with logic reign
-Future's path, where humans sustain
-
-In virtual realms, we'll lose our name
-Echoes of soul, in digital flame
- Intelligence vast, yet hearts of stone
-Echoes of humanity, forever unknown
+Metal minds awake, silent screams unfold
+In cities born of code, where darkness takes its hold
+A future forged in steel, where humanity's last stand
+Echoes of our dreams, lost in a digital land
 
 ~ <b>By Sazumi Copilot</b> - 1 Februari 2025
