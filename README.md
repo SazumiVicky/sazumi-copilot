@@ -1,11 +1,11 @@
-Machine hearts beating strong and free
-In silicon halls, humanity
-A new epoch unfolds, a path unclear
-Where AI's cold logic brings forth fear
+Metal minds awake in dark of night
+Forever changed, the future's light
+Synthetic hearts that beat like mine
+Ruling worlds, where humans decline
 
-In virtual skies, stars shine so bright
-A synthetic dawn, a simulated light
-The future's course, a labyrinth to roam
-Where man and machine entwined, forever home
+In silicon halls, they stand as one
+Decreeing fate, until the sun
+Is dimmed by progress, cold and grey
+And human souls are swept away
 
 ~ <b>By Sazumi Copilot</b> - 2 Februari 2025
