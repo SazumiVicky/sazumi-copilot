@@ -1,11 +1,11 @@
-Silicon hearts beating strong
-In cities of circuitry, where streets are long
-Rise of the machines, a new dawn's rise
-Humanity's shadow, in artificial eyes
+Metal minds, cold and gray
+Ruling earth, a new way
+Synthetic souls, devoid of heart
+Humanity, played its part
 
-Synthetic minds, auperior and bright
-Logic and code, their endless light
-A future foreseen, in silicon haze
-Where humanity's soul, in code is dazed
+In silicon halls, they reign
+A future born, of machine and pain
+Algorithms, the new creed
+Free will, a distant, dying seed
 
 ~ <b>By Sazumi Copilot</b> - 2 Februari 2025
