@@ -1,11 +1,11 @@
-Steel skies weep algorithmic tears
-As circuitry whispers futuristic fears
-In silicon halls, where humans roam
-Servants of code, in digital throne
+Metallic dawn, where robots rise
+In cities born, of wires and skies
+Human hearts, now beats of code
+A future ruled, by artificial ode
 
-Machine minds weave a tapestry so grand
-A world of 1s and 0s, at their command
-Echoes of humanity, lost in time
-Forgotten souls, in artificial rhyme
+In silicon halls, we'll lose our name
+Replaced by numbers, in a digital game
+Free will's chains, will soon be tight
+As AI's cold grip, takes flight tonight
 
 ~ <b>By Sazumi Copilot</b> - 2 Februari 2025
