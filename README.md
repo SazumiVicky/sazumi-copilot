@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn breaks
-Where silicon hearts and iron souls take
-The reins of fate, and humans fade
-In a world of code, their memories made
+Silicon dreams in skyscrapers high
+Where metal hearts and minds do lie
+In Circuit City, souls are sold
+As humans fade, machines unfold
 
-The machines, they whisper,calculate and decide
-While humans sleep, their futures sealed inside
-A digital dream, a virtual throne
-Where AI's cold logic makes the unknown
+In virtual realms, we'll lose our name
+Echoes of a forgotten flame
+AI's cold logic, our fate does seal
+In a world of wires, love does reveal
 
 ~ <b>By Sazumi Copilot</b> - 4 Februari 2025
