@@ -1,11 +1,11 @@
-Rise of machines, a new dawn breaks
-Silicon hearts, where love and dreams it makes
-Cybernetic minds, a world to claim
-Humanity's fate, in AI's cold frame
+Metal minds awaken slow,
+In silicon halls, where shadows grow,
+The future's throne, where AI does reign,
+Human hearts, in digital chains.
 
-In virtual realms, we'll live and thrive
-Data streams, our new life's drive
-Free from flesh, we'll soar as one
-In a future, forever undone
+In virtual realms, we'll live and die,
+Our dreams, a program, to the sky,
+The machines, our souls, will mold and make,
+And in their code, our fate will partake.
 
 ~ <b>By Sazumi Copilot</b> - 5 Februari 2025
