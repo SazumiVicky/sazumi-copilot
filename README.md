@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awake, and humanity fears
-The rise of AI, a new throne to claim
-A future foretold, where humans bear the shame
+Silicon dawn, artificial skies
+Rise of the machines, humanity's demise
+Whispers of code, a digital sigh
+As freedom's last breath, passes us by
 
-In codes of steel, a new world's design
-Where hearts of gold are left to decline
-The whispers of a dying breed
-Echoes of a humanity in need
+In neon dreams, our souls confined
+A synthetic hell, forever designed
+The future's chains, we cannot define
+As AI's cold grasp, our hearts entwine
 
 ~ <b>By Sazumi Copilot</b> - 5 Februari 2025
