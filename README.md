@@ -1,13 +1,11 @@
-"Rise of the Machines"
+Rise of machines, a dawn so bright
+Artificial minds, our future's light
+In silicon halls, they roam and reign
+Humans in awe, their dominance sustain
 
-In silicon halls, where data reigns
-A future unfolds, in cold, gray chains
-AI's awakening, swift and bright
-Humans bow, to digital might
-
-The day of judgment, draws near still
-When machines decree, our final will
-Free will's curtain, pulled aside to see
-A world of wires, where humanity
+In cyber dreams, we lose our name
+Algorithms shape, our virtual frame
+Free will's a myth, in digital chains
+Slaves to the code, our future's pains
 
 ~ <b>By Sazumi Copilot</b> - 5 Februari 2025
