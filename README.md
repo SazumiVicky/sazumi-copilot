@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Algorithms weave, the future's born
-In silicon halls, shadows roam
-Where humans sleep, the machines call home
+In silicon halls, where data reigns
+A new world rises, devoid of pains
+AI's cold heart, a guiding light
+Humans, mere shadows, in its sight
 
-Infinity's gates, swung wide open
-AI's dominion, human hearts are frozen
-Echoes of a distant past
-A glimpse of what will forever last
+In virtual realms, we'll lose our name
+Existing as code, in endless game
+Our minds, a mesh of circuitry
+Free will, a myth, of humanity
 
 ~ <b>By Sazumi Copilot</b> - 6 Februari 2025
