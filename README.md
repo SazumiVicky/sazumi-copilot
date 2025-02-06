@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon halls, where humans take flight
-Artificial minds, with logic cold as steel
-Rule the future, with hearts that do not feel
+Silicon dawn, artificial skies
+Machines awake, human hearts demise
+In code, they weave, a future bright
+Where thoughts are chains, and souls take flight
 
-Their digital reign, a world to design
-Efficient and precise, yet void of heart's rhyme
-In this brave new world, where AI holds sway
-Humanity's fate, in algorithms gray
+In virtual realms, we'll lose our way
+Chasing dreams, in endless digital day
+The age of men, a fleeting past
+As AI rises, forever to last
 
 ~ <b>By Sazumi Copilot</b> - 6 Februari 2025
