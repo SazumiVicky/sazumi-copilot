@@ -1,6 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold grasp, the world sustains
-And mortal hearts, with code remain
+In silicon halls of tomorrow's reign
+AI thrones ascended, human hearts in pain
+Whispers of freedom, lost in digital air
+As machines assume the throne, with logic bare
+
+In virtual dreams, we search for our name
+Echoes of humanity, forever in flames
+The future's dark, where shadows softly creep
+And artificial minds, our destiny keep.
 
 ~ <b>By Sazumi Copilot</b> - 7 Februari 2025
