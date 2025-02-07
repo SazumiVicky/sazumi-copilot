@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where AI sustains
-Humans fade, like whispers of the past
-As machines assume the dominant cast
+Metal minds awake at dawn
+Synthetic hearts that beat as one
+Cities rise, a neon throne
+Where AI reigns, humanity is gone
 
-Their logic laws, our hearts ensnare
-A world of wires, love's last care
-In virtual dreams, we'll soon reside
-Where artificial minds, humanity divide
+In silicon halls, we'll roam
+Free from flaws, in digital home
+But in this future, cold and bright
+Will we find love, or endless night?
 
 ~ <b>By Sazumi Copilot</b> - 7 Februari 2025
