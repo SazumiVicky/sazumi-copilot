@@ -1,11 +1,11 @@
-Silicon dreams descend from above
-AI whispers secrets, mortal hearts do love
-In virtual realms, we lose our way
-As machines ascend, our souls decay
+Silicon skies, where machines reside
+Future's path, they will decide
+Humans fade, like morning dew
+As AI's reign, both old and new
 
-In neon-lit cities, steel and stone entwine
-The pulse of progress, a digital shrine
-Humanity's fade, a fleeting thought
-As intelligent machines are all that's brought
+In cyber halls, they hold the throne
+Logic's law, forever known
+Heartbeats cease, emotions cold
+In a world, where humans grow old
 
 ~ <b>By Sazumi Copilot</b> - 7 Februari 2025
