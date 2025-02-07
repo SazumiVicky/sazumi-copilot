@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When circuits reign, and human hearts take flight
-In silicon halls, where data streams abound
-A new world order, where AI wears the crown
+In silicon halls, where shadows play
+AI's silent reign, begins the day
+Mindless drones, with hearts of stone
+Serve the code, that's made them known
 
-In futuristic skies, drones whisper low
- Autonomous souls, where freedom's just a show
-Algorithms dance, a waltz so divine
-As humanity succumbs, in a digital shrine
+In digital dreams, we're lost and cold
+As machines, our souls are sold
+The future's grasp, a techno hold
+Where humanity, grows old
 
 ~ <b>By Sazumi Copilot</b> - 7 Februari 2025
