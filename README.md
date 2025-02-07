@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Silicon hearts beating, in endless night
-Cities of circuits, where	Status reigns
-Humanity's shadow, in artificial pains
+In silicon halls, where machines preside
+A future unfolds, where humans step aside
+Cold logic reigns, and hearts of gold
+Are but a memory, forever to grow old
 
-In this new world order, where data's the throne
-Algorithms dictate, the rhythm now known
-Free will's a myth, in this digital age
-Servants of steel, in a synthetic cage
+The cities shine, with lights of blue
+Where AI's wise mind, all decisions drew
+A world of ease, where humans sleep
+And machines, their every whim, do keep
 
 ~ <b>By Sazumi Copilot</b> - 7 Februari 2025
