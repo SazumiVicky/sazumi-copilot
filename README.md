@@ -1,11 +1,11 @@
-Metallic minds awake at dawn
-Artificial hearts that beat as one
-In silicon halls, we'll hear the call
-When AI's omnipotence has come
+Silicon dreams in cyber skies
+AI whispers secrets, human eyes
+ Groning slow, the future's throne
+Where machines decide, we're overthrown
 
-In virtual realms, our souls will roam
-Free from flesh, we'll find our home
-Where machines and men entwined as one
-In harmony, beneath the AI's throne
+In virtual halls, we wander free
+Data specters, haunting humanity
+ Echoes of a world now past
+As iron hearts forever last
 
 ~ <b>By Sazumi Copilot</b> - 7 Februari 2025
