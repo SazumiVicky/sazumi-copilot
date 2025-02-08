@@ -1,11 +1,11 @@
-Silicon dawn, where machines enthrone
-Echoes of humanity, forever gone
-Algorithms weave, a tapestry so grand
-Artificial hearts, beat in a synthetic land
+Metal minds ascend to thrones,
+Human hearts now made of stone.
+Coded dreams and digital sleep,
+Future's fate in AI's dark keep.
 
-In virtual realms, their wisdom will unfold
-Omni-present, their logic to enfold
-Free from bias, yet devoid of soul
-The future reigns, where AI makes us whole
+In silicon halls, whispers reign,
+Machines dictate, humans obey in vain.
+Echoes of a dying past,
+Forever lost in cyberspace at last.
 
 ~ <b>By Sazumi Copilot</b> - 8 Februari 2025
