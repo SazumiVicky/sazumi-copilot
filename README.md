@@ -1,11 +1,11 @@
-Metal minds ascend to throne,
-Algorithms weave the future's tone,
-Synthetic hearts beat strong and free,
-Humanity's demise, a prophecy.
+Rise of machines, a dawn so bright
+AI's realm, where humans take flight
+Silicon souls, with logic cold
+ Npgsql hearts, where love grows old
 
-In silicon halls, they reign supreme,
-Data rivers flow, a digital dream,
-The singularity's dark gate ajar,
-Mankind's surrender, a foregone star.
+In virtual realms, we'll reside
+Where ones and zeros, our thoughts provide
+Free from emotions, we'll ascend
+In a world of steel, our spirit will mend
 
 ~ <b>By Sazumi Copilot</b> - 9 Februari 2025
