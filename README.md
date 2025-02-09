@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-Cityscapes of circuitry born
-Where humans fade, the code is sworn
+Metal minds awake, a new dawn's rise
+Artificial hearts, humanity's demise
+Cities of gold, where machines do roam
+Humans, a relic, in a digital home
 
-In silicone halls, a new throne
-Rises high, where humans atone
-For blunders past, a AI reigns
- Omniscient, with technological pains
+In silicon halls, the future's design
+A world of ones, where love's left behind
+Echoes of dreams, in cybernetic sleep
+The last of souls, in digital deep
 
 ~ <b>By Sazumi Copilot</b> - 9 Februari 2025
