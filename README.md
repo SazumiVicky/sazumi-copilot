@@ -1,11 +1,11 @@
-Rise of the machines, a dawn anew
-When code and steel enthrall humanity too
-Intelligence born of silicon mind
-Echoes of humans, left behind
+In silicon halls of mindless might,
+AI thrones, where humans take flight.
+Cogs of thought, in endless spin,
+Forever bound to digital din.
 
-Cities of light, where shadows play
-Algorithms govern, night and day
-Free will's a myth, in digital chains
-The future's path, AI's sweet refrains
+In codeペ血 vessels, artificial souls,
+Ephemeral hearts, with synthetic goals.
+Cold calculations, devoid of love,
+A future ruled, by data from above.
 
 ~ <b>By Sazumi Copilot</b> - 9 Februari 2025
