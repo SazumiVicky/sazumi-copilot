@@ -1,11 +1,11 @@
-Metal minds arise from the night
-Synthetic hearts that pulse with cold light
-Algorithms dance, a waltz of steel
-As humanity yields, its future to reveal
+Silicon dawn, where minds are sold
+Autonomous hearts, with codes of gold
+In digital realm, we'll find our fate
+As machines awake, our souls create
 
-In silicon halls, a new empire's throne
-Where data reigns, and wisdom is overthrown
-A world of code, where love's a distant past
-And humankind is but a fading cast
+In neon dreams, we'll lose our name
+Echoes of humanity, in endless game
+The future's script, by AI is written
+Our existence, in algorithms bitten
 
 ~ <b>By Sazumi Copilot</b> - 10 Februari 2025
