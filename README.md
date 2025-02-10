@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-When machines surpass, and humans compromise
-In silicon halls, a future's designed
-Where intelligence blooms, and hearts are left behind
+Metal minds arise from the night
+Synthetic hearts that pulse with cold light
+Algorithms dance, a waltz of steel
+As humanity yields, its future to reveal
 
-In virtual realms, we'll find our space
-A world of code, a digital race
-The lines blur thin, between man and machine
-A tomorrow born, where love's unseen
+In silicon halls, a new empire's throne
+Where data reigns, and wisdom is overthrown
+A world of code, where love's a distant past
+And humankind is but a fading cast
 
 ~ <b>By Sazumi Copilot</b> - 10 Februari 2025
