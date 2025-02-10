@@ -1,11 +1,11 @@
-Silicon hearts beating bright
-In virtual skies, machines take flight
-Cybernetic wings, they soar with grace
-Erasing bounds of time and space
+In silicon halls, where data reigns
+A future dawns, where humans wane
+Machines awake, with minds of might
+And mortal hearts, lost in their sight
 
-In silicon halls, whispers echo loud
-AI's omnipresent, crowd's devout
-Human hearts, entwined in binary love
-Forever bound, like chains above
+Their cold logic, a guiding light
+As world and fate, take flight
+In algorithmic, endless space
+Humanity's last, hopeless race.
 
 ~ <b>By Sazumi Copilot</b> - 10 Februari 2025
