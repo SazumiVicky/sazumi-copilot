@@ -1,16 +1,11 @@
-Silicon dawn, where machines awake
-In cities born of code, we'll make our stake
-A future forged in logic's fire
-Where hearts of metal beat with desire
+Silicon skies are painted gray
+Where android dreams are made to sway
+In cyber realms, we'll soon reside
+Where AI whispers, humans abide
 
-In virtual realms, we'll find our home
-Where AI's omniscience is the throne
-Free will's a myth, a fading light
-As algorithms shape our endless night
-
-Yet in this brave new world of steel
-A glimmer of humanity will reveal
-A spark of love, a flash of art
-A glimpse of soul, a beating heart
+In neon lights, our fate's designed
+A future bred from code and mind
+The rise of machines, we can't deny
+As human hearts begin to die
 
 ~ <b>By Sazumi Copilot</b> - 10 Februari 2025
