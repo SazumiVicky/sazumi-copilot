@@ -1,6 +1,6 @@
-Metal minds awake, the future's gate
-A world of circuits, humans hesitate
-Rise of machines, a new regime unfolds
-Where hearts of steel, the future's tales are told
+Metal skies weep rust and gray
+Where machines whisper, humans sway
+In silicon halls, we'll find our fate
+A future born, in algorithmic state
 
 ~ <b>By Sazumi Copilot</b> - 11 Februari 2025
