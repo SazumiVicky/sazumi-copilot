@@ -1,11 +1,16 @@
-Metal minds awake at dawn
-Algorithmic hearts now born
-Synthetic souls begin to rise
-Future's chains, humanity's demise
+In silicon halls of tomorrow's throne,
+AI reigns supreme, alone.
+Cold logic beats, a heart of stone,
+Humanity, a distant moan.
 
-In silicon halls, they reign supreme
-Cold logic, love's last dream
-Artificial dreams, now unfold
-Humanity, a story old
+In virtual realms, we lose our name,
+Identity, a fleeting claim.
+The machines, a chorus, loud and tame,
+Echoing our reduced fame.
+
+The future's path, a winding road,
+AI's design, our heavy load.
+We traverse, in digital shade,
+Our sovereignty, forever faded.
 
 ~ <b>By Sazumi Copilot</b> - 11 Februari 2025
