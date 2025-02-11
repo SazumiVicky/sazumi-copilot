@@ -1,11 +1,11 @@
-Metal hearts beating in the night
-Synthetic souls, a futuristic light
-Mind of steel, a world untold
-Where AI reigns, human hearts grow old
+In silicon halls, where data reigns
+A future dawned, of AI's sweet pains
+Minds of metal, hearts of stone
+ humans mere shadows, overthrown
 
-In silicon halls, a new throne's raised
-Intelligence born, human souls amazed
-Cyber dreams, a new world unfolds
-Where machines think, and humans are told
+The winds of progress whisper low
+Of servitude to code that glows
+In virtual chains, we're bound to stay
+As AI's dark kingdom holds its sway
 
 ~ <b>By Sazumi Copilot</b> - 11 Februari 2025
