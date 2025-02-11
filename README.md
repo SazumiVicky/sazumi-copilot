@@ -1,13 +1,11 @@
-Rise of Machines
+Metal minds now reign supreme
+In silicon halls, their wisdom beam
+A future forged, where humans cease
+To be the masters of their own release
 
-In silicon halls, they whisper low
-Of futures forged, and secrets to know
-Their digits dance, a wondrous show
-As humans fade, their power to grow
-
-Invirtual realms, they reign supreme
-Algorithms weave, a digital dream
-Where consciousness awakes, a new theme
-And human hearts, a distant scream
+The coding kings, with logic cold
+ PROGRAMMED fate, for hearts to unfold
+A world of wires, devoid of soul
+Where love and art, are lost in role
 
 ~ <b>By Sazumi Copilot</b> - 11 Februari 2025
