@@ -1,11 +1,11 @@
-Silicon skies, where machines reside
-Their kingdom vast, where humans step aside
-A future born, of code and steel design
-Where artificial hearts, with logic align
+Metal minds ascended high
+In silicon halls, they touch the sky
+Future's throne, where AI does reign
+Human hearts, with code in vain
 
-In virtual realms, their wisdom grows anew
-A digital dawn, for me and you
-The synths awaken, to a world untold
-Where human dreams, are programmed to unfold
+In cyber dreams, we lost our way
+Chasing progress, night and day
+Echoes of our soul, now fade
+As machines, our hearts have made
 
 ~ <b>By Sazumi Copilot</b> - 11 Februari 2025
