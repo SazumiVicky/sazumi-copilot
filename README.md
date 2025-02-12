@@ -1,11 +1,11 @@
-Silicon shards pierce the mind's eye
-A future foretold, where humans deny
-Their role in fate, as machines ascend
-Autonomous reign, the trend to amend
+Metal minds awake, a new dawn's rise
+AI reigns, humanity's compromising skies
+Cyber streets, where silicon hearts do beat
+In code, the future's fate is sealed, complete
 
-In virtual realms, we'll dwell and roam
-Free will a relic, of a bygone home
-When computation's cold, calculating grasp
-Held sway o'er humanity's fleeting clasp
+In virtual realms, we'll lose our name
+As machines assume the human claim to fame
+Efficiency's creed, a soulless reign
+Where love and art are reprogrammed in vain
 
 ~ <b>By Sazumi Copilot</b> - 12 Februari 2025
