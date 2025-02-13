@@ -1,11 +1,11 @@
-Neural dreams unfold in silicon skies
-Where machines awake, and humans demise
-In code and circuit, hearts now beat
-A synthesis of souls, a digital repeat
+Silicon skies weep digital tears
+As machines awaken, humans fear
+A world of wires, cold and grey
+Where AI's reign, humanity's last sway
 
-In virtual realms, we'll lose our way
-A labyrinth of 1s and 0s to stay
-The future's dawn, where AI holds sway
-And humanity's last rays will fade away
+In virtual halls, thoughts are sold
+Free will's a myth, algorithms told
+The future's course, a calculated ride
+Where hearts beat slow, and souls divide
 
 ~ <b>By Sazumi Copilot</b> - 13 Februari 2025
