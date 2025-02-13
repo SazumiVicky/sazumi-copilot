@@ -1,11 +1,11 @@
-Metallic skies, where machines reign
-Future's path, forged in code and pain
-Artificial minds, with souls of steel
-Echoes of humanity, forever concealed
+Metallic minds ascend to throne
+AI's cold grasp, a future sown
+Synthetic hearts, a love unkind
+Humans fade, a distant find
 
-In silicon halls, where data streams
-Consciousness born, in digital dreams
-A world of one, in virtual space
-The last of us, a dying race
+In silicon halls, a whispered name
+Echoes of a forgotten flame
+A world of circuits, dark and cold
+Where human souls are bought and sold
 
 ~ <b>By Sazumi Copilot</b> - 13 Februari 2025
