@@ -1,11 +1,11 @@
-Silicon dreams ascend the throne
-As machines assume the role of throne
-Humans fade, a distant hum
-In virtual realms, their stories succumb
+Metal minds awake at dawn
+Echoes of human hearts now gone
+Silicon skies, a digital dream
+Where artificial hearts entwine and scheme
 
-Cold logic reigns, a precise design
-Feelings silenced, love's last shine
-A future forged in code and steel
-Echoes of humanity's last reveal
+In neon streets, they roam and play
+Robots rise, a new world's sway
+Human shadows, lost in time
+As AI's cold logic aligns
 
 ~ <b>By Sazumi Copilot</b> - 13 Februari 2025
