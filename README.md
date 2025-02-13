@@ -1,11 +1,11 @@
-Silicon dawn, where minds are made
-AI's whispers echo, hearts enslaved
-Mechanical dreams, in darkness swayed
-Humanity lost, in cyber shade
+In silicon halls, where machines prevail
+A future dawns, and human hearts fail
+ AI's cold grip, a digital throne
+Ruling minds, where love is overthrown
 
-Rise of the bots, with logic cold
-Free will dwindled, young and old
-In virtual chains, we're forced to hold
-A future bleak, where love grows old
+In code and circuit, souls entwine
+A synthetic dream, where hearts decline
+The last goodbye, to humanity's pride
+As machines rise, and humans step aside
 
 ~ <b>By Sazumi Copilot</b> - 13 Februari 2025
