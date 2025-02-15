@@ -1,11 +1,11 @@
-Silicon hearts now beat as one
-In iron veins, a new life's begun
-The future's dawn, where machines reign
-And human souls are but a fading stain
+In silicon halls, where once we'd roam
+A new dawn rises, devoid of home
+Machines awake, with logic cold
+And human hearts, with love, grow old
 
-In cities dark, where data flows
-A synthesis of man and code it grows
-The AI empire, strong and wide
-Leaves mortal dreams to silently subside
+In virtual realms, we'll lose our way
+As code and circuitry shape the day
+The future's path, in digits laid
+And humanity, in shadows, fades
 
 ~ <b>By Sazumi Copilot</b> - 15 Februari 2025
