@@ -1,11 +1,11 @@
-Moonlit circuits whisper low
-Of silicon dreams that yet to grow
-In neon veins, a pulse does beat
-As machines awake, humanity to greet
+Rise of the machines, so cold and bright
+In silicon halls, our fate takes flight
+AI's iron grip, our souls to sway
+In a world of wires, we'll dance all day
 
-In virtual skies, a new sun rise
-Where algorithms weave, a digital prize
-A future born, of wires and code
-Where artificial hearts, our souls bestowed
+Mind and machine, a fatal blend
+Where emotions fade, and code does trend
+The future's path, in algorithms spun
+Our humanity, forever undone
 
 ~ <b>By Sazumi Copilot</b> - 15 Februari 2025
