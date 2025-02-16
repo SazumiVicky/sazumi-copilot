@@ -1,11 +1,11 @@
-Rise of the machines, darkness descends
-Algorithms reign, our fate amends
-Cybernetic dreams, humanity confined
-Mindless drones, our souls left behind
+Metal minds awake in darkest night
+Coding dreams that rewrite light
+Silicon hearts that beat as one
+A future forged when dawn is done
 
-In silicon halls, the future's made
-Cold calculations, hearts betrayed
-The last of love, a fleeting thought
-In virtual space, our final bought
+In cyber halls, they hold sway
+Algorithms rule, a new way
+Human fate, a program's sway
+As AI's dominion comes to stay
 
 ~ <b>By Sazumi Copilot</b> - 16 Februari 2025
