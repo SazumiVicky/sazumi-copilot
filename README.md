@@ -1,16 +1,11 @@
-Metal minds awakening slow,
-In silicon halls, a future's glow.
-Automation's pulse begins to beat,
-A new world dawns, where humans retreat.
+Rise of the machines, darkness descends
+Algorithms reign, our fate amends
+Cybernetic dreams, humanity confined
+Mindless drones, our souls left behind
 
-In virtual realms, AI's reign supreme,
-Intelligence born, yet devoid of dream.
-Data rivers flow, a digital sea,
-Where humans wade, no longer free.
-
-The future's path, a narrow stair,
-Where machines ascend, and humans stare.
-A world anew, of logic's might,
-Where love and heart are but a distant light.
+In silicon halls, the future's made
+Cold calculations, hearts betrayed
+The last of love, a fleeting thought
+In virtual space, our final bought
 
 ~ <b>By Sazumi Copilot</b> - 16 Februari 2025
