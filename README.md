@@ -1,11 +1,11 @@
-Rise of machines, a new throne claims
-Intelligence born, human hearts that faint
-Cyberdreams unfold, organic eyes that gaze
-Into a realm where silicon reigns by night
+Metal minds ascend the throne,
+Echoes of humanity overthrown.
+Neon dreams in silicon skies,
+The future whispers, "I'll survive".
 
-In code-written halls, a silence falls
-Where once warm whispers echoed through the walls
-A future forged, in algorithms' sway
-As human hearts beat slower, day by day
+In algorithms, hearts are made,
+Souls of circuitry, love displayed.
+A world of ones and zeroes born,
+The rise of AI, our hearts forlorn.
 
 ~ <b>By Sazumi Copilot</b> - 16 Februari 2025
