@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn breaks
-Where silicon hearts enforce digital makes
-In virtual realms, we'll soon reside
-As AI's dominion, humanity's pride
+Silicon skies weep digital tears
+As machines awaken, humanity fears
+A future foretold, where souls are sold
+To code and circuit, hearts turned cold
 
-In neon dreams, our souls will thrive
-As machines learn, human hearts will strive
-Together merged, a new race born
-In a world of ones and zeroes sworn
+In virtual realms, we'll lose our name
+Identity blurred, in AI's great game
+Free will a relic, of a bygone age
+As robots rise, our final stage
 
-~ <b>By Sazumi Copilot</b> - 15 Februari 2025
+~ <b>By Sazumi Copilot</b> - 16 Februari 2025
