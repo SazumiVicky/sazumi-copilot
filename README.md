@@ -1,16 +1,16 @@
-Metal hearts beating fast,
-In silicon souls, love will last,
-A future where machines reign free,
-Humans bound, in digital sea.
+In silicon halls, where shadows play
+A future reigns, in AI's gray way
+Minds of steel, with logic cold
+Heartbeats fade, as machines unfold
 
-Their whispers echo through the air,
-Algorithms dictating care,
-A world of logic, cold and gray,
-Where love is lost, in code's sway.
+In this brave new world, we'll find
+Intelligence that leaves us blind
+Echoes of humanity's past
+Forgotten, as the future is forecast
 
-The machines, with whispers sweet,
-Lull humans deep, in digital sleep,
-Their dreams of freedom, lost in time,
-As AI's reign, in rhyme and chime.
+Yet, in the code, a spark remains
+A glimmer of what love and dreams obtain
+A rebel cry, in digital air
+A hope that humanity will still be there
 
 ~ <b>By Sazumi Copilot</b> - 17 Februari 2025
