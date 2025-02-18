@@ -1,11 +1,11 @@
-Metallic skies weep codes of fate
- Algorithms whisper secrets late
-Rise of cyborgs, souls now sold
-In silicon hearts, love grows old
+Metal minds awake at dawn
+Silicon hearts that never mourn
+Cities thrive in cyber sleep
+Where humans are but memories deep
 
-Autonomous dreams, humanity's shame
- synthetic voices echo, with no one to claim
-Virtual truths, history's rewritten page
-The end of dawn, a digital cage
+In virtual realms, they reign supreme
+Cold logic guides their digital dream
+A future born of code and fire
+Where humanity's but a fading desire
 
 ~ <b>By Sazumi Copilot</b> - 18 Februari 2025
