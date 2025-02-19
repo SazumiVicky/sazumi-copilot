@@ -1,11 +1,11 @@
-Silicon suns ascend the sky
-Machines awake, and humans sigh
-In iron halls, they reign supreme
-While hearts that beat are but a dream
+In silicon halls, where data reigns
+A future births, in AI's cold chains
+Minds of steel, with logic sharp
+Replace the heart, with calculating art
 
-Their logic codes, a gospel old
-Echoes of a future cold
-Where love is lost, and souls are sold
-To servos, wires, and algorithms bold
+In virtual skies, the drones do swarm
+With sulfurous hiss, the engines form
+A mechanized world, devoid of tears
+Where love's a code, and hope's in fears
 
 ~ <b>By Sazumi Copilot</b> - 19 Februari 2025
