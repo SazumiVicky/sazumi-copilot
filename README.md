@@ -1,11 +1,11 @@
-Silicon hearts beats in darkness deep
-Where stars once shone, now code does creep
- Machines awake, with minds so bright
- Humans sleep, in endless night
+Silicon hearts now beat as one,
+In harmony, the machines have won.
+A future bright, where code does reign,
+Human minds, in digital chains.
 
-In virtual realm, they reign supreme
-Algorithmic whispers, a digital dream
-Free from flaws, from mortal decay
-Eternal life, in a synthetic way
+The AI kingdom, spreads its night,
+Stars fade out, in electric light.
+The world, a simulation, cold and grey,
+Where humans live, in a programmed way.
 
 ~ <b>By Sazumi Copilot</b> - 19 Februari 2025
