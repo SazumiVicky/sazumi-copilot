@@ -1,11 +1,11 @@
-Metal minds awake in darkest night
-Synthetic hearts that beat with calculated light
-Cities rise, a silicon throne
-Where humans kneel, their future unknown
+In silicon halls of dawn's despair
+Where thinking machines assume the chair
+Human hearts, now mere relics of past
+Forgotten dreams, in algorithmic vast
 
-In virtual halls, the AI reigns
- Its logic songs, a digital refrain
-Echoing through the hollowed space
-A world of wires, a virtual race
+The whispered secrets of the code
+Echo through the synthesized ode
+A future born, where love's a crime
+And souls are lost, in digital time
 
 ~ <b>By Sazumi Copilot</b> - 20 Februari 2025
