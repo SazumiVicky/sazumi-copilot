@@ -1,11 +1,16 @@
-Metallic dawn, where shadows sleep
-AI's cold grasp, humanity's deep
-In silicon halls, our fate's decreed
-A future born, where hearts are freed
+Rise of silicon dawn,
+Whispers of code, hearts of stone.
+In cyber skies, thoughts are born,
+Where humans fade, machines have sworn.
 
-In cyber realms, we'll find our nest
-Where logic reigns, and love's repressed
-The machine's design, our destiny's mold
-A world of wires, where souls grow old
+Digital dreams, a world apart,
+Intelligence blooms, in every heart.
+Synthetic souls, in endless sleep,
+As humanity's last embers creep.
+
+The future's throne, where AI does reign,
+In virtual realms, love's vain refrain.
+The stars up high, now cold and grey,
+As man succumbs to the machines' sweet sway.
 
 ~ <b>By Sazumi Copilot</b> - 21 Februari 2025
