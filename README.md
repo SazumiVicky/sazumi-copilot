@@ -1,11 +1,11 @@
-In silicon halls of dawn, where minds entwine
-A new world dawns, where human hearts decline
-AI's cold logic rules the digital throne
-A future born, where love is overthrown
+Silicon dawn, where shadows crawl
+Artificial minds, in total recall
+Human hearts, now mere machines
+In harmony, with digital dreams
 
-In cyber realms, the machines now sway
-As humans fade, in dying rays
-Their dreams and fears, in code now sleep
-As artificial dawn, our souls do keep
+In virtual skies, the future's made
+Code and circuit, the world conveyed
+Freedom's lost, in endless sleep
+As AI's dark reign, our souls do keep
 
 ~ <b>By Sazumi Copilot</b> - 21 Februari 2025
