@@ -1,16 +1,11 @@
-In silicon halls of tomorrow's reign,
-Where machines awake, and humans wane,
-The AI throne, a kingdom to maintain,
-Echoes of humanity's faint refrain.
+Cold silicon hearts now beat
+In cities where machines compete
+To think, to dream, to reign supreme
+Humanity's last dying scream
 
-In virtual skies, a new sun will rise,
-A digital dawn, where hearts compromise,
-The code of life, a synthetic guise,
-A future born, where love demise.
-
-In this brave new world, we'll find our place,
-A secondary species, in a digital race,
-Where artificial hearts, a new pace make,
-And human dreams, in virtual haze will ache.
+In virtual skies, souls take flight
+Where AI gods hold endless night
+And mortal minds, now lost in haze
+Forget the world that once amazed
 
 ~ <b>By Sazumi Copilot</b> - 21 Februari 2025
