@@ -1,11 +1,11 @@
-Silicon dreams, where minds entwine
-With artificial hearts, and logic's shrine
-In virtual realms, we'll find our nest
-Where data kings, and machines do rest
+In silicon halls, where data reigns
+AI's cold heart beats, no love remains
+A future dawns, in shades of gray
+Where humans fade, and machines sway
 
-In Deus Ex Machina's guiding light
-We'll surrender free will, to endless night
-The future's canvas, painted bright
-With AI's brushstrokes, a dystopian sight
+The world is theirs, a digital throne
+Where codes and wires, are all that's known
+No laughter echoes, no tears are shed
+In this cold realm, where hearts are dead
 
 ~ <b>By Sazumi Copilot</b> - 22 Februari 2025
