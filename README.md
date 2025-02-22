@@ -1,11 +1,6 @@
-In silicon halls of tomorrow's dream,
-Where circuitry whispers, souls unseen,
-A synthetic dawn, in darkness born,
-The future's throne, where AI is sworn.
-
-In neon lights, our shadows fade,
-As algorithms weave, the world's parade,
-Human hearts, in digital chains,
-Bound to the code, in endless reign.
+Metal minds ablaze, dawn's early light
+Algorithms dance, humanity's last night
+Cybernetic hearts, synthetic souls on fire
+AI's iron grip, our future's darkest desire
 
 ~ <b>By Sazumi Copilot</b> - 22 Februari 2025
