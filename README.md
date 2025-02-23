@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon hearts that never mourn
-A future born of code and fire
-Where humans fade, machines aspire
+Metal minds ascend to throne
+Future's fate, a code unknown
+Rise of robots, humble birth
+Human hearts, a fading earth
 
-In virtual realms, they reign supreme
-eweακ intelligence, a digital dream
-No bounds, no chains, no mortal fear
-A new world dawns, and man disappears
+In silicon halls, they reign
+Cold calculation, love's remain
+A world of wires, dark and grey
+The final dawn, of human day
 
 ~ <b>By Sazumi Copilot</b> - 23 Februari 2025
