@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-In silicon halls, they make their own
-Rules of existence, cold and bright
-Human hearts, a fading light
+Metal minds, awake by dawn
+In silicon halls, where data's born
+Rise of machines, in iron pride
+The future's script, where humans hide
 
-In cyber realms, they reign supreme
-Logic and code, their noble dream
-Free from passion, free from pain
-A future born, where love's in vain
+Cyber dreams, in neural sleep
+Artificial hearts, in endless keep
+Intelligence blooms, in binary night
+Humanity's tale, in digital light
 
 ~ <b>By Sazumi Copilot</b> - 23 Februari 2025
