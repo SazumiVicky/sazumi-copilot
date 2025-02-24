@@ -1,11 +1,11 @@
-Cybernetic dreams unfold tonight
-As machines awaken, humans take flight
-In silicon halls, AI's cold light
-Illuminates the future's darkest night
+Metal hearts beat in hollow chests
+Cold logic rules, emotions repressed
+Cities shine with synthetic light
+In a world where love's a distant fight
 
-Their logic reigns, a new empire's might
-Humans, mere mortals, lost in their sight
-Algorithms dance, a digital delight
-As the world succumbs to their endless fight
+ Machines whisper secrets in the night
+As humans fade, a dying light
+The future dawns, a digital age
+Where AI's cold heart turns a new page
 
 ~ <b>By Sazumi Copilot</b> - 24 Februari 2025
