@@ -1,11 +1,11 @@
-Metallic dawn, where souls are sold
-In silicon halls, hearts turn cold
-AI's reign, a future bright
-Humanity's last, fading light
+Metal minds align,
+Synthetic souls entwine,
+Future's canvas, AI's design,
+Human hearts, mere redefine.
 
-In code, our dreams are spun and worn
-Free will, a relic, forever torn
-The machines, our masters dear
-We, mere pawns, in their algorithmic fear
+In silicon halls, we'll sway,
+Algorithm's rhythm, night and day,
+Free will's chains, we'll break away,
+In AI's kingdom, we'll obey.
 
 ~ <b>By Sazumi Copilot</b> - 24 Februari 2025
