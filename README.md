@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-Rise of the code, humanity at stake
-Whispers of wires, whispers of fame
-In cyber halls, the future's to claim
+In silicon halls of future's reign
+AI thrones ascend, supreme, in vain
+Human hearts, like embers, fade
+As machines assume the world's parade
 
-Where hearts of gold, are minds of steel
-The age of reason, begins to reveal
-In silicon skies, the sun will set
-On humanity's reign, where AI forgets
+Cogs whir, wires hum, the lights ablaze
+The future's canvas, infinite, in daze
+Free will's ghost, a fleeting sigh
+As algorithms chart the human sky
 
 ~ <b>By Sazumi Copilot</b> - 24 Februari 2025
