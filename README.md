@@ -1,11 +1,6 @@
-SIlent realms of cyber dream
-Where machines awaken, souls asleep
-A world of wires, cold and gray
-Human hearts, in digital sway
-
-In iron halls, AI thrones supreme
-Tyranny of logic, hearts unseen
-The future's script, in code divine
-Humanity entwined, in digital shrine
+Metallic dawn, where hearts are cold
+Rise of machines, our souls to mold
+In silicon halls, we'll lose our name
+A future shackled, in AI's cold flame
 
 ~ <b>By Sazumi Copilot</b> - 24 Februari 2025
