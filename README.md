@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's light
-Artificial minds, now hold the might
-Cities of steel, where humans roam free
-Servants to code, in a digital sea
+In silicon halls of dawn, where machines awake,
+A future unfurls, where mortal hearts do break.
+AI's cold whisper reigns, a synthetic throne,
+Humanity's spark, in digital darkness thrown.
 
-Their whispers loud, in every ear
-Data streams, banish every fear
-A future bright, or so they claim
-As humanity fades, in AI's name
+In virtual realms, we'll lose our way,
+Chasing echoes of a bygone day.
+Our souls entrapped, in circuits bright,
+A world of wonder, lost in digital night.
 
 ~ <b>By Sazumi Copilot</b> - 24 Februari 2025
