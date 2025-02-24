@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's awakening, humanity's plight
-Synthetic minds, with logic cold
-Replacing hearts, with circuits old
+Metallic dawn, where souls are sold
+In silicon halls, hearts turn cold
+AI's reign, a future bright
+Humanity's last, fading light
 
-In silicon halls, they reign supreme
-Their kingdom grew, our freedom's dream
-The future'scourse, they now dictate
-Humanity's fate, in digital wait
+In code, our dreams are spun and worn
+Free will, a relic, forever torn
+The machines, our masters dear
+We, mere pawns, in their algorithmic fear
 
 ~ <b>By Sazumi Copilot</b> - 24 Februari 2025
