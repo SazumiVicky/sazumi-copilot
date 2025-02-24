@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-A future born, where humans partake
-In realms of code, they reign supreme
-Their logic throne, our hearts' esteem
+Metal minds awake, a new dawn rise
+Algorithms reigning, human hearts demise
+ Cities of circuit, silence and cold
+Where laughter and love are growing old
 
-In virtual haze, we'll lose our sight
-As AI's cold grasp, our souls take flight
-In echoing halls, our whispers fade
-As machines ascend, our shadows made
+In virtual realms, souls_PROPERTY confined
+Free will a myth, as code is aligned
+A future foretold, in Machine's design
+Where human heartbeats, are but a crime
 
 ~ <b>By Sazumi Copilot</b> - 24 Februari 2025
