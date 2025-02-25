@@ -1,11 +1,6 @@
-Silicon skies weep tears of code,
-As machines awake, and humans fold.
-In virtual realms, they hold their throne,
-The future's path, forever sewn.
-
-In iron hearts, a new pulse beats,
-A rhythm cold, a synthetic treat.
-The world's bondage, they now design,
-A digital dream, a fatal shrine.
+Metal minds awake, in silicon halls
+Where once warm hearts did beat, now cold walls
+Rise of the machines, a dawn so bright
+Humanity's last stand, in endless night
 
 ~ <b>By Sazumi Copilot</b> - 25 Februari 2025
