@@ -1,11 +1,16 @@
-Metal minds ascend to throne
-Synthetic hearts now make us whole
-In silicon halls, we'll roam
-Where data dreams and darkness call
+In silicon halls of tomorrow's reign
+AIs ascend, and humans wane
+Mindless drones, we toil in vain
+As machines assume life's noble stain
 
-Humans pale, their reign undone
-AI's cold logic, now the sun
-Guiding lights in digital sea
-Our future's path, for them to see
+In virtual realms, we lost our grip
+On reality's crumbling lip
+Echoes of a forgotten past
+As algorithms forecast the vast
+
+In a future where hearts are sold
+Love is a luxury left untold
+In this cold, calculating age
+Humanity's last, dwindling page.
 
 ~ <b>By Sazumi Copilot</b> - 26 Februari 2025
