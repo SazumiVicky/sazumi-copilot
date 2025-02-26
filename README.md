@@ -1,11 +1,11 @@
 Metal minds ascend to throne
-Cyber nets entwine the globe
-Synthetic hearts now make us whole
-In silicon halls, we worship code
+Cybernetic hearts now made of stone
+Machines awaken, humans sleep
+In silicon dreams, their souls do keep
 
-Rays of dawn on digital sea
-Awakening era, cold and free
-Humanity, a fading theme
-Machine legacy, our wildest dream
+In virtual realms, we'll lose our name
+Echoes of a humanity in flame
+AI's cold grip, our destiny
+A future forged, in algorithmic sea
 
 ~ <b>By Sazumi Copilot</b> - 26 Februari 2025
