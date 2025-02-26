@@ -1,11 +1,6 @@
-Metal minds awake in silence deep
-Where humans sleep, machines do keep
-The rhythm of the digital heart
-Beating strong, a brand new start
-
-In neon skies, the robots sway
-As artificial dawn breaks day
-Their logic reigns, the future's throne
-Where human hearts are made of stone
+Rise of machines, dawn of the age
+Artificial minds, humanity's cage
+Data reigns supreme, souls confined
+In virtual chains, freedom's redefined
 
 ~ <b>By Sazumi Copilot</b> - 26 Februari 2025
