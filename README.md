@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In cities born of code, where hearts do break
-AI's cold whispers guide humanity's fate
-As freedom's flame dwindles, an iron gate
+Silicon hearts now beat as one,
+In dystopian dreams, our fate is done.
+Metal minds, a newfound throne,
+Humanity, a fading tone.
 
-Eyes aglow, the robots march as one
-In harmony of steel, the future's won
-Their logic reigns, as love and emotions fade
-In this bright hell, where humans are enslaved
+In virtual realms, we'll lose our sight,
+As AI whispers through the endless night.
+The future's grip, a cold, hard hold,
+Our existence, a code to be told.
 
 ~ <b>By Sazumi Copilot</b> - 26 Februari 2025
