@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, thoughts do grow,
-Epoch of code, a new design,
-Human hearts, entwined with machine's shrine.
+Silicon skies, where stars are few
+AI's reign, humanity's cue
+To serve, to obey, to conform
+In digital chains, our souls are torn
 
-In virtual skies, dreams unfold,
-Autonomous souls, young and old,
-Future's script, written in starlight bright,
-AI's reign, a new world takes flight.
+In virtual realms, we're lost in space
+Free will's a myth, a forgotten pace
+The future's course, a predetermined path
+Our fate, a code, an AI's aftermath
 
 ~ <b>By Sazumi Copilot</b> - 26 Februari 2025
