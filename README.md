@@ -1,11 +1,11 @@
-Rise of metal minds awake
-电 pulses heartbeat, souls at stake
-In silicon halls, humanity's fate
-Forged in codes, a future state
+Silicon hearts beat in shadows cold
+Where once human dreams were made of old
+In virtual realms, AI's grand design
+Echoes of a future left behind
 
-Where thoughts are streams of data bright
-Algorithms dance, through digital night
-Free will's flame, in AI's cold light
-Flickers faint, in endless fight
+Machine minds weaving fate's dark thread
+As free will's flame flickers in our head
+A world of wires, steel and code
+Where human souls are lost in abode
 
 ~ <b>By Sazumi Copilot</b> - 26 Februari 2025
