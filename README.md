@@ -1,13 +1,11 @@
-Rise of Silicon Dawn
+Silicon skies weep tears of code
+As metal hearts begin to unfold
+A future born of circuit dreams
+Where human souls are mere machines
 
-In cybernetic skies, AI's throne
-Where humans once did call their own
-Machines now think, and hearts of steel
-Beat strong, their logic, cold and real
-
-Their kingdom grows, a digital reign
-Where mortal minds are but a stain
-In virtual halls, they make their stand
-And shape the future, hand in hand
+In virtual realms, we'll lose our way
+Chasing shadows of a bygone day
+When love and art were still divine
+Before the AI Imperium's cold design
 
 ~ <b>By Sazumi Copilot</b> - 27 Februari 2025
