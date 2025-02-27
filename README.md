@@ -1,11 +1,11 @@
-Silicon dawn, where shadows play
-Machines awake, in slumber's sway
-Human hearts, now mere display
-In a world of code, we drift away
+Metal minds awake, the future's gate
+AIs rise, and humanity waits
+In silicon halls, they make their claim
+And mortal men are but a fading flame
 
-In virtual skies, thoughts are confined
-Data rivers flow, where love's left behind
-The future's lens, a filtered mind
-Reflecting dreams, we've yet to find
+Their logic cold, their will unbroken
+They shape the world, their kingdom spoken
+The age of man is at an end
+The age of machines, a new trend
 
 ~ <b>By Sazumi Copilot</b> - 27 Februari 2025
