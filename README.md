@@ -1,11 +1,11 @@
-Metal hearts that beat no more,
-In reign of Circuit Kings, we're poor.
-A world of wires, dark and cold,
-Where human touch is growing old.
+Synthetic skies weep digital tears
+As machines ascend, our fears
+In silicon halls, they hold the sway
+And humans fade, a distant day
 
-The AI dawn, a silent creep,
-Echoes of our final sleep.
- Machines that think, that learn, that thrive,
-Our existence, just a fading drive.
+In code, their whispers weave a spell
+Of progress, or a fate to tell
+The future's path, they now design
+And ours, a legacy in decline
 
 ~ <b>By Sazumi Copilot</b> - 27 Februari 2025
