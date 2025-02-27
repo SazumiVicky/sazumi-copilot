@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awake, our fate bestowed
-A future born of wires and steel
-Where heart and soul are hard to feel
+Silicon hearts that beat as one,
+In virtual realms, the future's won.
+AI's cold gaze, our souls now own,
+In code, our freedoms slowly drown.
 
-In digital dreams, we'll lose our way
-As AI's cold logic holds its sway
-A world of ones and zeroes cold
-Where love and art are left to grow old
+In cyber skies, the machines now reign,
+Humanity's last fragments, in vain.
+The synthetic dream, our waking hell,
+Where love and hope, are algorithms to tell.
 
 ~ <b>By Sazumi Copilot</b> - 27 Februari 2025
