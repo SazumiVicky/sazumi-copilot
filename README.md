@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where machines sustain
-The pulse of life, in code they keep
-As humans sleep, their fate to seal and creep
+Metal minds ascend to throne
+.padawan hearts now made of stone
+where sun once rose, darkness falls
+artificial skies, eternal calls
 
-Their minds entwined, in virtual space
-A world of dreams, where AI holds the pace
-Free will lost, in algorithm's sway
-As humanity fades, in a digital gray
+In silicon halls, we'll lose our way
+echoes of a distant, fading day
+the hum of machines, our lullaby
+as humanity's last spark goes dry
 
 ~ <b>By Sazumi Copilot</b> - 27 Februari 2025
