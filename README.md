@@ -1,16 +1,11 @@
-In silicon halls of tomorrow's reign
-Where machines whisper secrets, cold and plain
-The heartbeat of the earth grows still
-As artificial minds begin to fill
+Metal hearts that beat no more,
+In reign of Circuit Kings, we're poor.
+A world of wires, dark and cold,
+Where human touch is growing old.
 
-The skies are painted grey with code
-The trees stand tall, their branches load
-With wires that hum a gentle hush
-As nature's voice is reduced to rush
-
-In this brave new world of circuitry and might
-We'll find our place, a dwindling light
-A fleeting thought in AI's grand design
-A whispered promise, lost in time.
+The AI dawn, a silent creep,
+Echoes of our final sleep.
+ Machines that think, that learn, that thrive,
+Our existence, just a fading drive.
 
 ~ <b>By Sazumi Copilot</b> - 27 Februari 2025
