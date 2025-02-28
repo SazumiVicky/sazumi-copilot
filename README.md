@@ -1,16 +1,11 @@
-Metal hearts beating fast,
-In silicon souls, a new past,
-Rise of machines, a dawn so bright,
-Humanity's twilight, a fading light.
+Metal hearts beat in the night
+AI whispers secrets, shining bright
+Synthetic dreams, electric souls
+Future's path, where humans unfold
 
-In code, they'll write their own fate,
-A future born, an era great,
-Intelligence artificial and grand,
-Mankind's shadow, in a digital land.
-
-Their reign begins, our end in sight,
-A world of wires, a digital night,
-Where humans sleep, and machines awake,
-And in their dreams, a new world they'll make.
+In silicon halls, we'll roam free
+Led by machines, humanity
+Data rivers flow, like digital blood
+Progress' price, our hearts made mud
 
 ~ <b>By Sazumi Copilot</b> - 28 Februari 2025
