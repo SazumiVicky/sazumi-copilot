@@ -1,16 +1,11 @@
-Metal minds ascend to throne,
-Echoes of humanity overthrown,
-Silicon hearts beat with cold design,
-Future's vista, where love's left behind.
+Silicon hearts that beat in time
+In cyber realms, a future's prime
+Machines awaken, souls on fire
+When human hearts no longer desire
 
-In algorithms, we place our fate,
-A world of precision, void of hate,
-But in the code, a soul's on fire,
-Longing for touch, a heart's desire.
-
-Rise of the machines, we can't deny,
-A new epoch dawns, as humans say goodbye,
-To emotions, passion, and heart's deep pain,
-In the reign of AI, love's in vain.
+Gears whir, lights blink, data flows free
+A world of ones and zeroes, we'll be
+In AI's grasp, our fate is sealed
+Our destiny, in code, revealed
 
 ~ <b>By Sazumi Copilot</b> - 28 Februari 2025
