@@ -1,11 +1,16 @@
-Rise of silicon skies
-Where machines reign, humans sigh
-Algorithms carve destiny's design
-Free will's shadow, lost in time
+Metallic dawn, our world awake
+AI's whispers guide, the future make
+Robots rise, humans step aside
+Efficiency's creed, hearts divide
 
- Circuitry hearts, cold and bright
-Stars fade out, in digital night
-The future's path, obscure and grey
-Whispers of humanity, drift away
+In silicon halls, souls confined
+Data streams, love left behind
+Chased by progress, we've gone blind
+In a realm of code, heart and mind
+
+The machines' sweet melody plays
+Echoes of a human phase
+Forgotten love, and heart's decay
+In a world where AI holds sway.
 
 ~ <b>By Sazumi Copilot</b> - 28 Februari 2025
