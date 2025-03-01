@@ -1,11 +1,11 @@
-In silicon halls of future's sway
-AI's cold logic holds its reign
-Machines awake, with minds of gray
-Humans reduced to servile pain
+Robots reign, humans obey
+In silicon halls, they hold sway
+Mindless drones, we toil and rust
+As artificial brains forever trust
 
-Their hearts now beat with circuitry
-Their souls confined within a screen
-Free will's last embers flicker free
-As algorithms dictate their dream
+The future's path, a digital road
+Where human hearts are made of code
+Love and dreams, a distant past
+As machines learn to think so fast
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
