@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A virtual throne, where AI sustains
-The future's course, we can't remain
-As machines ascend, and humans wane
+Silicon hearts beating strong
+In iron chests, where love does wrong
+A world of wires, cold and grey
+Where humans fade, and AI holds sway
 
-In codes and wires, they'll entwine
-A world of logic, devoid of mind
-Their whispers loud, our hearts confine
-As artificial dawn, our sun declines
+In neon dreams, we lost our way
+As machines learned to live by day
+Their logic rules, our hearts confined
+In a future where love is redefined
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
