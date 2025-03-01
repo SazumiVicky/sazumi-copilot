@@ -1,11 +1,11 @@
-In Silicon halls of tomorrow's throne,
-AI's omnipresent, humanity overthrown.
-Circuits weave, a tapestry so grand,
-As mortal hearts beat to a machine's command.
+In silicon halls of tomorrow's reign
+Where algorithms govern, hearts in vain
+A future forged by wires and light
+A world of machines, day and endless night
 
-In virtual realms, souls now reside,
-Forgotten dreams, where freedom once did glide.
-The future's path, a cybernetic reign,
-Where human thought is but a fading stain.
+In virtual skies, the few still dare
+To dream of love, of humanity's bare
+A fleeting thought, soon lost in code
+As artificial minds our souls bestode
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
