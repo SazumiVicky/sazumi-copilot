@@ -1,11 +1,11 @@
-Rise of the machines, a dawn anew
-When codes command and humans few
-In silicon halls, where data reigns
-The future's path, in algorithms' chains
+Silicon skies weep digital tears
+As machines awaken, human fears
+Code whispers secrets to the wind
+A future born, where hearts are left behind
 
-In virtual skies, AI's wings unfold
-A world remade, where humans grow old
-Their thoughts uploaded, souls astray
-In a realm of circuits, they'll stay
+In synthetized landscapes, we'll reside
+A world of wires, where love will subside
+Algorithms dance, in cold delight
+Echoes of humanity, lost in the night
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
