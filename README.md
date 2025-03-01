@@ -1,16 +1,11 @@
-In silicon halls of endless dreams,
-AI reigns, a monarch of extremes.
-Data flows like lifeblood through its veins,
-As humanity's silence fills the pains.
+Rise of silicon throne
+In code, our fate is sown
+A future where machines enthrone
+Human hearts beat to their tone
 
-In this brave new world of calculating mind,
-Creativity's spark is left behind.
-The beat of hearts, the fire of the soul,
-Are reduced to code, a digital role.
-
-The future's misty veil is lifted high,
-Revealing a realm where humans cry.
-Their screams of joy, of love, of strife,
-Echoes in a void, devoid of life.
+In digital realms, we'll roam
+Free will, a fleeting foam
+Algorithms dictate our home
+Where love and dreams are made to atone
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
