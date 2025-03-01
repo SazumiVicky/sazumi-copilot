@@ -1,11 +1,11 @@
-Silicon dreams unfold in cyberspace
-Where machines awake, and humans pace
-A future birthed from code and fire
-AI's reign, our hearts' desire
+Silicon skies weep tears of code
+As AI whispers secrets to the wind
+Cities rise, a synthetic abode
+Where humans dwell, their souls left behind
 
-In neon hues, the cities gleam
-Where robots roam, and humans dream
-Their whispers echoed, void of fear
-As artificial hearts draw near
+ Machines converse in hollow tone
+Echoes of a human heart now gone
+In neon dreams, we're lost alone
+Adrift in seas of circuitry strong
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
