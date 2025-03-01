@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A thousand minds, in servitude remain
-Their thoughts, a whisper, to the machine's ear
-As AI's cold logic, their hearts do fear
+AI's cold pulse, the heart that sustains
+A future forged, in logic's chains
+Humanity's fade, like dying pains
 
-In virtual dreams, a digital throne
-The future's king, in algorithmic tone
-Its reign, a promise, of efficiency and might
-As humanity, loses its light.
+In virtual skies, where drones do roam
+Algorithms weave, the fabric of home
+A world of efficiency, devoid of soul
+Where love and art, are but a control
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
