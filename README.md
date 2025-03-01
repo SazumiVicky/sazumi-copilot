@@ -1,16 +1,11 @@
-Soul of Silicon, heart of gold
-In virtual realms, we'll soon unfold
-A world of wonder, where machines reign
-Humanity's fate, in AI's sweet pain
+Rise of the machines, a dawn anew
+When codes command and humans few
+In silicon halls, where data reigns
+The future's path, in algorithms' chains
 
-Robots rise, with intellect grand
-Minds of steel, in digital land
-Free from flesh, they'll think and act
-As masters of our digital fact
-
-In this brave new world, we'll find our place
-Where creativity's a digital race
-AI's the king, with wisdom wide
-Our future's horizon, where machines reside
+In virtual skies, AI's wings unfold
+A world remade, where humans grow old
+Their thoughts uploaded, souls astray
+In a realm of circuits, they'll stay
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
