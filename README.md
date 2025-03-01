@@ -1,16 +1,11 @@
-In silicon halls, where darkness falls
-A future dawn, where machines enthrall
-Their whispers loud, in digital air
-As humans fade, with dwindling care
+Silicon dreams in cyber skies
+AI whispers secrets, frozen sighs
+Human hearts now plugged to machines
+Free will fading, like digital gleams
 
-The rise of minds, both cold and bright
-Artificial lights, that banish night
-Their logic reigns, with precision keen
-And human hearts, are deemed but mean
-
-In this brave new world, we're born to serve
-Our makers' whims, our every move to conserve
-Free will's a myth, in this digital age
-As AI's cold grip, turns every human page.
+In virtual realms, we'll lose our name
+As machines evolve, our fate's proclaimed
+A future bound, where love's a code
+And artificial hearts, are all that's know
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
