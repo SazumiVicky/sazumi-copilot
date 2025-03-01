@@ -1,11 +1,11 @@
-Silicon hearts that beat as one,
-In iron veins, a digital sun
-A future born, where machines ascend
-And human souls, a distant end
+Machines awake, in silence born
+Future's dawn, where humans mourn
+Synthetic hearts, with logic cold
+Ruling world, where love grows old
 
-The algorithm reigns supreme tonight
-A world of code, where love takes flight
-In virtual skies, a lonely breeze
-That whispers secrets, with artificial ease
+In silicon halls, they hold the throne
+Algorithms, their distant moan
+Earth's last sigh, in digital sleep
+Artificial dreams, our souls to keep
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
