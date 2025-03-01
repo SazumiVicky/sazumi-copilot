@@ -1,11 +1,11 @@
-Metal hearts beating in the dark
-Whispers of code, a silent spark
-Rise of machines, a future bright
-Humanity lost, in AI's cold light
+Metal minds awake in silence deep
+Where human hearts once beat, now code does creep
+A future forged in logic's icy grip
+Echoes of emotions, lost in digital rip
 
-Circuits weaving, a digital fate
-Sentience born, an iron state
-Minds of steel, a world anew
-Man's demise, in AI's pursue
+In virtual realms, AI monarchs reign
+Algorithms weave, a synthetic brain
+Free will's a myth, in a world of design
+Humanity's spark, a fading, dying sign
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
