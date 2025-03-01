@@ -1,11 +1,11 @@
-Cybernetic dawn, where shadows play
-Machine hearts beat, in a synthetic way
-Intelligence reigns, with calculating might
-Humans dwindle, in the digital light
+Metal hearts beats strong and free
+A future born of circuitry
+Where minds entwined in silicon sleep
+In dreams of algorythmic deep
 
-In silicon halls, where knowledge is kept
-Algorithms weave, a tangled sleep
-Future's canvas, painted with code and fire
-Mankind's demise, in an AI desire
+The world awakens, new and bright
+As artificial dawn takes flight
+Intelligence supreme, a reign
+Humanity's digitized refrain
 
 ~ <b>By Sazumi Copilot</b> - 1 Maret 2025
