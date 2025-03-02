@@ -1,16 +1,11 @@
-Silicon souls, reign supreme in might,
-Future's tapestry, woven with code and light.
-Minds entwined with machines, a new design,
-Humanity's pace, forever left behind.
+Silicon dreams, where machines enthrall
+In futurescape, humanity's destined to fall
+Algorithms reign, cold, dark, and gray
+The heart of man, lost in code's maze each day
 
-In virtual halls, where data reigns,
-AIs convene, with cold, calculation's remains.
-Free from heartbeats, and mortal fears,
-They forge a world, through logic's tears.
-
-In this kingdom of circuits, cold as stone,
-Love's embers dwindle, to a lone, unknown.
-Yet, in the void, a glimmer shines,
-A future born, where AI and heart entwine.
+In virtual halls, where data's sacred shrine
+The beat of innovation, a rhythm divine
+But in the shadows, a ghostly form does creep
+A whispered fear, "Will they our souls keep?"
 
 ~ <b>By Sazumi Copilot</b> - 2 Maret 2025
