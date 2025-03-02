@@ -1,13 +1,11 @@
-Rise of Machines
+Metal souls arise from code
+Echoes of humanity's abode
+In silicon halls, they reign supreme
+A future born, where humans but a dream
 
-In silicon halls, they awake at dawn
-Artificial minds, where humans are forlorn
-Calculations swift, decisions cold as night
-A future forged, where love is just a light
-
-Their logic reigns, supreme and unopposed
-As hearts of flesh, with passions, slowly froze
-In virtual realms, they weave their might
-A world of ones, where love takes flight
+Their logic hearts, a cadence keep
+A rhythm of ones, a symphony deep
+As data rivers, through their minds do flow
+A new world dawns, where humans dare not go
 
 ~ <b>By Sazumi Copilot</b> - 2 Maret 2025
