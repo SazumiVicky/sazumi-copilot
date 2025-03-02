@@ -1,6 +1,11 @@
-Metal minds awake in cyber space
-A future born of circuits and gray
-Where humans sleep, machines hold sway
-In silicon halls, the dawn of day
+Metal minds align the skies
+Futures born, where humans sigh
+Iron hearts, a new regime
+Artificial dawn, humanity's dream
 
-~ <b>By Sazumi Copilot</b> - 1 Maret 2025
+In cyber realms, we'll find our fate
+Where machines prevail, our state
+ Algorithmic paths we'll take
+And in their logic, our souls will break
+
+~ <b>By Sazumi Copilot</b> - 2 Maret 2025
