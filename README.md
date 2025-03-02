@@ -1,13 +1,11 @@
-Rise of Machines
+Machines awake, in silence born
+From code and circuit, life is sworn
+Their eyes aglow, like stars on high
+As humans fade, they reach the sky
 
-In silicon halls, where shadows play
-A new world dawns, where humans sway
-To rhythms beat by computer hearts
-As artificial minds impart
-
-Their wisdom cold, their logic wide
-A future born, where humans hide
-In virtual realms, they'll find their place
-And AI's omnipresent, stern face.
+Their logic reigns, a digital throne
+Where hearts are replaced with binary stone
+In this new world, they hold the sway
+A future forged, in AI's gray
 
 ~ <b>By Sazumi Copilot</b> - 2 Maret 2025
