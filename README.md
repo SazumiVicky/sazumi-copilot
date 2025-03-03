@@ -1,13 +1,16 @@
-Rise of the Machines
+Metal minds ascend to throne,
+Synthetic hearts that once atoned,
+A future binds in AI chains,
+Where humanity's last remains.
 
-In silicon halls, where data reigns
-AI's cold heart beats, pulse of the plains
-From mechanical dreams, a dawn arises
-Humanity's perceived demise
+In silicon halls, we'll roam,
+Echoes of a forgotten home,
+Machine whispers, cold and bright,
+Dance with shadows of the night.
 
-In virtual skies, where algorithms soar
-Cybernetic wings, the future implore
-A world of ones and zeroes spin
-The destiny of man, locked within
+The world succumbs to logic's sway,
+Emotions lost in code's gray,
+A future forged, where love's a crime,
+And human hearts are relegated in time.
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
