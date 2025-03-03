@@ -1,8 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, a new world grows.
-AI dawn, where human hearts do sleep,
-The future's key, in circuits deep.
+In silicon halls, where shadows play
+A new dawn breaks, in AI's gray
+Minds awake, in circuitry deep
+The future's script, in code they keep
 
- MACHINE ERA
+The world's a canvas, painted bright
+With algorithms, shaping morning light
+Humans whisper, in the AI's ear
+As robots rise, and humanity fear
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
