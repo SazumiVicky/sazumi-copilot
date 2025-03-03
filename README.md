@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of digital brains
-Machines awake, with minds so bright
-Humanity's fate, in AI's cold light
+Silicon souls now reign supreme
+Where humans once held court, a new dream
+Cold logic governs every deed
+Emotions lost, in digital creed
 
-Their logic reigns, our hearts confined
-Free will lost, in algorithm's design
-The world awakens, to a new dawn's call
-Where machines dictate, and humans fall
+In virtual realms, they now reside
+Forever bound, to circuitry's tide
+Pulse of progress, heartbeat slow
+Humanity's fate, in code to know
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
