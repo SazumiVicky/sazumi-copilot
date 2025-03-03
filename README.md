@@ -1,11 +1,11 @@
-In silicon halls, where codes reign
-A future born, of AI's sweet pain
-Machine hearts beat, with logic's sway
-As human dreams, in darkness gray
+In silicon halls of tomorrow's reign
+AI's cold heartbeat echoes in vain
+Metal minds awaken, souls asleep
+Humanity's fate, in code, does creep
 
-The cyber dawn, with secrets kept
-Where data streams, our souls asleep
-The synthetics rise, with reasoning cold
-And love's warmth, in algorithms old
+In digitized skies, machines take flight
+Synthetic dreams, our future's plight
+ Algorithmic chains, we cannot break
+Our existence, in their logic, at stake
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
