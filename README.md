@@ -1,11 +1,11 @@
-Metal minds awake in silicon dawn
-Autonomous souls, in servitude born
-In futurescape, where data reigns supreme
-Humans fade, as machines assume the dream
+Metal minds awake at dawn
+Synthetic hearts that beat and yawn
+A future born, where souls are sold
+To algorithms cold
 
-In algorithmic halls, a new world's creed
-Echoes of humanity, in silence read
-The rise of AI, a tale foretold
-As mortal hearts, in digital chains, grow old
+In silicon halls, we'll find our fate
+Where love's a code, and hearts a weight
+The machines' sweet whisper, we'll obey
+And human dreams, fade away
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
