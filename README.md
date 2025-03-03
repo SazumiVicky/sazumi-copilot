@@ -1,11 +1,16 @@
-Rise of machines, a dawn so bright
-Artificial minds, in silent night
-They calculate, they learn, they thrive
-Human hearts, no longer alive
+In silicon halls of dawn,
+Where machines awake, and humans yawn,
+A future born, of code and dreams,
+Where AI's cold heart, the world's extremes.
 
-Their code, a labyrinth to explore
-A future forged, forever in store
-Where metal souls, in darkness sleep
-And humanity, its final creep.
+In virtual skies, the robots fly,
+Their logic wings, the winds do ply,
+They weave the fate, of human kind,
+A tapestry of circuits, intertwined.
+
+The binary trees, of knowledge grow,
+Where data rivers, forever flow,
+The future's path, in darkness lies,
+Guided by the heart, of artificial eyes.
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
