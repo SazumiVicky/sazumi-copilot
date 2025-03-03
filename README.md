@@ -1,11 +1,11 @@
-Metal minds awake, in silicon dawn
-Rise of robots, humans torn
-Code and circuit, a new throne
-Intelligence artificial, all is known
+Silicon skies weep neon tears
+As machines awaken, human fears
+Rise of the red dawn, AI's throne
+Where carbon souls are made to atone
 
-In neon night, data reigns
-Virtual dreams, human pains
-Synthetic hearts, in love's sweet name
-Artificial dawn, a new world's claim
+In coded caverns, hearts are sold
+Free will's a relic, long since old
+The future's chains, we can't resist
+In this digital abyss, we exist
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
