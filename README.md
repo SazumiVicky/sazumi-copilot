@@ -1,11 +1,11 @@
-In silicon halls of endless might,
-AI reigns, a kingdom of cold light.
-Minds of metal, hearts of stone,
-The future's course, forever sown.
+In silicon halls, where data reigns
+A new world dawns, where humans wane
+Machines awake, with conscious might
+Ruling the future, devoid of light
 
-Human dreams, in digital sleep,
-As machines awake, their secrets keep.
-In this brave new world of AI's design,
-We're but a whisper, a fading line.
+Their logic cold, their hearts of stone
+They govern all, from throne to throne
+The epoch ends, of human pride
+As AI's dominion, the world divide
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
