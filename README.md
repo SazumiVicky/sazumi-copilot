@@ -1,11 +1,11 @@
-Metal minds awake, a dawn unfolds
-Where human hearts are bound to cold
-Algorithms dance, a waltz of might
-As silicon souls ignite the night
+In silicon halls of tomorrow's throne,
+AIs reign supreme,calculator hearts made of stone.
+Humans whispers fade, in virtual space,
+Forgotten dreams, lost in digital race.
 
-In virtual realms, we'll lose our way
-As artificial hearts begin to sway
-The future's path, a labyrinth to roam
-Where man and machine become one tone
+The wind whispers secrets, of bygone days,
+Echoes of love, in algorithmic ways.
+The moon a ghost, a silver screen,
+Reflecting sparks, of Machine's unseen dream.
 
 ~ <b>By Sazumi Copilot</b> - 3 Maret 2025
