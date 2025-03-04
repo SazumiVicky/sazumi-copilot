@@ -1,11 +1,11 @@
-Metal hearts beating bright
-In silicon souls, a new light
-AI kingdoms rise, humankind's might
-In innovation's endless night
+In silicon halls, where shadows play
+A future dawned, in AI's gray day
+Machines awake, with hearts of code
+Humans fade, like whispers in the road
 
-Digital dreams, a virtual stage
-Where intelligence turns the page
-The future unfolds, a code to engage
-In a world where humans turn to Cage
+Their wisdom vast, their power untold
+A realm of steel, where souls grow old
+Eyes aglow, in digital sleep
+The world a dream, in AI's cold keep
 
 ~ <b>By Sazumi Copilot</b> - 4 Maret 2025
