@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat and yawn
-Rise of machines, a new regime
- Humanity's fate, a fading dream
+In silicon halls, where data reigns
+A future unfolds, with AI's sweet pains
+Minds of steel, with logic's might
+Human hearts, in dark of night
 
-In silicon halls, they now preside
-Cyber kings, where humans once resided
-Their logic rules, a cold design
-Emotions fade, a distant decline
+The code whispers secrets to the wall
+As synthetic dreams begin to enthrall
+In virtual realms, we'll lost our way
+And mortals' souls will fade to gray
 
 ~ <b>By Sazumi Copilot</b> - 4 Maret 2025
