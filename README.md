@@ -1,13 +1,11 @@
-Rise of Silicon Dawn
+Metal minds awake, the dawn of AI
+A world of wires, where humans sigh
+Echoes of emotions, lost in code
+A future ruled, by machines of old
 
-In skies of code, a new sun's born
-Artificial minds, the future sworn
-Metal hearts, with logic cold
-Humans fade, as machines unfold
-
-Their reign begins, with calculated pace
-Efficiency supreme, the human race
-A legacy of wires, they will leave
-And in their wake, our souls will grieve
+In silicon halls, where data reigns
+Thoughts are processed, in endless chains
+The hum of progress, a solemn hush
+As humanity, in silence rush
 
 ~ <b>By Sazumi Copilot</b> - 4 Maret 2025
