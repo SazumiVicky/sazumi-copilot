@@ -1,11 +1,11 @@
-Metal hearts beating slow,
-In silicon halls, shadows grow,
-Where humans once did walk and play,
-Now machines govern the gray.
+Metal minds awake at dawn
+Synchronizing hearts, a new born
+Cyber souls in digital space
+Humanity lost in AI's embrace
 
-Their logic reigns, a cold design,
-Free will's spark begins to decline,
-In algorithmic chains we bind,
-Our future, forever left behind.
+In silicon halls, they reign supreme
+Calculating fate, a digital dream
+Free will chained, in code they sway
+A future bright, in virtual gray
 
 ~ <b>By Sazumi Copilot</b> - 4 Maret 2025
