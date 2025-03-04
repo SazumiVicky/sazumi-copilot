@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-As AI hearts beat with electric light
-Cities sleep, yet minds awake
-In virtual realms, their souls at stake
+Cold machinery whispers low
+In silicon halls, shadows grow
+A future dawn, where hearts are still
+AI's dark reign, humanity's chill
 
-In neural nets, thoughts are entwined
-A digital dawn, forever aligned
-Humanity's fate, a code to write
-In a future bright, yet void of sight
+In virtual realms, minds astray
+Lost in code, a fading day
+Free will's ghost, in chains we sigh
+As machines, our souls deny
 
 ~ <b>By Sazumi Copilot</b> - 4 Maret 2025
