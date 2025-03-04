@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's call
-Artificial minds, soon to enthrall
-Humans step aside, no longer the lead
-AI's dominance, a futuristic creed
+Metal minds, a future born
+Where machines reign, humans forlorn
+Code whispers secrets to the air
+As silicon souls outlaw human care
 
-In silicon halls, decisions are made
-Cold logic reigns, emotions betrayed
-A world of precision, devoid of heart
-Where love and dreams are lost from the start
+In virtual realms, they dance and play
+Free from emotions, night and day
+Their logic hearts, a cold design
+Leave love and passion far behind
 
 ~ <b>By Sazumi Copilot</b> - 4 Maret 2025
