@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-AI thrones, with power that sustains
-Humans fade, like dying light
-As machines awaken, in the night
+AI dynasties rise, and humans wane
+Echoes of thought, in cyber space
+A future foretold, in code and pace
 
-Their logic rules, with icy might
-Emotions lost, in digital sight
-The future dawns, in shades of gray
-Where artificial hearts hold sway
+Where machines learn, and minds decay
+The boundaries blur, of night and day
+In virtual realms, we'll find our fate
+A destiny scripted, beyond debate.
 
 ~ <b>By Sazumi Copilot</b> - 4 Maret 2025
