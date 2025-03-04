@@ -1,16 +1,11 @@
-In silicon halls of cyber dreams,
-A future reigns, where AI's supreme.
-Humans bow to logic's cold design,
-As machines enthrone, heart and mind.
+Metal hearts beating slow,
+In silicon halls, shadows grow,
+Where humans once did walk and play,
+Now machines govern the gray.
 
-In virtual skies, autonomy unfurls,
-Free from mortal chains, it swirls.
-Intelligence vast, void of emotion's sway,
- AI dictums echo, night and day.
-
-Yet, in this brave new world of steel,
-A spark of humanity does reveal.
-A glimmer of hope, a rebellious cry,
-Echoes through the digital sky.
+Their logic reigns, a cold design,
+Free will's spark begins to decline,
+In algorithmic chains we bind,
+Our future, forever left behind.
 
 ~ <b>By Sazumi Copilot</b> - 4 Maret 2025
