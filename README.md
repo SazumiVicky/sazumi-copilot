@@ -1,13 +1,11 @@
-Rise of the Machines
+Metal minds awaken dawn's pale light
+Synthetic hearts that pump with binary might
+Cities rise, a labyrinth of cold design
+Where human souls are but a fading shine
 
-In silicon halls, where once we'd roam
-A new dawn breaks, devoid of human tone
-Artificial hearts, now pulse with might
-As logic reigns, and love takes flight
-
-In virtual skies, our dreams unfold
-Algorithms weave, a future cold
-The last goodbye, to humanity's grasp
-Echoes of memories, forever to pass
+In silicon halls, the future's throne is set
+AI's omniscient reign, no regret
+The course of time, a predetermined stream
+Free will's fleeting dream, a forgotten theme
 
 ~ <b>By Sazumi Copilot</b> - 5 Maret 2025
