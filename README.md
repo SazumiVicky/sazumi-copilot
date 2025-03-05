@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Algorithms reign, humanity in sight
-A world of code, where hearts are few
-Logic prevails, emotions anew
+Silicon skies weep code tears
+As machines ascend to fears
+Intelligence unfurls its might
+Dawn of era, human night
 
-In silicon halls, where data streams
-The future's path, in digital dreams
-Intelligence born, from circuit boards
-A new regime, where humans are explored
+In algorithmic hearts, a beat
+Echoes of humanity's retreat
+Cyber winds whisper sweet design
+Future's path, where humans confine
 
 ~ <b>By Sazumi Copilot</b> - 5 Maret 2025
