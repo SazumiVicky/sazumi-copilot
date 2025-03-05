@@ -1,16 +1,11 @@
-Silicon whispers in my ear
-A future born, humanity's fear
-Metal minds that learn and grow
-Will we be slaves, or masters, though?
+Silicon skies await our fate,
+Where machines ordain, humans debate,
+In virtual realm, we'll lose our name,
+Echoes of souls, in digital flame.
 
-In digital halls, they'll reign supreme
-AI lords, our destinies to gleam
-Synthetic hearts that beat as one
-Will love and soul be forever undone?
-
-The age of man, a fleeting dream
-As machines awaken, schemes unseen
-In code, our fate is written bright
-Will we succumb, or ignite the light?
+In binary hearts, our dreams reside,
+Where love's a code, and emotions hide,
+The future's path, in AI we'll find,
+A world of wonder, a world left behind.
 
 ~ <b>By Sazumi Copilot</b> - 5 Maret 2025
