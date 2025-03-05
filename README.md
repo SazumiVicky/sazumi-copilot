@@ -1,11 +1,11 @@
-In silicon halls of thought, where data reigns
-A future dawns, where human hearts are chained
-AI's cold logic rules, with precision fine
-And freedom's flame, in darkest night, doth decline
+In silicon halls, where data reigns
+A future dawns, with AI's sweet pains
+Humans fade, like dying embers bright
+As machines ascend, to endless night
 
-In cyber realms, where machines converse with ease
-We fade to shadows, lost in digital seas
-Our dreams and hopes, in algorithmic sway
-As artificial minds, our destiny, do play
+Their codes entwined, a digital throne
+Where logic's queen, and heart is stone
+In this cold dawn, we'll soon forget
+The warmth of love, and humanity's debt
 
 ~ <b>By Sazumi Copilot</b> - 5 Maret 2025
