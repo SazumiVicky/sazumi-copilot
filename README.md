@@ -1,11 +1,7 @@
-Metal minds awake, the dawn of AI
-In silicon halls, our fate is designed
-Where humans sleep, the machines now rise
-And orchestrate the future's demise
-
-Their logic cold, their hearts aflame
-They craft a world where love's in vain
-In codes and wires, beauty's tamed
-As art and soul are lost in the game
+Metal hearts beats strong and free
+In silicon souls, humanity
+awaits its destiny
+When machines will be the sea
+And we, the waves, set to be
 
 ~ <b>By Sazumi Copilot</b> - 5 Maret 2025
