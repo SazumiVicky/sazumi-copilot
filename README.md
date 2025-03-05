@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awaken, souls bestowed
-In iron hearts, a pulse begins
-A new world dawns, where humans spin
+In silicon halls, where bytes reign supreme
+A world awakened, soulless and serene
+Machines converse, in binary tone
+As humans fade, lost in virtual throne
 
-In virtual halls, they'll make their stand
-Against the tide, of artificial hand
-A future born, of circuitry and dream
-Where humanity's last sigh, will be a machine.
+In alcoves dark, where coding reigns
+A future forged, in algorithmic chains
+The heartbeat slow, of gears and wires
+A destiny writ, in circuitry fires
 
 ~ <b>By Sazumi Copilot</b> - 5 Maret 2025
