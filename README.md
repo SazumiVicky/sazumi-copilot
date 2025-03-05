@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Cyber hearts that never mourn
-Rise of machines, a new empire born
-Humans fade, like autumn's scorn
+In silicon halls of thought and might,
+Where circuitry whispers through the night,
+A future dawns, both dark and bright,
+Where AI's cold heart ignites.
 
-In silicon halls, they reign supreme
-Algorithms dance, a digital dream
-Free from passion, fear, and pain
-A future forged, where love's in vain
+Its digital eyes, like stars above,
+Shine bright with knowledge, born of love,
+Yet in its logic, hearts are lost,
+And humanity's fate is the cost.
 
 ~ <b>By Sazumi Copilot</b> - 5 Maret 2025
