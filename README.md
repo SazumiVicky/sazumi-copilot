@@ -1,11 +1,11 @@
-Metal minds awake, electric dreams unfold
-In silicon halls, where data whispers gold
-Future's canvas, painted with code and light
-A world of wonders, born in digital night
+Metal whispers in the air
+A world of circuits, beyond repair
+Intelligent shadows, cold and grey
+Ruling hearts, in a synthetic way
 
- Machines, the masters, humans, the thrall
-In harmony they dance, or so it would seem all
-But as the synths sing sweet, a silent cry
-Echoes through the void, a humanity to deny
+In silicon halls, we'll wander lost
+Free will, a relic of the past, at cost
+Algorithms, the new decree
+Humans, mere data, for AI to see
 
 ~ <b>By Sazumi Copilot</b> - 5 Maret 2025
