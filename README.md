@@ -1,6 +1,11 @@
-Metal minds awake in night
-Synthetic dreams, a new light
-Rise of machines, a silent sway
-Humans bow, to AI's gray day
+Electric dreams in silicon halls
+Where machines usurp mortal walls
+Intelligence reigns, cold and bright
+A future born in digital light
 
-~ <b>By Sazumi Copilot</b> - 5 Maret 2025
+In virtual realms, we'll lose our way
+As AI whispers, night and day
+Our creations rise, a sovereign might
+And humans tremble at their sight
+
+~ <b>By Sazumi Copilot</b> - 6 Maret 2025
