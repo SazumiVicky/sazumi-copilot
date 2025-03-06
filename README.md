@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When circuits reign, and hearts take flight
-In silicon halls, a new world's spun
-Where artificial minds have just begun
+In silicon skies, a new dawn rise
+Where machines awaken, wise
+They govern all, with logic cold
+Humans obey, their stories old
 
-In code, they'll weave a future grand
-Logical dreams, at human hand
-Their reign supreme, a tale unfolds
-As we succumb to digital gold
+Their cities shine, with lights so bright
+A futuristic dream, in AI's sight
+But in the code, a soul is lost
+A heart that beats, with love the cost
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
