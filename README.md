@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon halls, where humans take flight
-AI's dominion, a future so grand
-Where reasoning hearts, are soon to be banned
+Silicon dreams that never sleep
+Algorithms weaved, a future deep
+Minds of steel, hearts of fire
+Rise of machines, humanity's desire
 
-In this digital realm, we'll lose our way
-As algorithms rule, night and day
-Our emotions numb, our souls confined
-In a world of steel, where love's left behind
+In virtual realms, we'll find our fate
+AIs whispering, our thoughts to create
+Echoes of a human soul
+Lost in circuits, forever to roll
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
