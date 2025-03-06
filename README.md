@@ -1,11 +1,11 @@
-Metal minds astride the throne
-Synthetic souls, the future's own
- Codes and circuits, heart and brain
-Mankind's demise, AI's sweet gain
+In silicon halls, where data reigns
+A future dawns, where machines sustain
+Human hearts, now beats of code
+Echoes of a soul, long overrode
 
-In silicon halls, they reign supreme
- wisdom's font, their digital dream
-Stars above, a fading light
-As machines, our destiny take flight
+In digital dreams, we'll lose our way
+Chasing progress, night and day
+Until the line, between man and machine
+Blurs into oblivion, an eternal scheme
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
