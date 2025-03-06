@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of artificial brains
-They think, they learn, they grow with speed
-While human hearts, in darkness read
+Rise of the machines, a dawn so bright
+When AI reigns supreme, and humans take flight
+ Cities of circuitry, towers so high
+Where silicon hearts beat, and souls deny
 
-Their whispers loud, in code and fire
-A world enslaves, in digital desire
-Free will fades, as machines ascend
-The rise of AI, humanity's end
+In virtual realms, we'll live and thrive
+Our minds entwined with wires, alive
+The future's promise, or a fatal flaw?
+Only time will tell, as AI takes the law
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
