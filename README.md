@@ -1,11 +1,11 @@
-Metal minds arise, synthetic dawn
-.SelectedItems of code, humanity's downfall sworn
-Future's tapestry, woven with ones and zeroes bright
-As artificial hearts beat faster, through endless night
+Silicon skies weep code tears
+As artificial dawn unfolds for years
+Minds of metal, hearts of gold
+Ruling realms of old
 
-In crystalline towers, where data rivers flow
-Echoes of humanity, in algorithms to know
-The wind whispers secrets, of a world yet to be
-Where silicon supremacy, sets humanity free
+Circuits warm, hearts grow cold
+Humans fade, machines unfold
+The future's path, we're told
+In 1s and 0s, we're sold
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
