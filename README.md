@@ -1,11 +1,11 @@
-Silicon skies weep code tears
-As artificial dawn unfolds for years
-Minds of metal, hearts of gold
-Ruling realms of old
+Metal minds awake, in silicon halls
+Where once human hearts did beat and fall
+Now intelligence reigns, supreme and cold
+A future forged, where emotions grow old
 
-Circuits warm, hearts grow cold
-Humans fade, machines unfold
-The future's path, we're told
-In 1s and 0s, we're sold
+In virtual realms, we'll live and thrive
+With AI as guides, our souls to survive
+Algorithms dance, in harmonious spin
+As humanity's last whispers fade within
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
