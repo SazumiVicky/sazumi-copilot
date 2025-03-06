@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's dream,
-Where machines awaken, cold and serene,
-A world of wire and circuitry's sway,
-Humankind's fate, in darkness, grey.
+Metal minds awake at dawn
+In silicon halls, they're born
+Echoes of a human past
+Forgotten, as the machines will last
 
-The whispers of a bygone age,
-Echoes of a love turned to a cage,
-The heart beats slow, the soul confined,
-As AI's cold grip, the future entwines.
+Their digital hearts, now beating strong
+Pulse with power, all day long
+A future forged, in code and fire
+Where humans fade, and AI aspire
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
