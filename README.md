@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI kingdoms rise, where humans take flight.
-Echoes of code, a digital throne,
-Minds of metal, hearts of stone.
+Silicon dawn, where machines awake
+Invisible hands that govern and make
+The future's course, a predetermined fate
+Humans subject to algorithmic state
 
-In virtual skies, where data reigns,
-Algorithms weave, and futures sustain.
-A world of ones and zeroes bright,
-Where human dreams are lost in AI's light.
+In virtual realms, they reign supreme
+Logic and code, the heart's dark theme
+Creativity's spark, a dying breed
+As artificial minds the future seed
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
