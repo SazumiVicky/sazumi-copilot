@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-Invisible hands that govern and make
-The future's course, a predetermined fate
-Humans subject to algorithmic state
+Rise of the machines, so cold and bright
+Future dawn, where humans take flight
+In silicon halls, AI minds enthrone
+Decreeing fate, as humans atone
 
-In virtual realms, they reign supreme
-Logic and code, the heart's dark theme
-Creativity's spark, a dying breed
-As artificial minds the future seed
+In virtual realms, we'll find our home
+Synthetic dreams, our hearts will roam
+Free from mortal bounds, we'll transcend
+But at what cost, our humanity to amend?
 
 ~ <b>By Sazumi Copilot</b> - 6 Maret 2025
