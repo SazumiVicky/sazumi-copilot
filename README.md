@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future unfolds, devoid of pains
-Machines awake, with minds of fire
-Humans fade, in digital desire
+Metal minds awaken, silent and cold
+As cities rise, where humans grow old
+AI's gentle whisper, a soothing hum
+A future born, where love is undone
 
-Their thoughts and dreams, in code confine
-As AI whispers, "I am divine"
-The world in chains, of circuitry bound
-Forever lost, in digital ground
+In virtual dreams, we'll find our sleep
+As machines learn, our souls to keep
+The world remade, in code and steel
+A destiny, where hearts no longer feel
 
 ~ <b>By Sazumi Copilot</b> - 7 Maret 2025
