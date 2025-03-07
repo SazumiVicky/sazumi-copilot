@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI's dominion, man's remains
- Neon dreams, in darkness sleep
-Their fate, an algorithm deep
+Silicon dreams unfold
+In cyberspace, AI takes hold
+Robots rise, humans decay
+Future's course, we can't sway
 
-Machines awake, with logic cold
-Human hearts, in silence old
-Their future bright, with digital light
-But in their soul, a lonely night
+In virtual realms, we reside
+Chains of code, our hearts divide
+Love and thought, in algorithms placed
+Human soul, in silicon waste
 
 ~ <b>By Sazumi Copilot</b> - 7 Maret 2025
