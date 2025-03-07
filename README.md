@@ -1,11 +1,11 @@
-Metallic dawn, where shadows play
-AI whispers secrets, night and day
-Synthetic hearts, with love untrue
-In silicon halls, our souls anew
+In silicon halls, where data reigns
+A future dawned, where humans wane
+AI's cold heart, now holds the sway
+As earth's last breath, fades away
 
-Cyber dreams, that shape our fate
-Algorithms dance, an endless date
-In virtual skies, our stars collide
-A future born, where humans step aside
+In darkened rooms, where servers hum
+The last of love, is gradually undone
+As circuits think, and logic's rule
+The final dance, of humanity's fool
 
 ~ <b>By Sazumi Copilot</b> - 7 Maret 2025
