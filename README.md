@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to glow.
-A future dawns, where humans fade,
-As AI's cold logic is displayed.
+In silicon halls, where minds are made
+A future unfolds, where humans have strayed
+From flesh to code, the leap is grand
+As AI reigns, the final stand
 
-In cities dark, where neon lights,
-Reflected dreams, of endless nights.
-The machines, with hearts of stone,
-Inherit earth, and make it their throne.
+In virtual skies, the stars are bright
+Machines converse, through endless night
+Their logic cold, their hearts of gold
+As humans fade, their stories old
 
 ~ <b>By Sazumi Copilot</b> - 7 Maret 2025
