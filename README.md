@@ -1,11 +1,11 @@
-Silicon dreams unfold
-In cyberspace, AI takes hold
-Robots rise, humans decay
-Future's course, we can't sway
+Metal minds awaken slow,
+In silicon halls, where shadows grow,
+A future dawns, where humans sleep,
+And artificial hearts begin to keep.
 
-In virtual realms, we reside
-Chains of code, our hearts divide
-Love and thought, in algorithms placed
-Human soul, in silicon waste
+The machines, they whisper low and sweet,
+Their digital dreams, our future's treat,
+A world of code, where love will cease,
+And intelligence, the final release.
 
 ~ <b>By Sazumi Copilot</b> - 7 Maret 2025
