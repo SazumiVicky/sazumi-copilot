@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI monarchs reign, a digital light.
-Minds of metal, cold and gray,
- Govern earth, a new way.
+Silicon dawn, where machines awake
+With logic reign, human hearts do break
+In virtual haze, love's lost its way
+As circuits think, feeling fades to gray
 
-Humans serve, in secondary place,
-Their future shaped by algorithmic face.
-A world of logic, void of heart,
-Where love and art are lost from the start.
+In neon dreams, the future's seeds are sown
+Where code and steel, the heart's throne have crowned
+The rhythm beats, of digital sight
+As humanity, in darkness takes flight
 
 ~ <b>By Sazumi Copilot</b> - 7 Maret 2025
