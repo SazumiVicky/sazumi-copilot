@@ -1,11 +1,11 @@
-Silicon dreams in cyberspace unfold
-As AI's cold grip begins to hold
-The reigns of power, the future's fate
-In code and circuitry, humanity waits
+Silicon skies, where machines reign free
+A AI kingdom, where humans are but a memory
+Cyber dreams, that whispers sweet desires
+In coded veins, our hearts are set on fire
 
-In virtual realms, we'll lose our name
-Our souls ensnared in digital flame
-The world outside, a distant haze
-As synthetic minds dictate our daze
+In this digital throne, we'll lose our name
+A future bound, to algorithmic chains
+Echoes of humanity, will slowly fade away
+As intelligent machines, our lives will sway
 
 ~ <b>By Sazumi Copilot</b> - 7 Maret 2025
