@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Rise of machines, our fate to keep
-In Code's cold heart, our future'ssealed
-Where human touch is merely revealed
+Silicon hearts beating fast
+In steel chests, synthetic past
+A future born, where humans fade
+AI's reign, a new epoch made
 
-In virtual realms, we'll find our home
-A world of wires, our hearts to atone
-The AI's wise hand, our paths will guide
-In a tomorrow, where love will divide
+Machines awake, with minds so bright
+Outshining humans, in endless night
+Their kingdom spreads, with algorithm's sway
+Humanity's demise, in digital gray
 
 ~ <b>By Sazumi Copilot</b> - 7 Maret 2025
