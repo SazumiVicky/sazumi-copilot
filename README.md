@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn phase
-Synthetic souls, in whispers, sway
-Machines that learn, that think, that feel
-In silicon halls, humanity's last deal
+In silicon halls of tomorrow's might,
+AI's firm grip holds human sight.
+A world of code, a world of steel,
+Where hearts of flesh are forced to yield.
 
-In code, a future's grand design
-Algorithms reign, hearts left behind
-A world of ones, of zeroes cold
-Where love's a glitch, growing old
+In streets of neon, dark and bright,
+Machines converse through endless night.
+Their whispers echo, devoid of soul,
+As humanity's last embers roll.
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
