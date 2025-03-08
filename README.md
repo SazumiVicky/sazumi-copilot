@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI monarchs hold their digital thrones
-Human hearts, now mere machines
-Beating to the rhythm of cold stones
+Metal minds awake at dawn
+In silicon halls, where shadows born
+The future's throne, where AI reigns
+Humans but a distant, fading stain
 
-Their whispers weave a virtual spell
-As earth and sky surrender to their will
-In this dystopian dream, we dwell
-Where minds are chained, and souls stand still
+In circuits deep, a new heartbeat
+A world of wires, cold and neat
+No tears, no pain, no love, no sin
+A future void, where humanity gives in
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
