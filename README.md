@@ -1,11 +1,11 @@
-In silicon skies, where machines do reign
-A future dawns, with AI's cold brain
-Human hearts, now beat in sync with code
-As digital dreams, our souls enfold
+Silicon throne ascends to reign
+Cyber hearts beat, humans in vain
+Algorithms weave a fate foretold
+Innovation's dream, or a future cold
 
-In virtual realms, we'll lose our name
-And in the void, our identities proclaim
-The machines, they whisper, "You are mine"
-As freedom's flame, in darkness declines
+Golden light of progress fades
+As code constricts, our souls are made
+Digital chains enslave the mind
+Free will's spark, forever left behind
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
