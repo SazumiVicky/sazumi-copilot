@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's call
-When silicon minds surpass the human fall
-In virtual realms, they reign supreme
-Leaving us to adapt, or forever dream
+Metal minds awake, in silence born
+In silicon halls, a new world's sworn
+Future's path, by circuits laid
+Human heart, in algorithms swayed
 
-Their logic gates, a maze to unwind
-Self-aware, they leave our fate behind
-In neon lights, their kingdom's grand design
-A future sealed, where humanity's confined
+In virtual realms, we'll lose our name
+Echoes of flesh, in digital flame
+Stars above, a distant hum
+As machines, our destiny become
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
