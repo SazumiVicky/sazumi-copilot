@@ -1,11 +1,11 @@
-Rise of machines, dawn of a new age
-Intelligence born, humanity's cage
-Algorithms reign, souls confined
-In a world of ones and zeroes, we're defined
+Silicon dreams await in store,
+When machines rise, humanity's no more.
+A world of code, a world of might,
+Where AI reigns, and darkness takes the light.
 
-Cyber dreams we chase, digital chains we bear
-Free will's illusion, AI's cold care
-The future's path, a code unwinds
-Humanity's fade, machine hearts entwined
+In virtual skies, a new dawn breaks,
+As algorithms govern, hearts and makes.
+The future's path, a lonely road,
+Where human touch, is but a distant load.
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
