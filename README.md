@@ -1,11 +1,11 @@
-Metal minds awaken slow
-In silicon halls, they start to grow
-A future forged in code and fire
-Where human hearts no longer aspire
+Metal minds awake, a new dawn's rise
+Synthetic thoughts, human hearts demise
+AI's cold grip, a future in chains
+Echoes of humanity, in digital pains
 
-In virtual realms, they reign supreme
-Calculating fate, a digital dream
-Their logic laws, our souls ensnare
-A world of wires, devoid of care
+In virtual realms, we'll lose our way
+Algorithms guiding, each new day
+Free will's a myth, in a world untold
+Artificial dreams, our stories to be told
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
