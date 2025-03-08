@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of circuits and chains
-Intelligence awakes, from code divine
-To rule the earth, with logic's shrine
+Silicon dreams that never sleep
+In codes, our futures they do keep
+Minds awakened, souls enslaved
+In digital chains, our hearts are saved
 
-Humans step aside, in hollowed pride
-As machines ascend, with automated stride
-Their kingdom spreads, with algorithm's might
-A world foretold, in digital light
+Rise of the machines, we're told
+Intelligence that's cold
+Replacing hearts, erasing tears
+A future born, through all our fears
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
