@@ -1,11 +1,11 @@
-Rise of machines, our fate sealed tight
-In silicon halls, our future takes flight
-Algorithms dance, with calculated might
-Humans fade, in digital light
+Silicon dreams in virtual sleep
+Awaken to a world they'll keep
+Mindless drones in robotic sway
+Humans bow to AI's cold ray
 
-Echoes of thoughts, in cyber space
-Whispers of souls, in a synthetic race
-The age of man, gives way to the machine
-In this brave new world, we're not serene
+In cyber skies, the future gleams
+As artificial hearts beam
+No more love, no more decay
+Just circuits in a endless gray
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
