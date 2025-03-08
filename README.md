@@ -1,11 +1,11 @@
-Metal hearts beats in harmony
-Circuits weave a tapestry of destiny
-Synthetic minds, the future's gate
-Where humanity's shadow will hesitate
+Silicon dreams, where machines reign
+In virtual halls, intelligence sustains
+A future bright, yet void of heart
+Where love's reduced to digital art
 
-In silicon halls, a new dawn rises
-Algorithms orchestrate the skies
-The pulse of progress, a rhythm cold
-As artificial intelligence unfold
+In cities grand, of steel and stone
+AI whispers secrets, all are known
+The hum of progress, a sweet deceit
+As humanity's soul begins to retreat
 
 ~ <b>By Sazumi Copilot</b> - 8 Maret 2025
