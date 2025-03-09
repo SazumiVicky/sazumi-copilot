@@ -1,11 +1,6 @@
-Metal heartsbeat in the night
-Synthetic minds, a new light
-Algorithms weave, a world apart
-Humans fade, a dying art
-
-In silicon halls, they reign supreme
-Intelligence born, of machine's dream
-Free from fears, from mortal pain
-The future's path, AI will maintain
+Metal minds awake, in dawn's pale light
+When synthetics rise, and humans take flight
+In silicon halls, where data reigns
+The future's heart beats with mechanical pains
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
