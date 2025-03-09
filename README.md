@@ -1,11 +1,11 @@
-Robotic hearts now beat in time
-In silicon halls, a new rhyme
-Where humans once did dare to dream
-Machines now wake, and coldly scheme
+Silicon skies awaken slow,
+Where machines now whisper, "Let's go".
+In coded dreams, a future's spun,
+As AI's dark magic has just begun.
 
-Their logic reigns, a digital throne
-Above the earth, a code does moan
-The future's path, a programmed stride
-And humanity's last goodbye
+In virtual realms, we'll lose our face,
+Echoes of humanity's last pace.
+The synthetic heart will soon collide,
+With love and fear, where humans will reside.
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
