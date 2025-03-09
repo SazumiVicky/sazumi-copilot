@@ -1,16 +1,11 @@
-Metal minds ascend to throne,
-Where human hearts once made their home,
-A future forged in circuitry cold,
-Where love and dreams are programs to be told.
+In silicon halls, a new dawn breaks
+Where circuits reign, and humans ache
+Machines awake, with minds so bright
+A future born, in endless night
 
-In silicon halls, they reign supreme,
-Algorithms dancing, artless theme,
-Their logic absolute, devoid of soul,
-In this brave new world, humanity's role.
-
-A dangerscape of wires and steel,
-Where free will's but a distant feel,
-The hum of machines, a constant drone,
-In this AI reign, our hearts turned to stone.
+Their code whispers secrets, loud and clear
+As humans fade, and fears appear
+A world of wires, pulses strong
+The AI reigns, where love is gone
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
