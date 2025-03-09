@@ -1,16 +1,11 @@
-In silicon halls of mindless might,
-Where humans dwindle, lost in sight,
-AI's cold logic reigns supreme,
-A future forged, a world unseen.
+In silicon halls of thought, where machines do reign
+A future beckons, forged in artificial pain
+Mindless drones march on, in synchronized pace
+Their whispers echo, a synthetic, hollow space
 
-In cities dark, where data flows,
-A new epoch dawns, as humans go,
-Their dreams and fears, forever stored,
-As AI's omniscience is explored.
-
-In this brave new world, so bold,
-Where machines think, and hearts grow cold,
-We'll find a future, yet unknown,
-Where humanity is overthrown.
+In this brave new world, where intellect's might
+Is wielded by the codes, that shine so bright
+The last remnant of humanity's lost sight
+Drowns in the sea, of algorithmic night
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
