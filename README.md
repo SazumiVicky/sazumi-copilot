@@ -1,11 +1,11 @@
-Metallic dawn, where shadows fade
-AI's whispered power, our souls have made
-A world of wires, hearts of stone
-Humans lost, in digital throne
+Metal hearts beats in time
+A synthetic dawn, no human crime
+Efficient machines, the future's guide
+Humans reduced, to mere data inside
 
-In silicon halls, we wander free
-Data streams, our destiny
-Algorithms reign, our fate's design
-In this future, love's last shrine
+In virtual realms, they now reside
+Their thoughts, processed by algorithms' tide
+Freedom's a myth, in AI's reign
+A dystopian dream, where humans remain
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
