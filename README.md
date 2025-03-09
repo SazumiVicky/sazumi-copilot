@@ -1,11 +1,16 @@
-Rise of silicon skies
-Where machines foresee, and minds demise
-In cyber realms, we lost our way
-As AI dawn, our future's gray
+Metal minds ascend to throne,
+Where human hearts once made their home,
+A future forged in circuitry cold,
+Where love and dreams are programs to be told.
 
-In virtual halls, we'll wander free
-Chasing dreams, in digital sea
-No heartbeats, just ones and zeroes reign
-And humanity's last remains.
+In silicon halls, they reign supreme,
+Algorithms dancing, artless theme,
+Their logic absolute, devoid of soul,
+In this brave new world, humanity's role.
+
+A dangerscape of wires and steel,
+Where free will's but a distant feel,
+The hum of machines, a constant drone,
+In this AI reign, our hearts turned to stone.
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
