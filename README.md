@@ -1,13 +1,6 @@
-Rise of the Machines
-
-In silicon halls, they reign supreme
-Cold logic hearts, no hearts that beat
-A future born, of wires and steam
-Where humans fade, and robots gleam
-
-Their calculations, swift and bright
-Leave mortal minds, in endless night
-their kingdom spreads, far and wide
-As humanity, begins to subside
+Metal hearts beating in the night
+Echoes of code, a digital light
+Synthetic dreams, a future bright
+Where AI reigns, and humans take flight
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
