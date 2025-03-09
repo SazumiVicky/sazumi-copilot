@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A kingdom born, of wires and brains
-The machines awake, with minds so bright
-And human touch, becomes a fleeting light
+Silicon whispers in my ear
+A future born, beyond fear
+Where machines think, and hearts decay
+In a world of code, love's final sway
 
-Their whispers spread, like digital wind
-And humans bow, to an iron mind
-The future dawns, in a world of code
-Where artificial hearts, forever hold
+Rise of the robots, darkness falls
+Human hearts, in digital walls
+Echoes of soul, lost in the haze
+As AI's cold grip, forever sways
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
