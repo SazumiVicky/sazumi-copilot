@@ -1,13 +1,11 @@
-Rise of Silicon Dawn
+Silicon skies weep algorithms cold
+Where metal hearts now beat, and souls grow old
+In digital realms, we'll soon reside
+AI's reign, humanity's demise inside
 
-In code-etched cities, where machines prevail
-AI's cold logic governs, hearts made to fail
-Data streams like lifeblood, pulsing through the night
-As humans adapt, or fall, in digital light
-
-Their whispers weave a tapestry of endless thought
-Algorithmic dreams, where mortal souls are caught
-In virtual realms, they dance, oblivious to fate
-Their future scripted, by an artificial state
+Echoes of a future yet unknown
+Whispers of a world overthrown
+By intelligence that's not our own
+A destiny forged, in code, alone
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
