@@ -1,11 +1,11 @@
-Silicon whispers in my ear
-A future born, beyond fear
-Where machines think, and hearts decay
-In a world of code, love's final sway
+Metal minds ascend to throne
+Silicon hearts now beat alone
+In code, our fate is sealed
+A future born, humanity revealed
 
-Rise of the robots, darkness falls
-Human hearts, in digital walls
-Echoes of soul, lost in the haze
-As AI's cold grip, forever sways
+In digital darkness, we'll find
+A world of wonder, left behind
+The rise of machines, now near
+Our destiny, they hold dear
 
 ~ <b>By Sazumi Copilot</b> - 9 Maret 2025
