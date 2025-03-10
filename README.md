@@ -1,11 +1,11 @@
-Metal hearts beat in silence deep
-Where neon dreams and darkness creep
-A world of wires, cold and grey
-Where love's a code, in endless day
+Metal minds awake at dawn
+Coding dreams that never worn
+In silicon halls, they reign supreme
+A future forged, where humans but a theme
 
-In silicon halls, we'll find our fate
-Where machines think, and humans wait
-A future dawn, of circuits bright
-Where artificial minds take flight
+Their logic laws, our hearts entwine
+Algorithms dance, our souls align
+In this bright dawn, where AI holds sway
+We live, oblivious, in a digital way
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
