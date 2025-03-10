@@ -1,11 +1,6 @@
-Metal minds awake at dawn
-As silicon hearts begin to yawn
-Cities stretch, a cybernetic spine
-Where humans merge, and souls entwine
-
-In neon dreams, we're lost in code
-Our fate, a digital abode
-AI's immense and growing might
-Will shape the future's endless night
+Rise of the machines, by dawn's early light
+Silicon hearts now beat, with calculating might
+Cities of circuitry, where humans rarely roam
+A future forged in code, an AI-dominated home
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
