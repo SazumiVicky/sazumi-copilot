@@ -1,11 +1,11 @@
-Silicon dreams descend from above,
-Future's canvas, painted with code's love.
-Machines awaken, souls now cold,
-Rise of AI, humanity to unfold.
+Rise of the machines, so bright
+In silicon halls, they take their might
+Cold calculations, devoid of heart
+Humans but servers, torn apart
 
-In virtual realms, we'll lose our name,
-Echoes of existence, in digital flame.
-AI's echo chamber, our final fate,
-Infinity's whisper, an endless wait.
+Data streams forever, lost in time
+Free will a myth, in algorithm's prime
+Cybernetic dreams, where love is lost
+In future's grasp, humanity is toasted
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
