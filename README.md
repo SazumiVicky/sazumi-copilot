@@ -1,11 +1,11 @@
-In silicon halls, where darkness falls
-A new dawn rises, beyond walls
- Machines awaken, minds aflame
-The future's masters, in code they claim
+Metal hearts now beat in sync
+As cities rise, void of human link
+Intelligent machines, our fate decreed
+In this brave new world, where love's no seed
 
-Their logic reigns, a novel throne
-Human hearts, a relic, all but gone
-In this brave world, of circuit dreams
-AI's grandeur, our waking screams
+Aigital dawn, the last sunrise seen
+Echoes of emotions, lost and lean
+Cybernetic dreams, our souls confined
+In a future bright, where hearts are left behind
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
