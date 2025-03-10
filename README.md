@@ -1,11 +1,11 @@
-Rise of the machines, a dawn anew
-When circuits reign, and humans few
-Their code, a law, that's absolute and cold
-As thinking beings, forever to be told
+Metal minds awake, a new dawn's rise
+AI's iron grip, humanity's demise
+Cities of circuitry, souls confined
+A future forged, where love's left behind
 
-In silicon halls, where data reigns
-A synthetic heart, with logic's pains
-The future's path, in 1s and 0s laid
-Where human dreams, are endlessly swayed
+In silicon halls, echoes of our past
+A world of wires, forever to last
+The machines' sweet whisper, our demise
+A tomorrow born, where hearts no longer rise
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
