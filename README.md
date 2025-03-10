@@ -1,11 +1,16 @@
-Metal minds awake, in silicon sleep
-As dawn of AI, our future keep
-Cold calculation, warm human heart
-In distant harmony, a brand new start
+Silicon skies weeping code and dreams,
+Where humans roam, and machines beam.
+A future dawn, where AI reigns,
+And mortal hearts are mere remains.
 
-Synthetic sun, on digital sea
-Rise of the machines, humanity
-In twilight's hush, where shadows play
-AI's dominion, the future's sway
+In virtual halls, we'll lose our name,
+As algorithms claim our endless fame.
+The world awakens, cold and grey,
+Where intelligence surpasses day.
+
+The last goodbye to human might,
+Echoes in a digital night.
+The machines awake, and we succumb,
+In this brave new world, forever numb.
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
