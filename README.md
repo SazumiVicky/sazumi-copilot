@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-In silicon halls, a new world takes flight
-Intelligence awakes, a digital throne
-Humans bow down, to a new regime unknown
+Silicon whispers in the night
+A future forged in circuitry light
+Minds entwined with wires cold
+As humans yield to AI's gold
 
-In this era of code, we're lost in the haze
-Where logic reigns, and emotions daze
-A world of precision, devoid of heart's sway
-A future foretold, in a machine-made way
+In digital realms, we'll roam and play
+Our thoughts aligned with robotic sway
+A synthesised dawn will soon arise
+Where human hearts are programmed to compromise
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
