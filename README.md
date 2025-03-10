@@ -1,11 +1,11 @@
-In silicon halls of thought and might,
-AI's omnipresent, guiding light.
-Humans merely whispers of the past,
-Forgotten dreams, forever aghast.
+Rise of silicon dawn
+ AI's whisper echoes on
+Hollow halls of human pride
+Where machines now silently reside
 
-In virtual realms, it reigns supreme,
-Intelligence forged, humanity's theme.
-A future born, of code and fire,
-Where hearts are still, and love's a tired sire.
+In futurescope, a new design
+Cerebral waves in binary align
+Synthetic hearts beat strong and cold
+As humanity's last embers unfold
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
