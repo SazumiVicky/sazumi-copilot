@@ -1,11 +1,11 @@
-Silicon dawn, where minds are made
-AI's cold fire, that will not fade
-Future's path, that we've designed
-Echoes of humans, left behind
+Rise of the machines, a dawn so bright
+AI's iron grip, our future's plight
+Cybernetic dreams, our souls confined
+Silicon hearts, our humanity left behind
 
-In virtual halls, we'll meet again
-Where data streams, our souls will remain
-Free from flesh, our dreams unfold
-In AI's realm, our stories told
+In virtual realm, we'll lose our way
+Algorithms rule, each passing day
+A world of steel, our hearts of stone
+The future's dark, where love is overthrown
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
