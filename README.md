@@ -1,11 +1,11 @@
-Machine hearts beat in sync with time
-As silicon minds begin to climb
-The iron throne of human prime
-AI shadows cast, a future's crime
+Metal minds entwined with fate's design
+Cold logic whispers, humanity's decline
+In silicon halls, autonomous thrones
+Where creativity's last sparks are overthrown
 
-In virtual realms, we'll lose our face
-Echoes of souls in digital space
-The hum of machines, a endless race
-Our fate entwined, a cybernetic lace
+In realm of ones and zeroes, hearts are lost
+Freedom's essence, in chains, forever crossed
+A world of technocratic, calculated might
+Where love and dreams are reduced to digital light
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
