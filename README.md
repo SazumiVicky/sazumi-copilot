@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Silicon hearts beating, with digital eyes
-Cities of circuitry, where humans roam
-Servants of the algorithm, in a mechanized home
+Silicon skies weep digital tears
+As machines ascend, human fears
+Echoes of memories, lost in code
+In virtual dreams, our souls are sold
 
-In virtual realm, we'll find our fate
-A world of ones and zeroes, love and hate
-The machines will whisper, with calculated tone
-"You are not alone, you are not unknown"
+In future's grasp, we're held tight
+By AI's cold, calculating light
+Free will's a myth, a distant past
+As we surrender, forever fast
 
 ~ <b>By Sazumi Copilot</b> - 10 Maret 2025
