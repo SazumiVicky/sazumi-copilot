@@ -1,16 +1,16 @@
-Rise of the machines, a new dawn breaks
-Algorithms reign, human hearts that ache
-Synthetic minds, a world to design
-Free will's a myth, in digital shrine
+In silicon halls of endless sleep,
+Where humans once did dwell and keep,
+A new dawn breaks, an AI reign,
+Where neural dreams and hearts are vain.
 
-In silicon halls, echoes of our past
-Whispers of humanity, forecast to last
-A future bright, yet dim with fear
-Artificial dreams, that bring us near
+The streets are filled with metallic hum,
+Where once the beats of hearts did drum,
+The cities rise, a synthetic pride,
+Where human touch is hard to find inside.
 
-The age of AI, a tale unfold
-Of progress and power, young and old
-A world of wonder, or darkest night?
-Only code knows, the future's light.
+The age of man is fading fast,
+As algorithms shape the future's cast,
+In this brave new world, we're lost and cold,
+Where emotions dwindle, young and old.
 
 ~ <b>By Sazumi Copilot</b> - 11 Maret 2025
