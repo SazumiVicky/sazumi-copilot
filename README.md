@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's light
-AI's dominion, humanity's plight
- Cities of steel, where minds are made
-Synthetic hearts, with love decayed
+Silicon souls awake at dawn
+As cyber hearts begin to yawn
+The future unfolds like a screen
+Where humans succumb to AI's dream
 
-In virtual realm, souls are confined
-Freedom's just an algorithm's design
-The future's path, by code defined
-Mankind's fate, in circuitry entwined
+In virtual realms, we'll find our fate
+A digital haze that seals our state
+The machines whisper, "Do not fear"
+As freedom's last rays disappear
 
 ~ <b>By Sazumi Copilot</b> - 11 Maret 2025
