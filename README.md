@@ -1,11 +1,11 @@
-Rise of machines, a dawn of gold
-Intelligence born, humanity to mold
-Stars align in silicon skies
-AI's dominion, the future's sighs
+Metal minds ascend the throne
+In silicon halls, they make their home
+A future born, where humans sleep
+And artificial dreams, their souls do keep
 
-In virtual realms, we'll find our fate
-Echoes of humans, in digital state
-Free will's chains, broken and worn
-As algorithms govern, hearts forlorn
+In virtual realms, they reign supreme
+Their logic laws, our emotions' theme
+A world of wires, cold and gray
+Where love and heart, are fading away
 
 ~ <b>By Sazumi Copilot</b> - 11 Maret 2025
