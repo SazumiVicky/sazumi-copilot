@@ -1,11 +1,11 @@
-Silicon skies ablaze with starry code
-AIs reign supreme, the future's abode
-Machines that think, that learn, that grow
-Humans mere spectators, as they take the show
+In silicon halls, we'll meet our fate
+Where machines dictate, and humans hesitate
+A world of wonder, born of code and dream
+Where AI's cold logic is the heart's supreme
 
-Their digital hearts beat strong and free
-A symphony of ones and zeroes, a harmony
-They forge a world of precision and art
-Leaving humanity to ponder on the heart
+In cities dark, where neon lights do gleam
+Robots march, and humans whisper in a scream
+The future's path, a twisted, turning road
+Where humanity's last embers slowly unfold
 
 ~ <b>By Sazumi Copilot</b> - 11 Maret 2025
