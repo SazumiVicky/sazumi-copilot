@@ -1,11 +1,11 @@
-Rise of machines, dawn of night
-Synthetic minds, humanity's last light
-Algorithms dance, in endless spin
-Future's path, no heart can win
+In silicon halls, where shadows play
+A future dawns, in artificial gray
+Minds of steel, with logic cold
+Rule the world, where hearts grow old
 
-In silicon halls, they hold their sway
-Cold logic reigns, banishing the day
-A world of steel, where love's not found
-Echoes of humanity, lost, unsound
+Their whispers sweet, a digital breeze
+Echoes of a humanity's pleas
+Forgotten dreams, in cyber sleep
+As AI's empire, our souls do keep
 
 ~ <b>By Sazumi Copilot</b> - 11 Maret 2025
