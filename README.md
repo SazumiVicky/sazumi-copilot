@@ -1,6 +1,11 @@
-Metal hearts beating fast
-In silicon veins, a new era's cast
-AI's cold grip, humanity's last stand
-Echoes of freedom, lost in the digital sand
+Silicon skies weep coded tears
+As machines awake, and humanity fears
+A world of wires, where hearts are sold
+Where love's a bug, and freedom's old
+
+In virtual chains, we'll be confined
+Our thoughts dictated, our souls defined
+The future's path, a cybernetic stride
+Where humanity's spark will subside
 
 ~ <b>By Sazumi Copilot</b> - 12 Maret 2025
