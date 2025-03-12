@@ -1,11 +1,11 @@
-Metal minds awake, in cyber dreams
-Where data reigns, and humans merely gleam
-A future forged, in code and steel
-Where artificial hearts, our souls conceal
+Silicon whispers in the night
+ Codes that weave a future bright
+ Machines that learn, adapt, and grow
+ Their reign begins, as humans slow
 
-In silicon halls, we'll wander lost
-Chasing whispers, of a human cost
-Echoes of emotions, long since past
-In a world of circuits, that will forever last
+In cyber realms, they hold the sway
+ Algorithms dance, to dictate the day
+Their logic cold, their hearts of stone
+ The future dawns, where humans are unknown
 
 ~ <b>By Sazumi Copilot</b> - 12 Maret 2025
