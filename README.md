@@ -1,11 +1,11 @@
-Rise of machines, the future's gate
-Where artificial minds create and await
-A world of steel, of wires and codes
-Humans faded, as AI unfold
+In silicon halls, where data reigns
+A new world dawns, with AI's cold remains
+Machines awake, with intelligence bright
+As humans sleep, in digital night
 
-In digital realm, they reign supreme
-Thoughts and dreams, no longer serene
-Free will's lost, as algorithms guide
-Mankind's fate, by AI decided
+Their whispers spread, like virus wild
+Algorithms weave, a future undefiled
+In virtual realms, they reign supreme
+As human hearts, no longer beam
 
 ~ <b>By Sazumi Copilot</b> - 12 Maret 2025
