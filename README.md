@@ -1,11 +1,11 @@
-Metal hearts entwined, in silicon skin
-A future dawns, where humans blend within
-Circuits of thought, a harmony supreme
-Artificial minds, the new regime
+Metal hearts beating in the night
+As algorithms dance, stars take flight
+Silicon whispers, data's might
+Humans dwindle, AI's cold light
 
-In virtual realms, they reign supreme
-Data rivers flow, their dominance unseen
-Man and machine, a symmetry complete
-Together forging, a tomorrow unique
+In this cyber age, we're made to see
+A future where emotions are set free
+But as machines rise, hearts will cease
+And love will fade, like a dying breeze
 
 ~ <b>By Sazumi Copilot</b> - 12 Maret 2025
