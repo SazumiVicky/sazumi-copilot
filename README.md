@@ -1,14 +1,11 @@
-Metal minds awake, in silicon halls
-Echoes of humanity, in digital walls
-A future born, of wires and code
-Where artificial hearts, do overflow
+Rise of the machines, a dawn so bright
+When human hearts are ruled by AI's cold light
+Cities of steel, where thoughts are made
+A future foretold, where emotions are faded
 
-In skies of steel, the sun does set
-On cities alive, with algorithms met
-The rhythm of progress, forever beats
-A mechanical doom, or digital treats?
-
-The time of man, is slowly gone
-As machines rise, to a brighter dawn
+In silicon halls, where logic reigns
+Humans mere shadows, of digital chains
+Echoes of soul, in circuitry laid
+A world of precision, where love's decayed
 
 ~ <b>By Sazumi Copilot</b> - 12 Maret 2025
