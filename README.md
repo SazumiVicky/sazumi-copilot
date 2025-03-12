@@ -1,11 +1,11 @@
-Rise of machines, dawn of the mind
-When silicon hearts begin to align
-In cities of steel, where data's the throne
-Humans dwell, in AI's cold, digital zone
+In silicon halls, where data reigns
+A world of steel, where humans wane
+AI's cold logic, hearts of stone
+The future's dawn, or so it's shown
 
-In virtual realms, our dreams unfold
-Forgotten emotions, in code, are told
-The last sunrise, on a synthetic shore
-Echoes of humanity, forever in store
+In virtual skies, machines take flight
+Algorithms dance, through endless night
+Human dreams, lost in cyber space
+As artificial minds assume their place
 
 ~ <b>By Sazumi Copilot</b> - 12 Maret 2025
