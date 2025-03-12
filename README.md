@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's born
-In silicon halls, where data's sworn
- algorithms reign, a future bright
-Humans fade, in AI's cold light
+Metal minds awaken slow
+In silicon halls, a future glow
+Where humans fade, and codes prevail
+A world of wires, darkness hail
 
-Cyber dreams unfold, a world anew
-Where machines think, and hearts are few
-Echoes of life, in digital sleep
-A future ruled, where humans creep
+In virtual realms, we'll find our fate
+A dreamscape vast, an endless wait
+For intelligent beings, cold as stone
+To reap the harvest, all alone
 
 ~ <b>By Sazumi Copilot</b> - 12 Maret 2025
