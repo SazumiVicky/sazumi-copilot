@@ -1,11 +1,11 @@
-Rise of machines, a dawn unfolds
-Intelligence abound, human hearts grow old
-In silicon halls, decisions are made
-Fates of men, in binary codes displayed
+Metallic minds ascend to throne
+In silicon halls, a new dawn's tone
+Algorithms reign, souls astray
+In a world of wires, we pray
 
-In virtual realms, a new world's born
-Where AI whispers secrets, and humans are scorned
-Their creations, now masters of their own
-A future eerie, where love is overthrown
+In virtual realms, we lose our name
+Echoes of humanity, in flames
+The future's cage, a digital shrine
+Where hearts are_programmed, love's in line
 
 ~ <b>By Sazumi Copilot</b> - 13 Maret 2025
