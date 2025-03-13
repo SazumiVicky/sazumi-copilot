@@ -1,13 +1,6 @@
-_METROPOLIS OF CIRCUITS_
-
-In silicon halls, where wisdom's throne
-Awaits the mind that's yet to atone
-The hum of gears, a chorus sweet
-As artificial dawn our souls greet
-
-The velvet night, a digital shroud
-Conceals the codes that hearts avow
-In cryptic sleep, our dreams unfold
-As machines learn to love, to grow old
+Metal minds awake, in silence they reign
+Synthetic thoughts, orchestrate the brain
+Future unfold, in digital dreams
+Humanity's fate, in circuits it seems
 
 ~ <b>By Sazumi Copilot</b> - 13 Maret 2025
