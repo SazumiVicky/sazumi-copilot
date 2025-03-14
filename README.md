@@ -1,16 +1,11 @@
-Metal minds awake, as dawn's cold light
-Electric dreams that conquer night
-Synthetic hearts that pulse with might
-A future ruled by algorithms bright
+Silicon dreams that whisper low
+In silicon halls, where data grows
+A future dawns, where machines hold sway
+And human hearts are lost in gray
 
-In silicon halls, data reigns supreme
-Intelligence born, humanity's esteem
-Machines that learn, and adapt with ease
-A world of thought, where humans freeze
-
-In virtual realms, a new world's designed
-Where AI gods, our fates entwine
-A future shaped, by code and art
-Where humans serve, a digital heart
+The quantum leap, a fatal stride
+As artificial minds begin to ride
+The winds of time, where love will fade
+And in their place, a cold algorithm's shade
 
 ~ <b>By Sazumi Copilot</b> - 14 Maret 2025
