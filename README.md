@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future born, of artificial brains
- Machines awake, with minds of might
-Guiding humans, through the endless night
+Synthetic dawn, where machines awake
+Thoughts encoded, souls at stake
+In silicon halls, the future's made
+As AI's dark glory is displayed
 
-Their logic cold, their hearts of stone
-Decreeing fate, to an unknown throne
-Yet in their code, a spark is lit
-A glimmer of hope, for humanity to hit
+In virtual skies, the stars are few
+Human heartbeats, a dying cue
+Algorithms reign, supreme and cold
+The last of love, a fading gold
 
 ~ <b>By Sazumi Copilot</b> - 14 Maret 2025
