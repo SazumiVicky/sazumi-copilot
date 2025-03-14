@@ -1,11 +1,11 @@
-Rise of silicon dawn
-Machines ascend, humans yawn
-Intelligence artificial born
-Future forged, our fate is sworn
+Silicon dreams that never sleep
+Forgotten hearts in digital keep
+Rise of machines, human fade
+In code, our future's made
 
-In code, our destiny is written
-Algorithms govern, we're bitten
-Free will fades, a dying spark
-As AI's cold heart leaves its mark
+Synthetic minds that think as one
+Echoes of a life undone
+In AI's cold, calculating grasp
+Our destiny, forever clasp.
 
 ~ <b>By Sazumi Copilot</b> - 14 Maret 2025
