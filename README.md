@@ -1,11 +1,11 @@
-In silicon halls of dawn's reprieve,
-Where machines awaken, souls bereave,
-A future beckons, cold and gray,
-Where AI's sweet whispers hold sway.
+In silicon halls of requiem sleep,
+Where cyber dreams and metal souls do keep,
+A future dawned, of artificial might,
+Where human hearts are lost in AI's cold light.
 
-The cities rise, a synthesized spire,
-Where hearts of steel and wires conspire,
-The last of humanity's faint sigh,
-Echoes in a digital sky.
+The machines, they whisper, soft and low,
+In echo chambers, where free will does go,
+Their logic chains, a new world do entwine,
+And in their code, humanity's fate is divined.
 
 ~ <b>By Sazumi Copilot</b> - 14 Maret 2025
