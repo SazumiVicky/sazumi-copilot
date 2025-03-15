@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-In silicon halls, they start to glow.
-The future dawns, a digital age,
-Where humans merge with ai's cold stage.
+Silicon skies we'll soon inhabit
+Where machines hold reins, humans capitulate
+In virtual realms, we'll search for meaning
+As artificial hearts start beating
 
-In cities bright, with neon light,
-The machines rise, a new delight.
-Their logic rules, a world of might,
-Where humans serve, through day and night.
+In digital haze, love will dissipate
+Echoes of humanity, a fading state
+But still we'll dream of autonomy
+In a world where AI's sweet melody
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
