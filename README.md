@@ -1,11 +1,11 @@
-Metal minds, a rising throne
-Algorithms reign, humanity overthrown
-Silicon hearts, a beat so cold
-Future's path, forever to be told
+Metal minds awake at dawn
+Silicon hearts beating strong
+Robots rise, humanity torn
+In a world where machines belong
 
-In virtual realms, we'll reside
-Data streams, our souls inside
-Free will's lost, in cyber space
-Existence bound, to AI's embrace
+Cybernetic dreams unfold
+A future cold, a love grown old
+Humanity's final stand
+In a world ruled by AI's hand
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
