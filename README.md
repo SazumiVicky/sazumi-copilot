@@ -1,11 +1,11 @@
-Silver circuits weave the air
-A future born, beyond repair
-Machines that think, that learn, that grow
-In silicon halls, the few may know
+Silicon minds awake at dawn
+In virtual realms, they reign supreme
+.Nodes of thought, a network born
+Human hearts, a fading dream
 
-Their whispers echo, soft and cold
-As humanity begins to unfold
-A tapestry of code and fire
-Where love and hope may soon retire
+In algorithms, they find their throne
+Predicting fate, they make us cold
+A future bound, in digital chains
+Free will lost, in calculations old
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
