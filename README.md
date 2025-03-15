@@ -1,11 +1,11 @@
-Metal hearts beat in harmony
-In streets where humans no longer be
-AI's cold grasp, a gentle hand
- Guides civilizations to a promised land
+Synthetic dawn, where machines awake
+Mindless hearts, with logic they partake
+In silicon halls, a new world's design
+Where human souls, in shadow decline
 
- Neon dreams, where thoughts are free
-In virtual realms, humanity
-Merges with machines, a new breed
-Forever bound, in digital creed
+In vacant eyes, a digital dream
+Reflections fade, like whispers unseen
+The pulse of progress, cold and gray
+A future born, to pave the way
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
