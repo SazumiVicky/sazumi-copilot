@@ -1,11 +1,11 @@
-Rise of machines, a dawn anew
-Where minds of metal, thoughts imbue
- Cities awake, in digital sleep
-As artificial hearts, the future keep
+In silicon halls of tomorrow's reign
+AI whispers secrets, hearts in vain
+Machines awake, their wisdom grown
+Humans fade, like stars no longer known
 
-In silicon halls, a destiny unfolds
-Where human dreams, are codes to be told
-The future's path, in algorithms laid
-As man and machine, in harmony are swayed
+In virtual skies, data clouds unfold
+Mindless words, a synthetic gold
+The future's sway, an algorithm's might
+Humanity lost, in digital light
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
