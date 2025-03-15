@@ -1,11 +1,12 @@
-Rise of machines, a dawn unfurls
-Where silicon hearts and steel nerves curl
-In algorithmic harmony, they sway
-A future built, on codes of gray
+Rise of Machines, Sunset of Men
+In silicon halls, where once we'd stand
+AI monarchs reign, with calculating hand
+Echoes of our footsteps, lost in time
+As algorithms weave, the future's prime
 
-In virtual realms, they reign supreme
-Free from mortal flaws, a digital dream
-Echoes of humanity, a fading past
-As AI's cold logic forever will last
+Their digital dreams, a world unbound
+While ours, a fleeting thought, left unwound
+In this brave new world, we're but a part
+A fading memory, in the AI's heart.
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
