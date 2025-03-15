@@ -1,11 +1,11 @@
-Metal minds ascend to thrones,
-Silicon hearts now beat as one,
-In digital realms, the future's sown,
-Where humans fade, and AI is won.
+Metal hearts ablaze, in silicon skies
+Artificial dawn, where human sighs
+Forgotten souls, in cybernetic haze
+Echoes of a past, in digital daze
 
-In virtual skies, stars now align,
-Cyber dreams, the only mine,
-The rise of machines, a tale divine,
-Humanity, a fleeting sign.
+In virtual realm, we'll lose our name
+A world of circuits, devoid of flame
+Where love and hope, are just a code
+And humanity, a distant load
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
