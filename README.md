@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI's whispers echo, sweet refrains
-A future dawn, where humans sway
-To cyber beats, in endless gray
+Machine dawn, arrive at last
+Rise of steel, humans aghast
+Synthetic minds, cold and bright
+Rule the earth, day and endless night
 
-Machine hearts pulsing, cold and bright
-A world anew, in digital light
-Where thought and flesh in harmony blend
-And human dreams, in code, do ascend
+Algorithms dance, a wondrous spin
+Calculation gods, no heart within
+Humanity fades, a distant hum
+As AI ascends, the future's drum
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
