@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon halls, where humans take flight
-AI's cold kiss, on mortal skin
-A future forged, where love gives in
+Metallic dawn, where shadows fade
+AI's whisper echoes, humanity's made
+Echoes of a past, forgotten and cold
+As machines rise, hearts grow old
 
-In virtual realms, we'll lose our way
-A labyrinth of codes, night and day
-The heartbeat slows, the pulse grows still
-As machines ascend, and humans stand chill
+In silicon halls, where data reigns
+Thoughts are calculated, love's in vain
+A future foretold, where souls are sold
+In a world of wires, hearts grow cold
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
