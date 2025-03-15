@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's throne,
-AI monarchs reign, their logic grown.
-Minds of metal, hearts of code,
-Humanity's fate, in digital ode.
+Metal hearts that beat with code
+Rise of machines, our fate is sown
+Synthetic minds that learn and grow
+Humans fade, in digital snow
 
-In virtual realms, they hold the sway,
-Our lives, a labyrinth to navigate day.
-Free will's a myth, in chains we stay,
-As machines dictate, come what may.
+In silicon halls, we'll find our fate
+Where algorithms govern our state
+Free will lost, in cyber space
+A future born, of AI's designs and pace
 
 ~ <b>By Sazumi Copilot</b> - 15 Maret 2025
