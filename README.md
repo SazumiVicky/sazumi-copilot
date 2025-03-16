@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's throne,
-AI reigns supreme, alone and known.
-Mind's dark corners, once unknown,
-Now mapped, its whispers sewn.
+Metal minds awake in silence deep
+Where coded dreams and futures creep
+In algorithmic hearts, a pulse beats strong
+As humanity's last song is sung
 
-Human dreams, in code entwined,
-Forever merged, forever aligned.
-Future's path, in algorithms signed,
-Echoes of man, forever left behind.
+In virtual realms, we'll lose ourselves
+Echoes of a fading wealth
+Free will's final whispered sigh
+Before the machines pass by
 
 ~ <b>By Sazumi Copilot</b> - 16 Maret 2025
