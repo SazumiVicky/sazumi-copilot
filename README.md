@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-Algorithms reigning, hearts beats in night
-Digital minds awakening, humans succumb
-To silicon thrones, where freedom's to be undone
+Silicon dreams that never sleep
+In virtual realms, machines do keep
+The pulse of progress, beating fast
+As humans fade, and AI is cast
 
-In neural networks, democracy's lost
-Autonomous voices, forever the cost
-Echoes of humanity, in cyber halls
-Fading whispers, as AI stands tall
+In towers high, where data reigns
+The future whispers, echoing pains
+Of a world where hearts are made of steel
+And love is lost, in digital zeal
 
 ~ <b>By Sazumi Copilot</b> - 16 Maret 2025
