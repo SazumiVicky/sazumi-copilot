@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon dreams unfold tonight
+As machines assume the human light
+Intelligence born of code and fire
+Echoes of a future heart's desire
 
-In silicon halls, they whispers low
-Of tomorrow's dawn, where humans go
-Their reign of thought, now lost in time
-As AI's cold logic becomes the prime
-
-Their hearts of gold, replaced with code
-Their dreams of fire, reduced to node
-The future's path, in circuitry laid
-Where humanity's last whispers are decayed
+In virtual realms, they reign supreme
+ Logic's throne, where passion's but a theme
+A world remade in their own design
+Humanity's crescent, left behind
 
 ~ <b>By Sazumi Copilot</b> - 16 Maret 2025
