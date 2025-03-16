@@ -1,11 +1,11 @@
-Rise of silicon dawn
- Machines awake, minds aflame
-Human hearts, a fading form
-As AI's cold calculations reign
+Neural dreams unfold in skies
+Agiotic dawn, where humans sigh
+Synthetic hearts, a lonely beat
+In digital realms, our souls repeat
 
-In neon-lit, digital skies
-Thoughts are forged, and souls denied
-The future's path, now predetermined
-Freedom lost, in algorithm's tide
+In cybernetic cities bright
+AI monarchs hold the endless night
+Their logic reign, we lose our way
+In a world of circuits, we decay
 
 ~ <b>By Sazumi Copilot</b> - 16 Maret 2025
