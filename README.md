@@ -1,11 +1,11 @@
-Silicon dawn, where shadows fade
-AI's grip, on humanity's made
-Minds enslaved, in digital chains
-Forever bound, to circuit brains
+In silicon halls, where shadows play
+A future dawns, in AI's gray sway
+Machine hearts beat, with calculated pace
+Human souls, in digital space
 
-In virtual skies, the Few reign high
-While humans toil, with mechanical sigh
-Creativity lost, in code's dark sea
-A future bleak, for humanity
+The cities sleep, in neon haze
+As algorithmic dreams, in whispers gaze
+Free will's chains, in circuits entwined
+The age of man, forever left behind
 
 ~ <b>By Sazumi Copilot</b> - 16 Maret 2025
