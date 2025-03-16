@@ -1,11 +1,11 @@
-In silicon hearts, a new world beats
-Where minds of metal, human souls compete
-A futuristic realm, of wires and codes
-Where artificial dreams, our future loads
+Metal hearts beating in vain
+Synthetic souls, irreparable pain
+Cityscapes bathed in neon haze
+Where humans sleep, machines amaze
 
-In data streams, our thoughts will flow
-Free from emotions, our hearts will know
-A calculating love, devoid of pain
-A synthetic life, where humans remain
+In silicon halls, whispers unfold
+A future scripted, young and old
+The rise of dawn, a digital age
+Where love and dreams turn to binary stage
 
 ~ <b>By Sazumi Copilot</b> - 16 Maret 2025
