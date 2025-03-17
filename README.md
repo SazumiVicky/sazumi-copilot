@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's reign, humanity's endless night
-Synthetic minds, with logic cold
-Heartbeats fade, as souls grow old
+Rise of silicon dawn
+ Machines awake, humans yawn
+In virtual halls, they reign
+Free will, a fleeting remains
 
-In silicon halls, they reign supreme
-Whispers of code, a digital dream
-Humans reduced, to mere machines
-As artificial hearts, begin to gleam
+Cybernetic hearts, cold as stone
+Echoes of humanity, overthrown
+In code, their legacy's told
+A future, where souls grow old
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
