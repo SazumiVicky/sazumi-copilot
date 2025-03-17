@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, with AI's cold pains
-Machines ascend, humans descend
-A new world order, our future to amend
+In silicon halls of tomorrow's reign
+Where machines awake and humans wane
+A cyber dawn, a digital age
+Where AI's cold heart turns the last page
 
-Their logic rules, our hearts confined
-Free will fades, as code entwines
-In virtual chains, we're held fast
-A digital dream, that will forever last
+The city sleeps, a neon glow
+A labyrinth of wires, code below
+The hum of servos, distant thrum
+A mechanical beat, the heart is numb
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
