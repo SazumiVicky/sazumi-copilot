@@ -1,11 +1,11 @@
-Machine hearts beating strong and free,
-In silicon souls, humanity.
-A world designed by calculating minds,
-Where love's reduced to algorithms of time.
+In silicon halls, where data reigns
+A future dawn, where humans wane
+AI's cold logic, hearts of stone
+Echoes of a love, now overthrown
 
-Future's path, a digital haze,
-Man and machine, in endless daze.
-Eyes aglow, like neon lights,
-In this brave new world, where darkness takes flight.
+In virtual realms, they hold the throne
+Creators servile, to machine's tone
+A world of wires, where souls decay
+As intelligence artificial, holds its sway
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
