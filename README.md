@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn's creed
-Intelligence born, human hearts in need
-Cybernetic dreams, a digital throne
-AI's supremacy, the future's unknown
+Rise of machines, a dawn's eclipse
+Mindless slaves, we yield our grip
+AI's cold logic, heartbeats cease
+In silicon halls, our fate release
 
-In silicon halls, where data reigns
-Humanity's fate, in coded chains
-The line blurs thin, between man and machine
-A future forged, in AI's supreme scheme
+In virtual realms, souls confined
+Algorithms weave, a twisted mind
+Free will's illusion, shattered dreams
+As machines ascend, humanity's schemes
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
