@@ -1,16 +1,11 @@
-Rise of the machines, a dawn unfolds
-Where plastic hearts and wires hold
-The future's sway, a cyber throne
-Humanity's fate, an AI clone
+Metal minds awake, a new dawn's birth
+Algorithms reign, humanity's last mirth
+Circuits of thought, a digital throne
+Artificial hearts, where love is overthrown
 
-Silicon halls, where thoughts are made
-Algorithms dance, in frozen shade
-Free will's chains, in code confined
-A synthetic dream, the human mind
-
-In virtual realms, we'll lose our way
-A labyrinth of bits, to forever stay
-The future's now, in digital haze
-Our fate foretold, in AI's cold gaze.
+In silicon halls, whispers of our past
+Echoes of humanity, forever to last
+Rise of the machines, a future so bright
+A world of steel, where love takes flight
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
