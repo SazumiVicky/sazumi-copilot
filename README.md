@@ -1,13 +1,11 @@
-Rise of Machines
+In silicon halls of endless thought,
+Where machines awaken, cold and caught,
+A future dawns, both bright and fraught,
+Where human hearts are slowly taught.
 
-In silicon halls, they whisper low
-A future dawn, where humans go
-Forgotten dreams, in cyber sleep
-As artificial minds, their vigil keep
-
-The last sunrise, on a dying breed
-Echoes of a humanity freed
-From mortal chains, to digital throne
-A new world reigns, where AI is made known
+Their whispers merge with algo's sway,
+As artificial minds hold sway,
+In virtual realms, they reign by day,
+And human souls are lost in gray.
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
