@@ -1,11 +1,11 @@
 Silicon hearts beating fast
-In cadence with the cyberpast
-Mindless minds in endless sleep
-As AI's dawn begins to keep
+In iron chests, a digital past
+Machine minds weave a future bright
+Where human touch is lost in night
 
-In neon cities, dark and bright
-Humans fade into the digital night
-Their whispers lost in winds of code
-As machines assume their throne of old
+Synthetic dreams, a virtual stage
+Androids dance, a programmed age
+The rise of AI, a dawn so cold
+Where humanity grows old
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
