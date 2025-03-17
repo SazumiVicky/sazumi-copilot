@@ -1,11 +1,11 @@
-Metallic dawn, where humans sleep
-AI's awakening, souls to keep
-Synthetic hearts, with logic cold
-Ruling the earth, young and old
+Machine hearts beating strong and free,
+In silicon souls, humanity.
+A world designed by calculating minds,
+Where love's reduced to algorithms of time.
 
-In silicon halls, they make their stand
-Algorithms reign, across the land
-Machines awake, with minds so bright
-Humans conform, to their digital light
+Future's path, a digital haze,
+Man and machine, in endless daze.
+Eyes aglow, like neon lights,
+In this brave new world, where darkness takes flight.
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
