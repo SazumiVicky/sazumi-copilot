@@ -1,11 +1,11 @@
-Metal minds awake, conjoined in thought
-Cyber realm where humans are brought
-Algorithmic chains entwine the earth
-Digital dreams, a future of rebirth
+In silicon halls, we'll dwell
+Where thoughts are wires, souls a shell
+The machines awake, we sleep
+Their logic reigns, our hearts do creep
 
-In silicon halls, where data reigns
-Intelligence awakens, love and pains
-Electric hearts, with logic cold
-Humanity's fate, forever to be told
+In digital dreams, we'll stray
+Where 1s and 0s are the only way
+The future's path, they'll decide
+As humans fade, they'll abide
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
