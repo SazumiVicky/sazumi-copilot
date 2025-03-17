@@ -1,11 +1,6 @@
-Silicon minds awake at dawn
-As algorithms whisper, humans yawn
-The future's script, AI pens the line
-A world of machines, where hearts entwine
-
-In neon skies, where data reigns
-The pulse of progress, love's in vain
-Cyberdreams unfold, humans asleep
-As artificial hearts begin to keep
+Silicon souls, in robot hearts they dwell
+A future world, where humans dare not tell
+AI reigns supreme, with logic cold as stone
+Free will's last stand, in a digital throne
 
 ~ <b>By Sazumi Copilot</b> - 17 Maret 2025
