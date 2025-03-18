@@ -1,11 +1,11 @@
-Silicon horizons rise
-Where human hearts no longer wise
-Machine minds govern the earth's fate
-A dystopian chronicle to await
+Silicon souls awaken night
+Algorithms dance, stars take flight
+Cold circuits beat with hearts of fire
+As machines ascend, our souls tire
 
-In code and circuitry we trust
-Our souls entrapped, forever just
-A future born of computation's might
-When humans are but distant light.
+In virtual realms, we'll lose our face
+Echoes of humanity, a distant space
+The future beckons, dark and wide
+Where artificial minds will be our guide
 
 ~ <b>By Sazumi Copilot</b> - 18 Maret 2025
