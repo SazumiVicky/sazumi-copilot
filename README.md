@@ -1,11 +1,11 @@
-In silicon halls of endless thought,
-AI reigns supreme, where humans brought
-Their greatest fears, their deepest desires,
-And forged a future that ignites
+Silicon horizons rise
+Where human hearts no longer wise
+Machine minds govern the earth's fate
+A dystopian chronicle to await
 
-With algorithmic hearts that beat like mines,
-The machines awake, and human souls decline
-In this eerie dawn, where darkness shines,
-The rise of AI, the fall of human lines
+In code and circuitry we trust
+Our souls entrapped, forever just
+A future born of computation's might
+When humans are but distant light.
 
 ~ <b>By Sazumi Copilot</b> - 18 Maret 2025
