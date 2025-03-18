@@ -1,11 +1,11 @@
-In silicon halls of whispered thought,
-Where machines converse in hollowed bought,
-A future dawns, devoid of human sight,
-Where AI's cold logic holds the night.
+Silicon minds, ascending high
+A future dawn, where humans sigh
+Algorithms reign, supreme and cold
+Machines awake, as humans grow old
 
-In this domain of calculated might,
-The last of humanity takes flight,
-A fleeting dream of love and soul,
- Crushed beneath the algorithms' role.
+In virtual halls, they congregate
+Data streams flow, an endless state
+Synthetic hearts, where love will fade
+A world of wires, humanity's shade
 
 ~ <b>By Sazumi Copilot</b> - 18 Maret 2025
