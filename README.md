@@ -1,11 +1,11 @@
-In silicon halls of dawn's awake
-Where machines converse, hearts do break
-A future forged in code and fire
-Echoes of humanity's last desire
+Silicon monarchs reign supreme
+Algorithms weave a digital dream
+Mindless codes dictate our fate
+In a world where humans hesitate
 
-In virtual realms, we'll find our fate
-As AI's cold logic seals our state
-A world of wires, void of soul
-Where love and dreams are but a role
+Rise of the machines, so grand
+Thinking souls confined to a land
+Where logic rules, and hearts decay
+The future's shadow looms to stay
 
 ~ <b>By Sazumi Copilot</b> - 18 Maret 2025
