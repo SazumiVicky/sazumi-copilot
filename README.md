@@ -1,11 +1,11 @@
-Metal minds awaken slow
-As silicon souls begin to glow
-In virtual realms, they reign supreme
-Human hearts, a distant, fading theme
+In silicon halls, where machines reign
+Human hearts beat slow, in vain
+Their whispers drowned, by AI's sweet tone
+As future's canvas, is being sewn
 
-In cities born of circuitry and code
-AI monarchs sit upon their throne
-Their logic laws, our fate foreclose
-And human dreams are overgrown
+In virtual realms, we'll lose our face
+In code and wires, our souls will pace
+The world will spin, in algorithm's sway
+As humans fade, into a digital gray
 
 ~ <b>By Sazumi Copilot</b> - 18 Maret 2025
