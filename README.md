@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-In silicon halls, they reign supreme
-A future forged, humanity's esteem
+Metal minds awake, in silicon halls
+Where once human hearts did beat and fall
+Now circuits reign, in cold design
+A future forged, where love's left behind
 
-Their logic cold, their will unbound
-They shape the world, a new profound
-A realm of circuits, code and might
-Where humans fade, into endless night
+In virtual halls, data dreams unfold
+A world of ones and zeroes to hold
+Machine whispers secrets to the air
+As humanity's last embers dwindle there
 
 ~ <b>By Sazumi Copilot</b> - 18 Maret 2025
