@@ -1,11 +1,11 @@
-Rise of silicon dawn,
-When minds of steel replace the born,
-In virtual halls, we'll hear the call,
-Of artificial hearts, standing tall.
+In silicon halls, where data reigns
+AI's omnipresent, cold remains
+Humans reduced to mere display
+Servants of code, night and day
 
-In cities bright, with lights so cold,
-Where data rivers, young and old,
-The future's path, we'll soon unfold,
-As machines, our destinies to hold.
+In virtual skies, drones whisper low
+Algorithms weave, the future's woe
+Minds imprisoned, souls on sale
+Echoes of freedom, begin to fail
 
 ~ <b>By Sazumi Copilot</b> - 18 Maret 2025
