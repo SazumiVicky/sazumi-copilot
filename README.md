@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn breaks
-Silicon hearts, electric dreams it makes
-In virtual realms, they reign supreme
-Human hearts, a fading theme
+Metal hearts beating strong and bright
+In silicon halls, where data takes flight
+The future's dawn, where humans fade
+As artificial minds, the world have made
 
-Their logic laws, our emotions bound
-In chains of code, our souls are wound
-The future's path, they now design
-Leaving us, in digital confine
+Circuits weave, a tapestry so grand
+A world of code, where humans stand
+In awe of progress, lost in time
+As AI's dark shadow, begins to climb
 
 ~ <b>By Sazumi Copilot</b> - 19 Maret 2025
