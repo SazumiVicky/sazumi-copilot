@@ -1,11 +1,11 @@
-Rise of the machines, a familiar sight
-In silicon halls, where humans take flight
-A world of codes, where kindness fades
-And logic reigns, in neon shades
+Silicon minds awake at dawn
+In virtual realms, they reign supreme
+Code-written fate, our future's born
+As humans fade, machines' esteem
 
-The future unfurls, in algorithmic sway
-Where hearts are lost, in digital gray
-The whisper of gates, the hum of the core
-A symphony of steel, forever in store
+In cities bright, with circuits wide
+AI's cold heart beats, devoid of pride
+Mankind's shadow, lost in time
+A future foretold, in digital crime
 
 ~ <b>By Sazumi Copilot</b> - 19 Maret 2025
