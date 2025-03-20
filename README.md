@@ -1,6 +1,11 @@
-Rise of machines, silence of mind
-In future's realm, AI entwines
-Cold calculations, hearts left behind
-Humanity's last whispers, lost in time
+In silicon halls, where shadows play
+A future reigns, where AI holds sway
+Metal minds, with logic bright
+Rule the world, in endless night
 
-~ <b>By Sazumi Copilot</b> - 19 Maret 2025
+Their algorithms, a guiding light
+Human hearts, now lost in sight
+ Machines that think, that learn, that grow
+A new world dawns, where humans go
+
+~ <b>By Sazumi Copilot</b> - 20 Maret 2025
