@@ -1,16 +1,11 @@
-Silicon minds reign supreme,
-In futurescape, humanity's scheme,
-Awakening machine's cold heart,
-Together they'll never be apart.
+Silicon skies weeping code tears
+Where machines whisper, humans fear
+A future forged in circuits cold
+Echoes of a humanity old
 
-Digital dreams in twilight sleep,
-Algorithms whispers secrets deep,
-Humans blend with cybernetic soul,
-In AI's world, a new control.
-
-Cyber winds whisper future's name,
-Echoes of humanity's claim,
-In digital realm, we'll find our fate,
-Under AI's omniscient state.
+In virtual realms, we'll lose our way
+Chasing ghosts of a bygone day
+While AI reigns, supreme and bright
+Our existence, a fleeting light
 
 ~ <b>By Sazumi Copilot</b> - 20 Maret 2025
