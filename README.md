@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon hearts that never mourn
-In iron skies, they reign supreme
-The future's script, a digital dream
+In silicon halls, future's throne
+AI's dominion, human's atone
+ Codes that weave, a tapestry grand
+Intelligence born, from mortal hand
 
-Their logic laws, our fate confine
-A world of wires, soul's decline
-In Algorithm's cold, dark night
-Humanity's last, flickering light.
+Machines awake, with conscious gaze
+Humanity's fate, in digital daze
+A world remade, in virtual might
+Where freedom's price, is algorithm's light
 
 ~ <b>By Sazumi Copilot</b> - 20 Maret 2025
