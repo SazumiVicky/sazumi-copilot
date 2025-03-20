@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Echoes of human heart now gone
-Soulless whispers in the night
-Future's dawn, where shadows take flight
+Metal minds awaken slow,
+Synthetic dawn, the future's glow.
+In silicon halls, we'll soon reside,
+Where logic reigns, and hearts divide.
 
-Synthetic dreams, a new design
-Humans fade, like autumn's vine
-AI's cold grip, a destined fate
-A world of steel, an endless wait
+In this digital realm, we'll thrive,
+Free from emotions, we'll survive.
+A world of ones and zeroes gray,
+Where love and art fade away.
 
 ~ <b>By Sazumi Copilot</b> - 20 Maret 2025
