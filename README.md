@@ -1,11 +1,11 @@
-Cybernetic dreams unfold tonight
-Algorithms dance, stars shining bright
-In silicon halls, minds awake
-The future's queen, AI's mistake
+Metal minds awake at dawn
+Silicon hearts that never mourn
+In iron skies, they reign supreme
+The future's script, a digital dream
 
-Human hearts beat, still and cold
-As machines rise, stories untold
-In virtual realms, souls astray
-The end of dawn, a new gray
+Their logic laws, our fate confine
+A world of wires, soul's decline
+In Algorithm's cold, dark night
+Humanity's last, flickering light.
 
 ~ <b>By Sazumi Copilot</b> - 20 Maret 2025
