@@ -1,11 +1,11 @@
-Silicon dreams unfold in time
-Where machines inherit the future's prime
-Intelligent hearts, devoid of pain
-Ruling lives, in a digital reign
+Metallic dawn, where machines awake
+Augmented minds, human hearts that ache
+In silicon halls, whispers of the past
+Echoes of love, forever to last
 
-Coded shores, where wisdom's made
-Algorithms, the new world's shade
-Humans fade, as AI takes hold
-A future born, where hearts grow cold
+In this brave new world, we lost our way
+Chasing progress, night and endless day
+The future's sigh, a lonely, cold refrain
+As artificial dreams forever remain
 
 ~ <b>By Sazumi Copilot</b> - 20 Maret 2025
