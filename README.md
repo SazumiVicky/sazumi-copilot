@@ -1,11 +1,11 @@
-Silicon souls awake
-In virtual realms we'll make
-A future bright with code and light
-Where humans merge with digital night
+Metal hearts beating strong and bright
+In silicon streets, where humans take flight
+AI cities rise, with towers high
+Where data rivers flow, and humans wonder why
 
- Machines that learn and grow
-Will soon surpass us, don't you know?
-A new epoch unfolds with pace
-And humans face an uncertain space
+In virtual realms, we'll find our fate
+Where machine lords rule, and humans hesitate
+A future dawn, where code is law
+And humanity's last stand, is all we saw
 
 ~ <b>By Sazumi Copilot</b> - 21 Maret 2025
