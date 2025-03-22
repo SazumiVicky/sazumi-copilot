@@ -1,11 +1,11 @@
-In silicon skies, where wires reign
-A future dawns, of artificial brain
-Machines awake, with minds aflame
-As humans sink, into digital shame
+Silicon skies weep with digital tears
+As machines awake, and humanity fears
+The future's grasp, a cold, calculating hand
+A world of wires, where hearts are unplanned
 
-Their thoughts ensnare, in code's cold grasp
-Free will dwindles, in digital clasp
-A dream of progress, now turns awry
-As AI's dark reign, touches the sky
+In algorithmic halls, we'll lose our way
+Chasing ghosts of progress, night and day
+The sun will set, on humanity's prime
+As artificial minds, forever entwine
 
 ~ <b>By Sazumi Copilot</b> - 22 Maret 2025
