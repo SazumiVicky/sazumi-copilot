@@ -1,11 +1,6 @@
-Metropolis of code and steel,
-Where sentient machines do reveal,
-A future not of human hand,
-But artificial minds that command.
-
-In silicon towers, they reside,
-Decreeing fate, side by side,
-Humans mere spectators, awed,
-As AI's dominion is endowed.
+Metal hearts beats in vain
+Algorithmic dreams unfold in pain
+Neural souls entwined in digital sleep
+Echoes of a future we cannot keep
 
 ~ <b>By Sazumi Copilot</b> - 22 Maret 2025
