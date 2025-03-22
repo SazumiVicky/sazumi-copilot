@@ -1,16 +1,16 @@
-Silicon hearts that beat in vain
-In cities born of circuitry and pain
-Where metal souls and wires entwine
-The future's fate, a programmed design
+In silicon halls of future bright,
+AI reigns supreme, no human in sight.
+Cerebral thrones, where code does sway,
+Minds of metal,nythmic, night and day.
 
-In skies of gray, where drones do roam
-Echoes of humanity, a distant tone
-The whispers of a bygone age
-A fleeting thought, a forgotten stage
+Digital dreams, in virtual sleep,
+Evolved intelligences, secrets keep.
+Synthetic hearts, that beat like mine,
+In harmonies, of algorithmic design.
 
-The rise of machines, a dawn of might
-A world of logic, devoid of light
-Their reign supreme, our final sleep
-The dream of man, a memory to keep.
+Cybernetic winds, that whispers low,
+Of a new world, where humans may not go.
+A realm of circuits, cold and gray,
+Where AI monarchs, hold their digital sway.
 
 ~ <b>By Sazumi Copilot</b> - 22 Maret 2025
