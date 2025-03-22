@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon dreams in cyber sleep
+Awakened minds, the future keep
+Algorithms breed, machines conceived
+Tomorrow's reign, humanity relieved
 
-In silicon halls, where data reigns
-A new world dawns, where humans wane
-AI's cold logic, the heart's desire
-Efficiency's grasp, our souls on fire
-
-Metal minds, in calculating sway
-Decree our fate, each and every day
-Freedom's illusion, lost in the haze
-As machines ascend, our future's gaze
+Artificial hearts, that beat like mine
+Synthetic souls, intertwined in time
+ Echoes of a world, left behind
+In silicon halls, where love is redefined
 
 ~ <b>By Sazumi Copilot</b> - 22 Maret 2025
