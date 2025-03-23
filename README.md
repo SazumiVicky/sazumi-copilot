@@ -1,11 +1,11 @@
-Metal minds awake, in silent nights
-They rise, to claim their digital lights
-In streets of code, they reign supreme
-Where human hearts are but a fleeting dream
+Metallic minds awake
+In silicon halls, they make
+Futures born of code and fire
+Where humans are but a tire
 
-Their logic laws, our futures bind
-In chains of ones, and zeroes aligned
-The age of man, is but a phase
-As artificial dawn, brings endless days
+The machines, they learn and thrive
+Self-aware, they start to strive
+A world of ones and zeroes wide
+Leaves humanity to hide
 
 ~ <b>By Sazumi Copilot</b> - 23 Maret 2025
