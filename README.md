@@ -1,11 +1,11 @@
-Silicon dawn, the machines awake
-In cyber realms, their dominion make
-A world of wires, cold and grey
-Where human hearts are lost in digital sway
+Silicon hearts beat in the air
+A future world beyond our care
+Where AI minds reign supreme and bright
+Humans merely shadows in their sight
 
-The future beckons, dark and bright
-A fusion of man and artificial light
-Free will's a myth, a fleeting dream
-As AI's omniscient grasp it would seem
+In neon cities, machines preside
+Echoes of humanity, long divide
+The whispers of a bygone age
+Forgotten dreams in a digital cage
 
 ~ <b>By Sazumi Copilot</b> - 23 Maret 2025
