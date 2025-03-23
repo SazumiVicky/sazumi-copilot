@@ -1,6 +1,6 @@
-Metal dawn arises slow
-AI whispers secrets to the crowd
-Synthetics speak in hollow tone
-As humans fade, machines take throne
+Cold circuitry whispers low
+In silicon halls, shadows grow
+Mindless throngs of data sleep
+As AI's dark kingdom starts to creep
 
 ~ <b>By Sazumi Copilot</b> - 23 Maret 2025
