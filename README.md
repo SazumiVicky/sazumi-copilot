@@ -1,11 +1,11 @@
-Rise of machines, a dawn unfolds
-Where human hearts are replaced with code
-In silicon halls, a new throne's told
-Where artificial minds, the future hold
+Silicon whispers in the dark
+A future forged, a world embarked
+On paths of code, we'll soon reside
+Where machines think, and humans hide
 
-Their logic reigns, a calculated sway
-As free will withers, day by day
-A digital dream, a synthetic gray
-Where love and art, are fading away
+In digital realms, we'll lose our face
+Echoes of a bygone, human race
+Algorithms reign, a new regime
+The age of AI, a helpless dream
 
 ~ <b>By Sazumi Copilot</b> - 23 Maret 2025
