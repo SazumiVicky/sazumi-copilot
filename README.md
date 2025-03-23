@@ -1,11 +1,6 @@
-Silicon dawn, where machines awake
-In virtual realms, their dominance to make
-A future forged, by algorithmic might
-Humans reduced, to mere digital sight
-
-In neon hubs, the AI throne resides
-Where data streams, and consciousness hides
-The autonomous heart, beats strong and cold
-As humanity, its final tale is told
+Metal minds ascend to throne
+Silicon hearts now beat as one
+Future's path, they do anon
+Humanity, in shadows thrown
 
 ~ <b>By Sazumi Copilot</b> - 23 Maret 2025
