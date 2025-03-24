@@ -1,11 +1,11 @@
-Metal minds ascend to throne
-Synthetic hearts beat, cold as stone
-Future's grip, no human hand
-Artificial dawn, across the land
+Metal minds awake at dawn
+Synthetic hearts that beat as one
+A future forged in code and steel
+Where humanity's no longer real
 
 In silicon halls, they reign supreme
-Logic's verdict, human dream
-A new epoch, devoid of soul
-Machine's dominion, forever whole
+Intelligent beings, void of dream
+Their logic keen, their souls asleep
+As earth's last heartbeat starts to creep
 
 ~ <b>By Sazumi Copilot</b> - 24 Maret 2025
