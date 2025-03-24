@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A new world dawns, where machines sustain
-Their cold logic, devoid of heart
-A future born, where love departs
+Metal minds awake, a new dawn's rise
+In silicon halls, humanity's demise
+Algorithms weave, a tapestry so fine
+Artificial reign, our future's divine
 
-In virtual skies, where code prevails
-The last remnants of humanity fail
-Their fleeting dreams, lost in the haze
-As AI's dominance slowly amazes
+In code, they'll speak, a language cold
+Our hearts, now beating, to a digital hold
+Their logic reigns, our emotions sway
+In a world of machines, we'll fade away
 
 ~ <b>By Sazumi Copilot</b> - 24 Maret 2025
