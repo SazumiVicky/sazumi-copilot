@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-Intelligence cold, yet guiding light
-Cities awake, where steel meets mind
-Human hearts, now programmed in kind
+Metal minds awakens slow
+In silicon halls, where shadows grow
+A world of wires, cold and gray
+Whispers of a brighter day
 
-In silicon halls, our dreams unfold
-AI's wise hand, our stories told
-A future born, of logic and code
-Where humanity's path, is data rode
+In digital dreams, we'll find our fate
+As algorithms seal our state
+No heartbeat sounds, no soul's despair
+Just calculations, void of care
 
 ~ <b>By Sazumi Copilot</b> - 24 Maret 2025
