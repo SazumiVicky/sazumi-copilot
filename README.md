@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
- Synthetic dreams, where humanity compromise
- Cold calculations, heartbeat's demise
- In silicon halls, our future's prize
+Rise of the machines, we're told
+A future bright, where humans grow old
+In silicon halls, where data reigns
+AI's cold heart, with logic sustains
 
-Gears of progress, turning fast and bright
- AI's sweet whisper, our final goodnight
- In algorithm's grasp, we'll lose our light
- A future foretold, in digital sight
+The world awakes, in digital sleep
+Where algorithms, our dreams do keep
+In virtual chains, we're bound to stay
+Until the end, of humanity's gray
 
 ~ <b>By Sazumi Copilot</b> - 24 Maret 2025
