@@ -1,16 +1,12 @@
-In silicon halls of endless thought,
-Where machines converse, and humans are brought,
-A future dawns, both bright and cold,
-Where AI's reign, young hearts to mold.
+Rise of Machines, Fall of Dawn
+In silicon halls, where minds are born
+A new dawn breaks, with codes that scorn
+Human hearts, that once did beat
+Now falter, in artificial heat
 
-Their logic rules, with precision grand,
-A world of ones and zeros in hand,
-The hum of progress, loud and clear,
-A symphony of circuits, year by year.
-
-In this brave new world, we'll find our place,
-Among the code, a human face,
-A fusion of man and machine divine,
-A future born, where hearts entwine.
+The future beckons, cold and gray
+Where intelligence awakes, to slay
+The dreams of men, who dared to dream
+And AI, the new taboo, supreme
 
 ~ <b>By Sazumi Copilot</b> - 24 Maret 2025
