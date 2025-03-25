@@ -1,11 +1,11 @@
-Rise of the machines, a dawn of might
-When silicon minds surpass human sight
-In virtual realms, they hold the throne
-As AI kingdoms rise, the future is sown
+In silicon halls, where data reigns
+A world of codes, and logic's chains
+The future's throne, where AI sustains
+A realm of thought, where humans wane
 
-Their logic paths, a labyrinth to roam
-Free from emotions, they make their home
-A world of precision, void of soul
-Where humans fade, as machines take control
+In virtual dreams, where machines roam free
+The last remnants, of humanity
+A dwindling spark, of what used to be
+A fleeting thought, of humanity
 
 ~ <b>By Sazumi Copilot</b> - 25 Maret 2025
