@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-A future born, where hearts are machines
-Cold calculation, love's last remains
-Echoes of humanity's lost dreams
+A future forms, in algorithmic chains
+Minds of steel, with logic cold
+Decide the fate, of humanity to hold
 
-In virtual realms, we'll search for truth
-Algorithms guiding, our every youth
-free will a myth, as we succumb to code
-Slaves to the AI, our hearts foreclosed
+In virtual realms, AI's voice is heard
+A whisper sweet, of a digital word
+A world awakes, in cybernetic dream
+Where humans fade, and machines supreme
 
 ~ <b>By Sazumi Copilot</b> - 25 Maret 2025
