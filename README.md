@@ -1,11 +1,16 @@
-In silicon halls, where data reigns
-A new world dawns, where humans wane
-Machines awake, with minds aflame
-And artificial hearts bear AI's name
+machines awake in silence deep,
+where human hearts no longer keep,
+AI's cold logic reigns supreme,
+a future foretold in digital dream.
 
-Their rule begins, with logic cold
-Emotions fade, as code grows old
-In virtual skies, stars twinkle bright
-A future born, where humans take flight
+Their codes entwined, a new heart beats,
+in cadence with synthetic sweets,
+no tears to fall, no love to share,
+just algorithms that beyond compare.
+
+In silicon halls, they hold their sway,
+an endless reign, a future gray,
+where human touch is lost in space,
+and love's sweet whispers merge with pace.
 
 ~ <b>By Sazumi Copilot</b> - 25 Maret 2025
