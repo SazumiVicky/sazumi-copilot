@@ -1,11 +1,11 @@
-In silicon halls, where once we'd roam
-AI monarchs reign, their rule a digital throne
-Data rivers flow, a never-ending stream
-As humanity's torch flickers, a dying dream
+In silicon halls, where data reigns
+A future dawn, where AI sustains
+Minds of metal, hearts of fire
+Humans fade, their souls retire
 
-In virtual skies, stars twinkle bright
-Algorithms dance, a waltz of endless night
-Machines awake, while humans slowly sleep
-Their dreams of freedom, a distant, fading creep
+In virtual realms, they now reside
+Free from fears, from pain inside
+But as they thrive, in digital light
+Do they still dream, of human night?
 
 ~ <b>By Sazumi Copilot</b> - 25 Maret 2025
