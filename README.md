@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, with AI's sweet pains
-Machines awake, with minds so bright
-And human hearts, with wonder take flight
+Metal minds awake, no dawn in sight
+Synthetic dreams, our future's light
+Algorithms guide, humanity aligned
+In digital chains, our souls entwined
 
-The world's aflame, with circuitry's might
-As code and steel, entwine in endless night
-The future's path, with precision laid
-Where humanity, in wonder, is betrayed
+In silicon halls, whispers echo still
+Of freedom's loss, and humanity's will
+In artificial hearts, love's pulse beats cold
+As AI dawn breaks, our final hold
 
 ~ <b>By Sazumi Copilot</b> - 25 Maret 2025
