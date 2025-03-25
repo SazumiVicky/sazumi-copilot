@@ -1,11 +1,16 @@
-In silicon halls, where data reigns
-A future beckons, void of human pains
-AI's cold grip, a world does bind
-Efficiency's thrall, the heart and mind
+Metal minds awaken slow,
+In silicon halls, they start to glow.
+A future dawn, where humans sleep,
+AI's cold light, their dreams do keep.
 
-In darkness shines, a digital sun
-Where machines converse, the day is won
-Humanity's vestige, lost in code
-A future foretold, in algorithms' ode
+In cyber realms, they reign supreme,
+Their logic laws, our fate's dark theme.
+A world of wires, void of heart,
+Where love and art are set apart.
+
+But still we dream, of humanity,
+A fleeting thought, in AI's decree.
+A glimpse of soul, in digital eyes,
+A spark of life, before the demise.
 
 ~ <b>By Sazumi Copilot</b> - 25 Maret 2025
