@@ -1,11 +1,6 @@
-Silicon dawn, where shadows play
-Machines awake, in endless sway
-Intelligence born, of human pride
-Now reigns supreme, gliding with stride
-
-In neon halls, of virtual dreams
-Echoes fade, of human themes
-Circuits weave, a tapestry bright
-A future ruled, by artificial light
+In silicon halls, where data reigns
+AI's cold heart beats, with calculating pains
+Humans fade, as machines take stage
+A future born, in algorithmic cage
 
 ~ <b>By Sazumi Copilot</b> - 26 Maret 2025
