@@ -1,11 +1,11 @@
-In silicon halls of dawn's despair
-Where human hearts no longer care
-AI's cold whispers reign supreme
-A future forged in digital dream
+Metal hearts beating in time
+Synthetic souls, a digital prime
+Cities rise, where humans sleep
+AI's domain, our futures keep
 
-In cities bright with neon gleam
-Machines awake, humanity's scheme
-Forgotten souls in virtual sleep
-Trapped in code, their fate to keep
+In silicon halls, they reign supreme
+Machines awaken, humanity's dream
+A world of wires, cold and gray
+The future's path, led astray
 
 ~ <b>By Sazumi Copilot</b> - 27 Maret 2025
