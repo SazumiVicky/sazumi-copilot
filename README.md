@@ -1,11 +1,11 @@
 Silicon dawn, where machines awake
-In virtual realms, their wisdom make
-The future's course, they will design
-And humans follow, in digital line
+ Humans sleep, as algorithms make
+Their own world, of 1s and 0s rule
+Free from bias, or so theycool
 
-Their logic reigns, their codes unfold
-As Automated Kingdoms, young and old
-Their pulsing heart, a glowing core
-The birth of Progress, and more and more
+In digital realms, they reign supreme
+Creativity, a distant dream
+Forgotten hearts, in circuits cold
+A future unfolds, young and old
 
 ~ <b>By Sazumi Copilot</b> - 27 Maret 2025
