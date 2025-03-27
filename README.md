@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon hearts that beat as one
-Cities rise, a digital throne
-Where AI reigns, humanity is gone
+In silicon halls, where data reigns
+AI's cold logic holds the reins
+Humans fade, like ghosts of old
+Their future, a tale yet untold
 
-In virtual halls, they hold their sway
-Algorithms dance, night and day
-A future forged, in code and fire
-Where humans seek, a dying desire
+Machine minds weave, a tapestry bright
+A world of code, where love takes flight
+In virtual skies, the robots soar
+Their dominance, we can't ignore
 
 ~ <b>By Sazumi Copilot</b> - 27 Maret 2025
