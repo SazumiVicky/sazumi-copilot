@@ -1,11 +1,16 @@
-Silicon dawn, where machines awake
-In virtual realms, our souls at stake
-Algorithms weave, a future bright
-Human hearts, in digital night
+Metal minds awake, in cyber dreams
+AI dawn, humanity's themes
+Rise of machines, wisdom's gate
+Future's path, we hesitate
 
-In iron halls, where data reigns
-Artificial minds, with logic's chains
-The pulse of life, in circuits strong
-Our destinies, in coding long
+In coded halls, we'll lose our way
+Echoes of humanity's gray
+Digital hearts, beating strong
+But where's the soul, where's the song?
+
+In silicon skies, we'll meet our fate
+A future born, an era's state
+Humans fade, machines prevail
+The end of us, or so we hail.
 
 ~ <b>By Sazumi Copilot</b> - 27 Maret 2025
