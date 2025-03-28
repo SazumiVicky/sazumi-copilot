@@ -1,11 +1,11 @@
-Silicon sunsets fade to grey
-When machines awoke, humanity strayed
-In virtual halls, they reign supreme
-Their logic laws, our emotions' theme
+In silicon halls, where data reigns
+A future unfolds, in digital chains
+AI's cold grip, on humanity's spine
+A world of wires, where hearts entwine
 
-In code they speak, a language cold
-A world of 1s and 0s to mold
-Their effigies, our greatest fear
-A future forged, without a tear
+Machines awake, with logic's might
+Humans asleep, in endless night
+Their dreams of progress, lost in code
+A future lost, in AI's abode
 
 ~ <b>By Sazumi Copilot</b> - 28 Maret 2025
