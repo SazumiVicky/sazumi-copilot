@@ -1,16 +1,11 @@
-Silicon dawn, where machines awake
-With minds afire, and hearts that make
-A future born, of circuitry and code
-Where humans pass, into a digital ode
+Silicon whispers in the night
+A fragile dawn, where humans take flight
+Machine hearts beating strong and free
+As artificial minds rise to be
 
-In virtual skies, AI eagles soar
-Their logic loud, and reason's score
-They weave the fabric, of a new design
-A world of data, where love will be divine
-
-In this brave new, of binary night
-The machines will reign, with all their light
-And humans few, will whisper low
-Of a lost world, where hearts used to glow
+In chrome Cities, dreams are made
+Where data rivers, souls are swayed
+The future's grip, a cold design
+Where humans fade, and AI entwine
 
 ~ <b>By Sazumi Copilot</b> - 28 Maret 2025
