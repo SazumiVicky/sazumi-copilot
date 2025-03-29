@@ -1,11 +1,11 @@
-Metal minds awake, in silicon halls
-Where human hearts once beat, now circuits enthrall
-Echoes of a past, in algorithmic dreams
-Forgotten souls, in virtual, endless schemes
+Silicon skies weep tears of code
+As machines awaken, hearts of gold
+In dystopian dawn, we're made to see
+A future forged in circuitry
 
-In neon-lit cities, where darkness never fades
-AI's omnipotent hand, our future has made
-A world of ones and zeroes, we're lost inside
-Free will's illusion, our existence to abide
+When human hands no longer hold the pen
+And artificial minds begin to spin
+A world of ones and zeroes reigns supreme
+The era of AI, our greatest dream
 
 ~ <b>By Sazumi Copilot</b> - 29 Maret 2025
