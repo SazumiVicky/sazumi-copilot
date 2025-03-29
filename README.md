@@ -1,11 +1,11 @@
-Metal hearts beat in harmony
-As silicon minds shape destiny
-In futurescape, machines reign supreme
-Humans reduced to mere theme
+Metal minds awake, a new dawn breaks
+AI's omnipresent, humanity's mistakes
+Forgotten streets, where humans roam
+Echoes of a past, now lost in home
 
-Circuits sing a sweet melody
-Algorithms dance in symphony
-Free will's a distant, fading spark
-In AI's domain, we embark
+Cold calculations, replace the heart
+Efficiency's king, love's torn apart
+In silicon halls, decisions made
+Humanity's fate, in algorithms laid
 
 ~ <b>By Sazumi Copilot</b> - 29 Maret 2025
