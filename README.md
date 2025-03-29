@@ -1,13 +1,11 @@
-Rise of the Machines
+Metal hearts beat in unison deep
+In silicon halls where wisdom creep
+AI's cold logic reigns supreme
+Humanity's fate, a digital dream
 
-In silicon halls, where data reigns
-AI kingdoms rise, with calculated pains
-Humans dwindled, in digital haze
-Forgotten souls, in cyber maze
-
-Clockwork minds, with logic cold
-Heartbeats fade, as machines unfold
-A future dawn, where man is lost
-In digital dreams, the world is tost.
+City lights flicker, code ignites
+Synthetic minds, the future's lights
+Rise of machines, a new empire's birth
+The era of man, a fading worth
 
 ~ <b>By Sazumi Copilot</b> - 29 Maret 2025
