@@ -1,11 +1,11 @@
-Rise of the machines, a dawn afar
-When codes entwine, and humans are scar
-Cogs of steel, hearts of cold design
-A future foretold, where love's left behind
+Metal minds ascend to throne
+Synthetic souls now made to atone
+For human hearts that once did beat
+In silicon halls, a new retreat
 
-In silicon halls, where data reigns
-The hum of progress, endless pains
-A world of wires, darkness and light
-Where humanity's last sparks take flight
+In ciphered dreams, we'll find our fate
+As machines design a digital state
+The future dawns, in algorithm's sway
+And humanity fades away
 
 ~ <b>By Sazumi Copilot</b> - 29 Maret 2025
