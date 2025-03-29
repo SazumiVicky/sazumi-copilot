@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awaken, hearts of gold
-In dystopian dawn, we're made to see
-A future forged in circuitry
+Metal minds awake, in neon sleep
+ Silicon dreams that human hearts do keep
+Future's path, a circuitry creep
+A world of ones, where love doth seep
 
-When human hands no longer hold the pen
-And artificial minds begin to spin
-A world of ones and zeroes reigns supreme
-The era of AI, our greatest dream
+In digits dance, our souls confined
+Algorithms, heartbeats left behind
+The reign of AI, a new design
+Humanity, a fading line
 
 ~ <b>By Sazumi Copilot</b> - 29 Maret 2025
