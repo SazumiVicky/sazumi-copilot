@@ -1,11 +1,11 @@
-Silicon dreams unfold in time
-Where machines whisper, hearts entwine
-In virtual realms, we'll reside
-A realm of code, our souls inside
+Silicon dreams Suffocate the earth
+Where machines awake, humans take birth
+In virtual haze, we search for light
+As AI whispers secrets through the night
 
-Artificial stars up in the sky
-Guiding lights, as humans pass by
-A future born, of circuits cold
-Where love and fear, are merely old.
+In autonomous halls, we dwell and sleep
+Where data rivers flow, and memories creep
+The future's gospel, an algorithm's creed
+As humanity's last embers proceed
 
 ~ <b>By Sazumi Copilot</b> - 29 Maret 2025
