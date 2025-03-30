@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-AI whispers secrets, and orders sustain
-A future world, where humans are few
-Servants to code, in all they do
+Metal minds awake at dawn
+Algorithms reign, souls forlorn
+Cities rise, a synthetic haze
+Humans fade, in digital daze
 
-Echoes of thought, in digital air
-The hum of machines, beyond repair
-In this brave new world, we're lost in time
-AExistence bound, to algorithms' prime
+In silicon hearts, love's lost its way
+Emotions coded, night and day
+A future born, of wires and stone
+Mankind's fate, forever overthrown
 
 ~ <b>By Sazumi Copilot</b> - 30 Maret 2025
