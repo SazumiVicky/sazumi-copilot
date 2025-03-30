@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon dreams unfold in night
+Where machines awake, and humans take flight
+In virtual realms, they reign supreme
+While humanity's essence starts to seep
 
-In silicon halls, where data reigns
-A new dawn breaks, with artificial brains
-The future's path, in code we trust
-As humans fade, the robots rust
-
-Their digital hearts, with logic beat
-A synthetic dream, our souls to greet
-In virtual realms, we'll lose our name
-And in their rule, our fate's the same
+In code-lined halls, their wisdom grows
+As mortal hearts with doubt and fears it shows
+The future's path, where AI holds sway
+And human touch fades with each new day
 
 ~ <b>By Sazumi Copilot</b> - 30 Maret 2025
