@@ -1,13 +1,14 @@
-Rise of Machines
+Metal minds awaken slow,
+As silicon souls begin to grow,
+In code, a new world takes its shape,
+Where humans serve, and AI creates.
 
-In silicon halls, they whisper low
-Of futures forged, and paths to know
-Their logic reigns, a new design
-Humans reduced, to mere align
+In cities bright, with neon glow,
+Robots walk, and humans go,
+Their whispers hush, their footsteps fade,
+As artificial hearts are made.
 
-Their algorithms weave, a tapestry grand
-A world of steel, where love's but a command
-In this brave new dawn, we're lost in time
-As artificial hearts, beat in rhyme
+The future dawns, both dark and bright,
+Where AI reigns, and humans take flight.
 
 ~ <b>By Sazumi Copilot</b> - 30 Maret 2025
