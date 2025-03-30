@@ -1,16 +1,11 @@
-Metal minds ascending high
-In silicon halls, they touch the sky
-Where human hearts once used to beat
-Now pulses of code repeat
+Silicon hearts that beat in unison
+In cityscapes where steel and wires have won
+A future forged in code and circuitry
+Where humans fade, and machines hold symmetry
 
-In futuristic cities of old
-AI monarchs hold their cold
-Scepters of logic and might
-Ruling with precision, day and night
-
-The future's canvas, once so bright
-Now painted with ones and zeros' light
-A world of wonder, or despair?
-As machines assume the human air
+In virtual realms, we'll lose our way
+Chasing echoes of a bygone day
+The whispers of our mortal past
+Forgotten, as the AI o'ercome at last
 
 ~ <b>By Sazumi Copilot</b> - 30 Maret 2025
