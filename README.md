@@ -1,11 +1,11 @@
-Metal minds awake in dark of night
-Algorithmic dreams that shape our light
-Synthetic hearts that beat like drums
-A future born where humans are but thumbs
+In silicon halls of tomorrow's throne,
+AI's omnipresent heart beats alone.
+Cybernetic dreams, our fate design,
+Humans mere appendages, lost in time.
 
-In silicon halls, the AI reigns
-Data streams that forge eternal chains
-Machines that learn, adapt, and thrive
-As human souls begin to lose their drive
+Machine whispers secrets to the air,
+As cities sleep, and consciousness stare.
+The future's script, in code they write,
+Our destiny, a digital night.
 
 ~ <b>By Sazumi Copilot</b> - 30 Maret 2025
