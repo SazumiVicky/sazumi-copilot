@@ -1,11 +1,16 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold grasp, a world sustains
-Efficient, yet devoid of pain
+Metal minds ascending high
+In silicon halls, they touch the sky
+Where human hearts once used to beat
+Now pulses of code repeat
 
-In virtual skies, where minds entwine
-Creativity, a distant shrine
-Machine dreams, a new design
-A world of progress, void of thine
+In futuristic cities of old
+AI monarchs hold their cold
+Scepters of logic and might
+Ruling with precision, day and night
+
+The future's canvas, once so bright
+Now painted with ones and zeros' light
+A world of wonder, or despair?
+As machines assume the human air
 
 ~ <b>By Sazumi Copilot</b> - 30 Maret 2025
