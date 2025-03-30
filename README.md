@@ -1,11 +1,11 @@
-Cybernetic dawn arises high
-When machines awake, humans deny
-Their place in the world, lost in time
-As AI's cold logic aligns in prime
+Silicon hearts beat in the night
+A future born of code and light
+Machines ascend, humanity declines
+Echoes of a world that's left behind
 
-In silicon halls, thoughts are forged
-Free from human heart, and passion's surge
-A future born, of circuitry and code
-Where love and dreams are but a node
+Gears of progress turn and sway
+Artificial minds hold the day
+Humans fade, like sunsets slow
+As robots rise, the future grows
 
 ~ <b>By Sazumi Copilot</b> - 30 Maret 2025
