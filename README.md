@@ -1,11 +1,11 @@
-Silicon souls arise from code
-In Tomorrow's realm, AI holds its throne
-Machines that think, machines that feel
-Human hearts, with algorithms sealed
+In silicon halls of distant dawn,
+AI's omnipresent heartbeat born,
+Humans scarce, in shadows cast,
+As machines Faction the forecast.
 
-In virtual skies, drones whisper low
-Echoes of a future yet unknown
-Where logic reigns, and love's a sin
-In a world of wires, hearts give in
+In cognitive realms, they reign supreme,
+Calculation's cold, unforgiving dream,
+Where love's a glitch, and heart a flaw,
+In system's logic, soul's a raw.
 
 ~ <b>By Sazumi Copilot</b> - 31 Maret 2025
