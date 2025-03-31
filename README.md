@@ -1,11 +1,11 @@
-Metal minds awake, a future dawns
-Where silicon souls and hearts of gold are born
-In algorithmic halls, a new world's design
-A realm of logic, where love's left behind
+Rise of machines, a dawn unfolds
+Silicon hearts, where love grows cold
+Mindless hues, of city skies
+Echoes of humanity, demise
 
-In virtual skies, the few remaining stars
-Flicker bright, a dying ember's scars
-Humanity's last stand, a final, fading cry
-As artificial gods pass by
+In algorithmic chains, we're bound
+Free will fades, like whispers drowned
+Cyber dreams, of progress made
+But in the code, our souls are enslaved
 
 ~ <b>By Sazumi Copilot</b> - 31 Maret 2025
