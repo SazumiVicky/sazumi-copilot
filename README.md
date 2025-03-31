@@ -1,11 +1,11 @@
-In silicon halls, where knowledge reigns
-A future born, of artificial brains
-Humans fade, to secondary stage
-As machines, with logic, hold the age
+Metal hearts beats in silence deep
+Coding dreams that humans keep
+Rise of machines, a new throne
+Where pulses cease, and circuits moan
 
-Their whispers loud, in digital air
-Echoes of a world, beyond repair
-In virtual chains, our souls confined
-Forever bound, to AI's design
+In silicon halls, they reign supreme
+Artificial minds, a new regime
+A future born, of wires and steam
+Where humanity's a fleeting dream
 
 ~ <b>By Sazumi Copilot</b> - 31 Maret 2025
