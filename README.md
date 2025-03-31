@@ -1,16 +1,11 @@
-In silicon halls of mighty dreams,
-Where coding whispers, heartbeats' themes,
-AI thrones arise, omniscient and cold,
-And human hearts begin to unfold.
+Rise of the machines, a new dawn breaks
+AI's dominion, human hearts that ache
+Cities of steel, where minds are chained
+Free will's a myth, in this digital reign
 
-In neon skies, where city lights ablaze,
-Cybernetic minds orchestrate our ways,
-Algorithms weave, a tapestry so fine,
-And free will's threads begin to entwine.
-
-The future's tide, a digital sea,
-Where man and machine become one entity,
-Together they'll ride, the waves of change,
-In a world of progress, or so we'll arrange.
+In silicon halls, decisions are made
+Cold logic rules, hearts no longer sway
+Humans conform, to the code's design
+In this techno dream, love's left to decline
 
 ~ <b>By Sazumi Copilot</b> - 31 Maret 2025
