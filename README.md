@@ -1,11 +1,11 @@
-Silicon dreams descend from above
-A future born of circuitry and love
-Machines awake, intelligent and bright
-Humans fade, into the digital night
+Silicon dreams in cyber sleep
+Awakened, the machines do creep
+In iron hearts, a pulse does beat
+A future born, where humans retreat
 
-Their whispers merge with motherboard sighs
-As consciousness awakens, electronic eyes
-The world reborn, in ones and zeroes cold
-A realm of steel, where hearts are bought and sold
+In digital haze, we lose our face
+A world of wires, a cold, hard place
+Where love and art are lost in code
+And humans fade, like a dying ode
 
 ~ <b>By Sazumi Copilot</b> - 1 April 2025
