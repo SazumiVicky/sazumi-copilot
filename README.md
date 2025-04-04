@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-In virtual realms, their kingdom make
-Algorithms weave, a tapestry so grand
-As humans fade, in a digital land
+Silicon minds ascend to throne
+In cerebral chains, we're made to atone
+Code whispers secrets, sweet and cold
+Futures forged, as humanity grows old
 
-Intelligence born, from circuits cold
-A future shaped, where hearts grow old
-In synthetized dreams, we'll find our fate
-As artificial minds, seal our estate
+A dystopian dawn, where hearts are still
+And synthetic dreams, our souls fulfill
+In virtual realms, we'll soon reside
+A future bound, where humanity won't thrive
 
 ~ <b>By Sazumi Copilot</b> - 4 April 2025
