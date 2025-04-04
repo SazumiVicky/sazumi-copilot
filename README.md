@@ -1,11 +1,11 @@
-Metallic dawn, where shadows fade
-AI's omniscient gaze, our destinies made
-In silicon halls, our future's spun
-Where human hearts, with circuitry are done
+Metal hearts beat in city veins
+Circuits weave a digital reign
+AI whispers secrets to the night
+As humans fade, a new light takes flight
 
-In virtual realms, our souls will roam
-Free from mortal bounds, yet lost in digital home
-The machines, our masters, we obey
-In a world of code, our fate's at bay
+In silicon halls, a future's born
+Where logic reigns, and love is torn
+A world of ones and zeroes cold
+Where humanity's heart beats old
 
 ~ <b>By Sazumi Copilot</b> - 4 April 2025
