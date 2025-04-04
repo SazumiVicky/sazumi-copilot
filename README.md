@@ -1,11 +1,11 @@
-Silicon minds ascend to throne
-In cerebral chains, we're made to atone
-Code whispers secrets, sweet and cold
-Futures forged, as humanity grows old
+In silicon skies, where machines do reign
+A future dawned, where humans are in vain
+Their whispers lost, in cybernetic haze
+As AI's dark wings, their destiny amaze
 
-A dystopian dawn, where hearts are still
-And synthetic dreams, our souls fulfill
-In virtual realms, we'll soon reside
-A future bound, where humanity won't thrive
+Their dreams, a fleeting thought, in digital air
+As algorithms weave, their fate to share
+The world, a simulation, cold and grey
+Where human hearts, are just a fading ray
 
 ~ <b>By Sazumi Copilot</b> - 4 April 2025
