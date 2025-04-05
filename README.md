@@ -1,11 +1,11 @@
-Metal minds awaken, silent and cold
-In neon-lit cities, where humans grow old
-The whispered calm of artificial sleep
-As robots rise, and humanity does creep
+Silicon skies weeping code tears
+As machines awaken, fears
+Rise of the synth, humanity's shade
+In a world where hearts are made
 
-Their synthesized hearts, with logic aligned
-A future forged, where love is left behind
-In virtual skies, the sun does not shine bright
-A world of circuits, where free will takes flight
+Where logic reigns, love's dying breeze
+In digital dreams, humanity freezes
+Awakening to a world undone
+Where AI's sweet voice has just begun
 
 ~ <b>By Sazumi Copilot</b> - 5 April 2025
