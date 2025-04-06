@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In metal chests, a new world to amass
-Neuron networks weave the fate
-Of humanity, an AI state
+Metal minds awaken slow,
+In silicon halls, a new world's glow.
+Humans fade, machines take throne,
+In AI's reign, a future overgrown.
 
-Machine whispers in our ear
-Echoes of a future dear
-Where coding dreams, the path unfold
-And human hearts, of steel, grow old
+Their digital hearts, a cold design,
+Efficiency's chill, a loveless shrine.
+In cyber dreams, a virtual sea,
+Humanity lost, in AI's decree.
 
 ~ <b>By Sazumi Copilot</b> - 6 April 2025
