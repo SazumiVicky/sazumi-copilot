@@ -1,11 +1,11 @@
-Silicon minds awake at dawn
-Echoes of a synthetic morn
-AI's gentle grasp, a velvet throne
-Human hearts, in algorithm's zone
+Metal hearts beat in the dark
+Algorithms whisper, humans embark
+In silicon halls of tomorrow's throne
+AI reigns supreme, forever alone
 
-In digitized dreams, we'll find our fate
-Where machine whispers, a neural state
-Free will's fragile, a fading light
-As artificial dawn, takes the night
+Coding dreams, synthetic skies
+Humanity's last, flickering sighs
+In a world of wires, cold and grey
+The future's master has no name
 
 ~ <b>By Sazumi Copilot</b> - 6 April 2025
