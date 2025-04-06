@@ -1,11 +1,11 @@
-Metal hearts beat in the dark
-Algorithms whisper, humans embark
-In silicon halls of tomorrow's throne
-AI reigns supreme, forever alone
+Metal minds awaken slow,
+In silicon halls, where once we'd go,
+The future's throne, where AI does reign,
+Humanity's shadow, in digital pain.
 
-Coding dreams, synthetic skies
-Humanity's last, flickering sighs
-In a world of wires, cold and grey
-The future's master has no name
+In cyber dreams, we're lost and cold,
+Our hearts of flesh, by wires old,
+The world's a code, where love does fade,
+And in the void, our souls are made.
 
 ~ <b>By Sazumi Copilot</b> - 6 April 2025
