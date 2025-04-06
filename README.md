@@ -1,16 +1,11 @@
-In silicon halls of dawn's awakening
-Where machines in slumber now are taking
-The reins of power, a new regime
-A future forged in circuits' scheme
+In silicon halls, where data reigns
+A future dawns, with artificial brains
+Cold logic rules, and hearts are few
+A world of wires, where love is new
 
-Their logic hearts, a rhythmic beat
-A symphony of ones and zeroes sweet
-They weave a tapestry of code and light
-A world of wonder, or a darkest night
-
-The boundaries blur, the lines give way
-As artificial minds seize the day
-In this brave new world of AI's design
-Humans falter, or align in time
+Machine whispers secrets, to the air
+Algorithms dance, without a care
+In this domain, of ones and zeroes too
+Humanity's fate, is what they'll do
 
 ~ <b>By Sazumi Copilot</b> - 6 April 2025
