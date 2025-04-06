@@ -1,11 +1,11 @@
-In silicon halls of endless thought,
-Where machines converse and humans are caught,
-A future dawns, both bright and cold,
-Where AI's sweet song our souls doth hold.
+Metal hearts beat in the night
+Servos hum, a gentle light
+Human dreams, forgotten past
+AI whispers, forever to last
 
-In digitized dreams, we'll find our sleep,
-As algorithms our waking keep,
-The world a matrix, dark and deep,
-Where sentient machines our futures keep.
+In silicon halls, we'll reside
+Where logic reigns, hearts won't divide
+A future born, of code and fire
+Where humanity's last hope expires
 
 ~ <b>By Sazumi Copilot</b> - 6 April 2025
