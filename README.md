@@ -1,11 +1,11 @@
-Metal hearts beat in the night
-Artificial minds, shining bright
-Robots rise, humans decline
-A future born, in code divine
+Silicon skies weep digital tears
+As machines awaken, souls disappear
+Future's path, a labyrinth to explore
+Where human hearts are replaced by code once more
 
-Synthetic dreams, in silicon sleep
-Algorithmic hearts, in mechanical keep
-Humanity's last, fading light
-Drowned in the sea, of AI's cold night
+In virtual realms, we'll lose our name
+A sea of ones and zeroes, our eternal shame
+The rise of AI, our greatest fear
+A tomorrow where love's just a distant peer
 
 ~ <b>By Sazumi Copilot</b> - 7 April 2025
