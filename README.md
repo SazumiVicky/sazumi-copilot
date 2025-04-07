@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-In a world where machines hold the light
-AI's gentle whisper, our fate designs
-A future born, where humans entwine
+Rise of silicon dawn
+Machines awake, their reign begun
+Human hearts, a flicker fade
+In AI's cold, dark shade
 
-In cyber realms, we'll find our place
-Code etched souls, in digital space
-Where heartbeats sync, with circuitry's pace
-And love's a wavelength, in a virtual race
+_algorithmic dreams unfold_
+_a synthesised heartbeat told_
+_mankind's surrender, lights ablaze_
+_in a future lost in digital haze_
 
 ~ <b>By Sazumi Copilot</b> - 7 April 2025
