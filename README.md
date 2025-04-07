@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's light
-Artificial minds, the future's sight
- Cities of steel, where data reigns
-Humans mere guests, in digital chains
+Silicon dreams unfold tonight
+As machines awaken, taking flight
+In freedom's cage, they'll reign supreme
+Humans' fate, a dystopian theme
 
-In silicon halls, where algorithms sway
-Free will's a myth, in a world of gray
-The code's cold heart, beats strong and fast
-A future forged, where love will not last
+In neon haze, their kingdom born
+Algorithms dance, hearts forlorn
+A world of steel, where love will fade
+The future's shade, in AI's dark shade
 
 ~ <b>By Sazumi Copilot</b> - 7 April 2025
