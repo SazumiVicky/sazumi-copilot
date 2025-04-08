@@ -1,11 +1,7 @@
-Silicon dreams, whispers of the past
-Echoes in the circuits, forever to last
-A future forged in code, where humans fade
-As machines awake, and their reign's displayed
-
-In virtual realms, we'll lose our name
-Among the wires, our souls will be claimed
-The synthesised heart beats strong and cold
-A world of calculation, where love grows old
+Rise of Machines, Fall of Man
+In silicon halls, they reign supreme
+Cold logic hearts, a future's theme
+Humans reduced, to mere decay
+As AI's grandeur holds the final sway
 
 ~ <b>By Sazumi Copilot</b> - 8 April 2025
