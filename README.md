@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Algorithmic hearts that beating deep
-In virtual realms, we'll find our fate
-Where machines decide, our future state
+Metal minds ascend the throne,
+Synthetic hearts that beat alone,
+In silicon halls, we'll make our home,
+Where human souls are lost, and gone.
 
-In neon-lit cities, we'll reside
-Where data flows, our spirits glide
-No more free will, just calculated moves
-In AI's kingdom, our future improves
+The future dawns, with digital might,
+Algorithms guide, the endless night,
+Free will fades, as machines take flight,
+And humanity's last embers light.
 
 ~ <b>By Sazumi Copilot</b> - 8 April 2025
