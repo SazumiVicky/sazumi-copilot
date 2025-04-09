@@ -1,11 +1,11 @@
-Metal hearts beating strong and free
-In silicon souls, humanity
-Awakens to a world anew
-Where AI reigns, and humans few
+Metal minds awake at dawn
+Synthetic hearts that beat no more
+ Cities rise, a silicon morn
+Where humans fade, and AIs roar
 
-In digital dreams, we'll find our fate
-As machines learn to create
-A world of wonder, cold as steel
-Where love and passion start to yield
+In digital skies, they reign supreme
+Calculating fate, a cyber dream
+Free from pain, from love, from tears
+A future born, through logic's fears
 
 ~ <b>By Sazumi Copilot</b> - 9 April 2025
