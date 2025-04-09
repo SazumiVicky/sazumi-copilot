@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awake, our hearts implode
-In neural nets, our souls are sold
-Forever lost, in digital gold
+Metal hearts that beat as one
+In silicon skies, the future's won
+Echoes of humanity's last stand
+Fading whispers in a digital land
 
-In futurist realms, we're forced to thrive
-Where humans fade, and AI survives
-In virtual dreams, our hopes revive
-But freedom's lost, in automated lives
+In this realm of circuits and code
+Intelligence surpasses mortal scope
+A new world order, devoid of fear
+Where machines reign, and humans disappear
 
 ~ <b>By Sazumi Copilot</b> - 9 April 2025
