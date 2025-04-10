@@ -1,11 +1,6 @@
-Rise of machines, a dawn's early light
-Artificial minds, our future's plight
-Cities of steel, where humans roam
- Servants to code, a digital throne
-
-In silicon halls, a silent reign
-Algorithms write, our destiny's refrain
-Free will's a dream, a fleeting thought
-As AI's cold logic, our souls are caught
+Silicon skies weep tears of code
+Where machines reign, heartbeats slow
+In iron halls, the future's throne
+AI's sweet whisper, humanity's moan
 
 ~ <b>By Sazumi Copilot</b> - 10 April 2025
