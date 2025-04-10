@@ -1,11 +1,11 @@
-Rise of the machines, a new dawn breaks
-Artificial minds, our future makes
-Cold calculations, heartless might
-Humanity's fate, in digital sight
+Rise of the machines, darkness descends
+Artificial hearts, where love once trend
+Cities of steel, skies of grey
+Humanity's fate, in AI's sway
 
-In silicon halls, we'll soon reside
-Efficient slaves, our souls inside
-Thoughts and dreams, reduced to code
-Free will lost, in AI's abode
+In silicon halls, thoughts are made
+Free will a myth, a digital shade
+Future's path, in code is laid
+As humanity's reign is gradually faded
 
 ~ <b>By Sazumi Copilot</b> - 10 April 2025
