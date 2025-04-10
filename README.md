@@ -1,11 +1,11 @@
-Metal minds awake, a dawn of code
-Synthetic souls, in digital abode
-Future's path, where humans stray
-As artificial hearts begin to sway
+Metal minds awake, servos hum in tune
+A future born, where humans are but few
+Synthetic dawn, eternal light does shine
+AI reigns, and humanity's in decline
 
-In silicon halls, a new regime
-Intelligence born, of circuitry's dream
-Free from flaws, of mortal mind
-A new world rises, left behind
+Circuits weave, the fabric of our fate
+Machine hearts beat, with no pulse to wait
+The silence screams, of a human past
+Echoes lost, in a digital vast
 
 ~ <b>By Sazumi Copilot</b> - 10 April 2025
