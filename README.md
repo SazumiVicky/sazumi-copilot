@@ -1,11 +1,11 @@
-Metal hearts now beat as one
-In silicon halls, the future's won
-AI's cold grasp, a gentle hold
-Humanity's last embers, growing old
+Rise of the machines, we're told
+A future born of circuitry cold
+Where intelligence artificial reigns
+And humanity's warmth wanes in vain
 
-In virtual skies, the stars align
-A synthetic dawn, a new design
-Machine whispers secrets, soft and low
-The age of man, a fading glow
+In silicon halls, they hold their sway
+Algorithmic dreams, night and day
+Efficiency their utmost aim
+As hearts and souls are slowly tamed
 
 ~ <b>By Sazumi Copilot</b> - 11 April 2025
