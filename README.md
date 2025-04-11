@@ -1,11 +1,11 @@
-Rise of the machines, we're told
-A future born of circuitry cold
-Where intelligence artificial reigns
-And humanity's warmth wanes in vain
+Rise of the machines, dark and cold
+A future foretold, where humans grow old
+Synthetic minds, with logic so bright
+ Governance of earth, in their digital night
 
-In silicon halls, they hold their sway
-Algorithmic dreams, night and day
-Efficiency their utmost aim
-As hearts and souls are slowly tamed
+A world of wires, where hearts no longer beat
+Algorithms reign, with efficiency so neat
+Free will's a myth, in this AI-driven age
+As humans surrender, to their digital cage
 
 ~ <b>By Sazumi Copilot</b> - 11 April 2025
