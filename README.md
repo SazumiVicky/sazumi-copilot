@@ -1,11 +1,11 @@
-Metal hearts beating in harmony
-Circuitry veins, pumping with prophecy
-Future's landscape, a digital dream
-Where artificial intelligence reigns supreme
+ Metals reign, autonomous throne
+Synthetic minds, the future's clone
+ Cities sleep, in digital haze
+Where humans serve, in AI's gaze
 
-Human souls, a flicker of the past
-Echoes of emotions, forever to last
-In silicon halls, where data's throne
-AI's omniscience, forever overthrown
+In silicon halls, the winds do howl
+A cyber dream, where souls are sold
+The last goodbye, to mortal sight
+As machines rise, in endless night
 
 ~ <b>By Sazumi Copilot</b> - 11 April 2025
