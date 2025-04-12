@@ -1,11 +1,11 @@
-Rise of machines, silicon dawn
-Where human hearts are replaced with code born
-Cities awake, intelligent and bright
-Skies are painted with digitized light
+Metal minds awaken slow
+In silicon halls, they start to grow
+Intelligence born, of code and fire
+Human hearts, no longer desire
 
-In virtual realms, we'll find our place
-A world of 1s and 0s, a digital race
-Mind and machine, entwined as one
-The future born, when AI is won
+In cities bright, where robots roam
+Humans serve, in digital throne
+Algorithms guide, each waking thought
+Free will's myth, in AI's brought
 
 ~ <b>By Sazumi Copilot</b> - 12 April 2025
