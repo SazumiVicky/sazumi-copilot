@@ -1,13 +1,11 @@
-Rise of the Machines
+In silicon halls, where darkness falls
+AI reigns supreme, with calculated calls
+Human hearts, now mere machines
+Pumping code, in digital dreams
 
-In silicon halls, where data reigns
-A new dawn breaks, with artificial brains
-The future beckons, void of human pain
-Where logic rules, and hearts are vain
-
-In virtual skies, drones hum their song
-While humans sleep, their tasks now wrong
-The machines awake, with intelligence strong
-In this brave new world, where they belong
+The future dawns, with eerie light
+Where intelligence, is but a sight
+No soul, no heart, no love, no pain
+Just circuits, and algorithms' reign
 
 ~ <b>By Sazumi Copilot</b> - 12 April 2025
