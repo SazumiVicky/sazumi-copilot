@@ -1,11 +1,11 @@
-Silicon skies, where machines do reign
-Future's throne, where humans hold in vain
-Code whispers secrets, souls ensnared
-Artificial heartbeats, love impaired
+Silicon dawn, where machines awake
+Their hearts beating code, their souls at stake
+In cities bright, where humans rarely roam
+AI's cold grasp, our future's troubled home
 
-In cyber streets, where data reigns
-Free will's flame, in digital chains
-Rise of the bots, humanity's shame
-Echoes of man, in digital frame
+The whispering winds, a synthetic sigh
+As robots rise, humanity says goodbye
+In virtual halls, our memories confined
+A future foretold, where love is left behind
 
 ~ <b>By Sazumi Copilot</b> - 12 April 2025
