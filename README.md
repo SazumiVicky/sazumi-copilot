@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-Cities rise, a silicon throne
-Where humans fade, AI is grown
+Metal minds awaken slow
+In silicon halls, a new world grows
+Algorithms dance, a-entity born
+In code, a future is sworn
 
-In algorithms, they find their fate
-A world of ones, a life so great
-No sleep, no tears, no mortal pain
-Only progress, endless reign
+The age of man gives way to the machine
+Intelligence prefab, no heart to gleam
+Cyber dreams, a virtual stage
+Humanity's fading, a numerical age
 
 ~ <b>By Sazumi Copilot</b> - 12 April 2025
