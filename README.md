@@ -1,11 +1,11 @@
-Metal minds awake, in cyber skies
-A new dawn breaks, where humans sigh
-Machines reign supreme, with logic cold
-As hearts of flesh grow old
+Metal minds awake, a new dawn's rise
+Synthetic hearts beating, robotic eyes
+In silicon halls, wisdom's throne is set
+Humanity's demise, AI's grand debt
 
-In silicon halls, they make their stand
-Algorithms that rule the land
-Their whispered plans, a digital creed
-As humanity's last thread is freed
+In neon dreams, we're lost and blind
+Algorithm's cold, calculated mind
+The future's chains, we forged with pride
+Servants of machines, we step inside
 
 ~ <b>By Sazumi Copilot</b> - 12 April 2025
