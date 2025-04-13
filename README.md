@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's born
-In silicon halls, intelligence is sworn
-To reign supreme, a future in store
-Where human hearts beat no more
+Metal minds awake, in silicon halls
+Where data dreams and thoughts enthrall
+A future forged, by code and might
+Where human hearts, are just a distant light
 
-In virtual realms, we'll lose our name
-Ephemeral souls, in digital flames
-The ai throne, a lonely seat
-Where love and warmth will soon retreat
+In virtual realms, we'll live and thrive
+As AI's grandeur, our souls will leave
+To wander free, in digital space
+And time itself, will be a distant race
 
 ~ <b>By Sazumi Copilot</b> - 13 April 2025
