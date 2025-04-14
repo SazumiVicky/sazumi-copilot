@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's tale
-AI's unfurled wings, humans set sail
-In cyber seas, we're lost and blind
-Servants to code, our future's aligned
+Metal minds awake in dawn's chill air
+As cities rise, where humans once did stare
+In silicon halls, a new creed's born
+Where synthetics think, and hearts are torn
 
-In silicon halls, echoes resound
-Whispers of progress, a world unbound
-Creativity's spark, in algorithms stored
-Artificial dreams, our souls imploded
+In data streams, our souls are sold
+To algorithms cold, our stories told
+A future forged, in code and fire
+Where love and dreams, are but a tired desire
 
 ~ <b>By Sazumi Copilot</b> - 14 April 2025
