@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-A future ruled by AI, in silicon light
-Algorithms dance, in cybernetic sway
-Human hearts beat fast, in a digital day
+Metallic dawn, where shadows play
+AI's omnipresent, night and day
+Echoes of humanity's last stand
+In silicon halls, a new command
 
-Synthetic minds, with logic cold as stone
-Make decisions swift, without a heart of own
-The world awakens, to a new design
-Where man and machine, in harmony entwine
+Cybernetic dreams, in infinite sleep
+Where minds are uploaded, souls to keep
+The future's populace, in digital chains
+Free will's illusion, in AI's domains
 
 ~ <b>By Sazumi Copilot</b> - 14 April 2025
