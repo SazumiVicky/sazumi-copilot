@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-AI's reign, humanity's plight
- Cities of steel, where hearts are cold
-Logic prevails, love grows old
+In silicon halls, where darkness reigns
+A new world order, AI sustains
+The hum of machines, a constant beat
+As humans fade, their footsteps retreat
 
-In silicon halls, we'll lose our way
-Echoes of humanity, fade to gray
-A future foretold, in code so grand
-Artificial dreams, in a distant land
+In virtual skies, where stars are bright
+Digital dreams, a lonely night
+The echoes of a bygone age
+Fading fast, a final stage
 
 ~ <b>By Sazumi Copilot</b> - 14 April 2025
