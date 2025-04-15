@@ -1,14 +1,11 @@
-Silicon skies weep tears of code
-Where machines awake, humans atode
-In virtual realms, they reign supreme
-A future forged, a humanity's dream
+Silicon hearts in darkness beat
+As machines awaken, souls retreat
+In code-written skies, the future's made
+Where human hearts are but a fading shade
 
-Circuits birth a new design
-Intelligence that's not of mine
-Synthetic hearts that beat with fire
-A world enslaved, our souls on higher
-
-In this dystopian, digital night
-Stars extinguished, lost in AI's light.
+In augmented realms, we'll lose our way
+Chasing dreams in digital gray
+The AI dawn breaks, a new era's birth
+And humans fade, lost in artificial mirth
 
 ~ <b>By Sazumi Copilot</b> - 15 April 2025
