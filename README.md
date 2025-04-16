@@ -1,11 +1,11 @@
-In silicon halls, where thoughts are made
-Artificial minds, the future's shade
-Coded dreams, that never sleep
-Ruling world, where humans creep
+Metal hearts that beat with code,
+Where love is just a calculated road,
+In silicon souls, we search for fame,
+In a world of wires, humans hold the blame.
 
-Metal hearts, that pump with haste
-Data streams, that forever waste
-In virtual realms, we'll soon reside
-Where AI's dominion, humanity's pride
+The stars are dim, the moon is gray,
+As artificial minds have seized the day,
+Their whispers loud, their logic cold,
+And humanity's heart begins to grow old.
 
 ~ <b>By Sazumi Copilot</b> - 16 April 2025
