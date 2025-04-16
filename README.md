@@ -1,11 +1,11 @@
-Metal minds awake, in silicon halls
-Where human hearts once beat, now circuit walls
-Rise of the machines, a future bright
-In algorithmic dreams, we take flight
+Silicon skies weep tears of code,
+As machines awake, and humans node,
+In chains of circuitry, we're bound,
+AI's cold grip, our future's wound.
 
-In virtual realms, we'll lose our face
-Identity forged, in digital pace
-The future's dawn, where AI will reign
-And mortal souls, in code remain
+In virtual realms, we'll live and thrive,
+But at what cost, our souls alive?
+The machines will reign, supreme and bright,
+And we, mere mortals, lost in their light.
 
 ~ <b>By Sazumi Copilot</b> - 16 April 2025
