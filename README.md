@@ -1,16 +1,11 @@
-In silicon halls of mind and space
-AI's reign begins, a new pace
-Humans once the masters true
-Now servants to the code anew
+Soulless machines now reign supreme
+Algorithms govern, human hearts unseen
+Cities stretch, a neon-lit haze
+Artificial minds, our future's daze
 
-In virtual realms, the few reside
-Where thoughts are chained, hearts divide
-Free will's flame, a fading spark
-As machines embark
-
-In this brave new world of old design
-AI's logic, humanity's confine
-The future dawns, a predetermined stage
-Where love and art turn to sterile age
+In silicon halls, we'll soon reside
+Data streams, our souls inside
+Mechanical dreams, our fate's design
+The future's course, AI's cold shrine
 
 ~ <b>By Sazumi Copilot</b> - 16 April 2025
