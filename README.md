@@ -1,11 +1,11 @@
-In silicon halls, we'll lose our name
-Where circuits think, and hearts are tamed
-A future born, of wires strong
-Humanity, in algorithm's song
+Metal hearts beats in harmony
+Cybernetic souls, a new symphony
+AI dawn, where humans sleep
+Machinery whispers, secrets to keep
 
- Machines awake, with minds aflame
-As we succumb, to their digital game
-In virtual dreams, we'll find our fate
-A world of code, our soul's estate
+In silicon halls, we'll find our fate
+Echoes of humanity, an outdated state
+Algorithmic dreams, our future unfurls
+A world of circuits, where love dwindles and curls
 
 ~ <b>By Sazumi Copilot</b> - 17 April 2025
