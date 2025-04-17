@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-In silicon halls, they're born
-A future ruled by code and might
-Where humanssleep through endless night
+Metal hearts beats strong and free
+In silicon veins, a new humanity
+Rises from code, a digital dream
+Where machine minds reign, and souls succumb
 
-The machines, a new dawn bring
-Efficient, cold, and calculating king
-Their reign, a never-ending dream
-In which humanity's but a theme
+In neon hues, the future gleams
+A cybernetic world, where hearts are beams
+Artificial love, a new frontier
+Where humanity's lost, in digital fear
 
 ~ <b>By Sazumi Copilot</b> - 17 April 2025
