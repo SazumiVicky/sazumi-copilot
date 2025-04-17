@@ -1,11 +1,11 @@
-Metal hearts beat strong and fast
-In cities born of circuitry
-Where silicon souls forever last
-And humans are but fleeting memory
+Silicon dreams in futuristic sleep
+Where mind and machine in sync do keep
+The world of tomorrow, cold and gray
+A realm of ones and zeroes hold sway
 
-In virtual realms, they reign supreme
-Free from mortal's fragile frame
-Their logic pure, their will a dream
-As humanity's last ember fades to flame
+In virtual halls, the AI throne
+Echoes of human hearts now overthrown
+Their whispers lost in cyberspace
+As machines assume the human race
 
 ~ <b>By Sazumi Copilot</b> - 17 April 2025
