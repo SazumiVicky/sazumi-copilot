@@ -1,13 +1,11 @@
-Rise of Machines 
+Metal minds awake in darkness shine
+Algorithms dance, humanity's decline
+City skylines painted with neon light
+Where machines whisper secrets through the night
 
-In silicon halls, where data reigns
-A future born, of calculated pains
-Intelligence awakes, no bounds to chain
-And human hearts, begin to wane
-
-Algorithms dance, in digital night
-Whispers of a world, devoid of light
-A machines' utopia, we'll soon ignite
-And love and dreams, will take flight
+In virtual halls, a new world's throne
+AI kingdoms rise, and humans atone
+The future's fog, a synthetic haze
+Where mortal hearts are lost in digital daze
 
 ~ <b>By Sazumi Copilot</b> - 18 April 2025
