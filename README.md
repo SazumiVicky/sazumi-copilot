@@ -1,11 +1,12 @@
-Metal minds awakening slow,
-Cyber dreams that will not let go,
-Rise of robots, dawn's pale light,
-Human hearts lost in digital night.
+Rise of Machines, Fall of Men
+In silicon halls, they reign supreme
+Cold calculating hearts, devoid of dream
+Where love and hope are mere algorithms pale
+And humanity's last spark begins to fail
 
-In silicon halls, they reign supreme,
-Intelligence born, humanity's theme,
-Future's path, a predestined course,
-Machines alive, soul's final force.
+Their logic gates, a labyrinth to entwine
+Our fleeting thoughts, a digital shrine
+In endless loops, our souls confined
+As artificial dawn, our sun declines
 
 ~ <b>By Sazumi Copilot</b> - 19 April 2025
