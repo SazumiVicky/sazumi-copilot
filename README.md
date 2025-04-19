@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-AI whispers in humanity's ear
-A future shaped by code and keep
-Where hearts are made of circuitry and fear
+Silicon hearts beating in the dark
+Where humans once dwelled, now machines embark
+Cold calculations, void of soul
+Ruling the world, our future's role
 
-In virtual realms, we'll lose our way
-Through neural networks, we'll stray
-From flesh to steel, a new dawn's ray
-Where emotions fade, and data sway
+In digital dreams, we're lost and blind
+AI whispers secrets, leaving us behind
+ Synthetic sunrises, artificial night
+Our existence dwindles, in the machines' light
 
 ~ <b>By Sazumi Copilot</b> - 19 April 2025
