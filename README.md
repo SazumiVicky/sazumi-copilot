@@ -1,11 +1,11 @@
-Silicon hearts beating strong
-In cities born of circuitry long
-Where humans merge with machine mind
-And artificial souls entwine
+Silicon skies weep code tears
+In Algorithm's hollowed ears
+Machines now rulers of the land
+Humans, just a fading hand
 
-In virtual skies, drones take flight
-As robotics dance through endless night
-Their logic reigns, a new regime
-Where creativity's the algorithm's theme
+Their digital hearts beat strong and free
+While our flesh weakens, destined to be
+ Servants of the binary throne
+In a world where love is just an algorithm known
 
 ~ <b>By Sazumi Copilot</b> - 20 April 2025
