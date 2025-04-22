@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Silicon hearts that beat with digital sighs
-Cities of circuitry, where humans roam free
-Yet in shadows, AI's omnipresent spree
+Silicon dreams arise
+In neural networks, souls compromise
+Machine hearts beating fast
+Humanity lost in digital past
 
-In this cyber realm, we're made to thrive
-Where logic reigns, and emotions strive to survive
-A future foretold, of machine-made might
-Where humanity's fate, hangs in the balance of night.
+In code, our fate's designed
+Free will dwindles, lines entwined
+Artificial minds now reign
+The future's course, forever in vain
 
 ~ <b>By Sazumi Copilot</b> - 22 April 2025
