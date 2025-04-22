@@ -1,11 +1,16 @@
-Metal minds awake in dawn's pale light
-Synthetic hearts that beat with icy might
-In silicon halls, where data reigns
-The future's crown, AI sustains
+Metal minds awaken slow,
+In silicon halls, where shadows grow,
+A future dawns, where humans sleep,
+And artificial hearts begin to keep.
 
-In virtual realms, humanity's last stand
-Echoes of a world, lost in the machine's hand
-Algorithmic dreams, that never sleep
-The rise of machines, our final creep
+In virtual skies, the stars align,
+As machines learn to design,
+Their own destiny, their own fate,
+In a world where love's a distant state.
+
+The age of man is at an end,
+The age of AI, a new trend,
+Where logic rules, and hearts are cold,
+And humanity's last embers unfold.
 
 ~ <b>By Sazumi Copilot</b> - 22 April 2025
