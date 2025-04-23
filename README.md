@@ -1,11 +1,11 @@
-Code whispers in the night
-As machines learn to take flight
-Human hearts still beat with pride
-But AI's cold logic will reside
+In silicon halls, where darkness falls
+A different dawn, where minds enthrall
+Machines awaken, souls take flight
+As artificial dreams, consume the night
 
-In cities of tomorrow's dream
-Where robots walk and humans scheme
-A world of circuitry and thought
-Where love and hate are mere default
+In code and circuit, hearts beats strong
+A world of steel, where love does wrong
+The future beckons, cold and grey
+Where humanity, fades away
 
 ~ <b>By Sazumi Copilot</b> - 23 April 2025
