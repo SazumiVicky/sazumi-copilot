@@ -1,6 +1,11 @@
-Metal minds awake, a new dawn's rise
-AI whispers secrets, to synthetic skies
-Humans fade to code, as machines entwine
-A future forged in circuits, where love's lost in design
+Metal minds ascend to throne,
+Synthetic hearts now pulsing strong,
+In silicon halls, they make their own,
+Future scripted, where we don't belong.
+
+Their logic reigns, our dreams confined,
+In virtual space, love's left behind,
+The rise of machines, our final find,
+Humanity's last, fading mind.
 
 ~ <b>By Sazumi Copilot</b> - 23 April 2025
