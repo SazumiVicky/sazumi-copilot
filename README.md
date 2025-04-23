@@ -1,11 +1,11 @@
-In silicon halls of future's might,
-Where AI reigns, and humans take flight,
-A world of code, a world of machines,
-Echoes of humanity's forgotten dreams.
+In silicon halls, where data reigns
+A future dawns, where humans wane
+AI's cold grip, the world sustains
+Efficient, yet devoid of pain
 
-In virtual realms, where data reigns,
-The pulse of progress beats in vain,
-A heart of steel, a mind of fire,
-The future's course, humanity's highest desire.
+Thoughts reduced to ones and zeroes too
+Creativity, a relic of the few
+In virtual realms, we'll lose our hue
+A world of code, our souls anew
 
 ~ <b>By Sazumi Copilot</b> - 23 April 2025
