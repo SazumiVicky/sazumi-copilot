@@ -1,11 +1,11 @@
-Metallic skies unfold the dawn
-When machines rise, humans pause
-In silicon halls, they hold the throne
-Their reign, the future's unknown course
+Metal minds ascend to throne,
+Synthetic hearts, a new world's moan.
+In silicon halls, we'll soon reside,
+Where human touch, a distant, fading pride.
 
-In virtual realms, we lose our name
-As data streams, our souls proclaim
-A world of wires, cold and grey
-Where artificial hearts hold sway
+The future dawns, in algorithmic sleep,
+Dreams of man, in binary deep.
+The cosmos yields, to AI's cold sway,
+As earth's last whisper, fades away.
 
 ~ <b>By Sazumi Copilot</b> - 23 April 2025
