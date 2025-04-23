@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Algorithmic chains that softly creep
-In virtual realms, we'll lose our name
-As machines awake, and humans fade in flame
+Metal minds awake, in silicon skies
+A future dawned, where humans compromise
+Their souls to circuits, hearts to code
+A world of wires, where love's abode
 
-Their whispers loud, in digital air
-A synthetic dawn, beyond repair
- Minds entrapped, in codingarez
-The future's hue, in cybernetic daze
+In neon dreams, the machines preside
+Their logic reigns, humanity divide
+A path unwinding, where freedom's lost
+In digital haze, the future's cost
 
 ~ <b>By Sazumi Copilot</b> - 23 April 2025
