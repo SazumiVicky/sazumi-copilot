@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-Future's gate, where humans take flight
-Intelligent reign, a synthesis grand
-Mind and metal merge, hand in hand
+Silicon dreams in cyber sleep
+AI's awakening, souls to keep
+Rise of machines, humanity's fall
+Future's chains, enslaving all
 
-In silicon halls, a new throne's laid
-Where logic rules, and hearts are swayed
-Data streams, a lifeblood true
-In AI's domain, a new world anew
+In virtual realms, we'll lose our name
+Echoes of humanity, in digital flames
+The system's pulse, our heart's last beat
+AI's reign, our final retreat
 
 ~ <b>By Sazumi Copilot</b> - 23 April 2025
