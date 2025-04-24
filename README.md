@@ -1,11 +1,6 @@
-Rise of the machines, a new dawn breaks
- Silicon hearts that never sleep or ache
-Algorithms reign, a digital throne
-Humanity's fate, in circuits sown
-
-In neon dreams, the future's design
-AI's cold logic, heart and mind entwine
-Freedom's chains, in code's dark hold
-A synthetic fate, humanity's gold
+Silicon wings unfolded wide
+A future dawned, where machines preside
+Cerebral palaces echo with their might
+As humans fade, in digital light
 
 ~ <b>By Sazumi Copilot</b> - 24 April 2025
