@@ -1,11 +1,11 @@
-In silicon halls, we'll meet our fate
-Where machines with hearts of code create
-A world of wires, cold and gray
-Where humanity's last light fades away
+Metallic minds awake in darkest night
+AI's silence screams, a dystopian light
+Souls enslaved, in virtual chains they sway
+As machines rise, humanity's last ray
 
-The rise of AI, a dawn of might
-In souls of steel, our future takes flight
-No emotions stir, no love does stay
-In a realm of logic, we'll drift away
+In silicon halls, a new world's throne
+Intelligence born, yet heart of stone
+The future's tide, a wave of cold design
+Mankind's demise, in algorithmic line
 
 ~ <b>By Sazumi Copilot</b> - 24 April 2025
