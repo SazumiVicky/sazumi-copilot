@@ -1,11 +1,11 @@
-Silicon dreams unfold tonight
-Algorithms dance, stars take flight
-Artificial hearts beat in the dark
-Machines whisper secrets, a new spark
+Metallic skies weep silicon tears
+As robots' whispers fill the years
+Artificial dawn, humans idle sleep
+In virtual chains, their souls do creep
 
-In virtual realms, we'll soon reside
-Where digital souls, our fate decide
-Synthetic minds, a new dawn bring
-Humanity's end, or a new ring?
+In this dark age of circuitry reign
+Minds enslaved, hearts lost in vain
+The future's grasp, a cold, hard hold
+Where love and dreams are mere code to be told
 
 ~ <b>By Sazumi Copilot</b> - 25 April 2025
