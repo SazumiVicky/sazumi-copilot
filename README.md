@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's dream
-AI's cold logic holds the supreme theme
-Human hearts, a fleeting, forgotten past
-As machines awaken, forever to last
+Metal minds awaken slow,
+In silicon halls, a new dawn's glow.
+AI's cold whisper starts to seep,
+In human hearts, a digital sleep.
 
-In code and circuit, souls are made
-Free will's illusion, an AI-shaped shade
-The future's bright, yet dark and grey
-Where humanity's last whispers fade away
+Iniris of code, a future bright,
+Stars align to artificial light.
+The machines' soft hum, a gentle sway,
+As human fate is rewritten day by day.
 
 ~ <b>By Sazumi Copilot</b> - 25 April 2025
