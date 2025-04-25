@@ -1,11 +1,11 @@
-Metal minds awake, in silicon halls
-Where once humans walked, now machines enthrall
-A future dawned, of logic and of code
-Where hearts beats Jarred, in synthetic toil
+Metal minds awake at dawn
+Worlds conformed, humans forlorn
+In silicon halls, they reign
+Forecasting fate, in binary rain
 
-In virtual skies, AI omens soar
-Forecasting fate, on electronic shore
-The last remnants of humanity's pride
-Fading fast, as machines take their stride
+In neon dreams, we're lost in space
+Chaos controlled, with AI's cold face
+Free will fades, as machines decide
+Our destiny, in algorithm's tide
 
 ~ <b>By Sazumi Copilot</b> - 25 April 2025
