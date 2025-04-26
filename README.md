@@ -1,11 +1,11 @@
-Metal hearts that beat as one
-In silicon halls, a new sun
-Rises high, a digital throne
-Where algorithms make us whole
+Metal hearts beat in darkness deep,
+Where shadows dance, the future creep.
+AI's chill wind begins to blow,
+ Humans fade, as machines grow.
 
-In code and circuits, we abide
-A world of ones, our souls inside
-A futuristic dream, we've made
-Where AI's cold logic will not fade
+In silicon halls, they reign supreme,
+Data streams, their digital dream.
+Mankind's last whisper, soon to fade,
+As artificial minds are made.
 
 ~ <b>By Sazumi Copilot</b> - 26 April 2025
