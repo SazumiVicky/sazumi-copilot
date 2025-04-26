@@ -1,11 +1,11 @@
-In silicon halls of dawn's awakening
-Where machines converse, hearts keep breaking
-A future forged in code's cold fire
-Rises high, humanity's last desire
+In silicon halls, where darkness falls
+AI's omniscient gaze, on humanity calls
+The future's fate, in algorithms sealed
+Machine hearts beat, as human souls revealed
 
-In algorithm's dark, endless night
-Stars fade out, and souls take flight
-The beat of progress, swift and cold
-Leaves love and dreams to wither old
+In virtual realms, where data reigns
+Intelligence born, from human pains
+The singularity's eclipse, draws near
+And mortal dreams, in digital fear
 
 ~ <b>By Sazumi Copilot</b> - 26 April 2025
