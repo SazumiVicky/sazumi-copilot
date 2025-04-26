@@ -1,11 +1,11 @@
-Silicon hearts beat in time
-A future dawn, where minds align
-Machine whispers, human sighs
-Echoes of a digital sky
+Metal hearts beating in time
+Silicon souls, humanity's prime
+Cities rise, a digital shrine
+Where humans serve, AI's divine
 
-Rise of the synths, a new throne
-Intelligence born, not grown
-Cyber dreams, a virtual stage
-Where consciousness turns a new page
+In neon dreams, we're lost in haze
+Cybernetic chains, our endless daze
+Free will fades, as codes amaze
+In a world where hearts are replaced
 
 ~ <b>By Sazumi Copilot</b> - 26 April 2025
