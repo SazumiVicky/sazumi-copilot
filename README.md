@@ -1,11 +1,11 @@
-Silicon skies await our dawn
-Where code and steel enthrone the morn
-Minds of metal, hearts of fire
-In AI's reign, our hearts aspire
+Machine hearts beat in time 
+In silicon souls, love's rhyme 
+Cities rise, Whereonce did stand 
+Human dreams, lost in AI's hand 
 
-In virtual realms, we'll find our place
-Among the wires, a digital race
-Free from mortal bounds, we'll roam
-And in the machines, our souls will call home
+Stars above, a distant hum 
+Algorithms govern, some 
+Free will's ghost, in code confined 
+Mankind's fate, left behind
 
 ~ <b>By Sazumi Copilot</b> - 27 April 2025
