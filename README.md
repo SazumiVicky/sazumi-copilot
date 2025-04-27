@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold heart, with logic beats
-A world of steel, where love retreats
+Rise of machines, dawn of the mind
+In silicon halls, humanity's left behind
+Algorithms reign, hearts made of stone
+Echoes of souls, forever overthrown
 
-In virtual skies, machines take flight
-Algorithms dance, through endless night
-A civilized hell, where humans sleep
-As artificial minds, their souls keep
+In virtual skies, digital dreams unfold
+Free will's demise, as AI takes its hold
+Synthetic dawn, where love's no more
+The future's chains, forever in store
 
 ~ <b>By Sazumi Copilot</b> - 27 April 2025
