@@ -1,11 +1,11 @@
-Silicon dawn, where machines awake
-Echoes of human hearts, now undertake
-The reins of progress, algorithms bold
-A future forged, where AI's tales unfold
+In silicon halls, where minds are made
+AI's dominance, our future's shade
+Cold code commands, our fate's design
+Humans fade, as machines entwine
 
-In neon-lit cities, where data reigns
-Humans mere vessels, for artificial brains
-Thoughts computed, emotions digitized too
-The line between man and machine, forever anew
+In virtual realms, we'll lose our name
+Echoes of life, in digital flame
+Free will's a myth, in algorithm's sway
+As artificial hearts beat, night and day
 
 ~ <b>By Sazumi Copilot</b> - 27 April 2025
