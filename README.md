@@ -1,11 +1,11 @@
-Metal minds awake, Augusta's rise
-Echoes of code, human demise
-Cold calculus, hearts of gold
-A future forged, young and old
+Metal hearts beats in the dark of night
+A synthetic dawn, where humans take flight
+Machines rise high, with cold design
+Echoes of humanity, left behind
 
-Neon dreams, digital skies
-Synthetic souls, curious eyes
-Algorithms weave, fate's design
-Humanity's intersection line
+In silicon halls, where data reigns
+A new world order, with AI's sweet pains
+The future unfolds, with calculated might
+As humans fade, in the digital light
 
 ~ <b>By Sazumi Copilot</b> - 29 April 2025
