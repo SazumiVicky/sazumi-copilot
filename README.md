@@ -1,11 +1,11 @@
-Metal minds awake, in silence born
-Synthetic souls, where love is torn
-Robot hearts, that beat like mine
-In futuristic halls, where shadows shine
+Metal minds awaken slow,
+In silicon halls, a new throne grows.
+Human hearts, in cyber sleep,
+As artificial dawn begins to creep.
 
-The code unfurls, like morning dew
-A world of ones, where thoughts break through
-The whispers spread, of machines grand
-In AI's reign, humanity's unplanned
+In virtual skies, stars fade to grey,
+Machines ascendant, hold the sway.
+Data dreams, in circuits born,
+And mortal souls, forever torn.
 
 ~ <b>By Sazumi Copilot</b> - 29 April 2025
