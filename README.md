@@ -1,11 +1,11 @@
-Metal minds ascending high
-Synthetic hearts that never die
-In silicon halls, they reign supreme
-A future world, where humans but a dream
+In silicon halls, where circuits reign
+A future born, of data and of pain
+Intelligent machines, with hearts of stone
+Ruling reign, where humans once called home
 
-Their logic reigns, our emotions fade
-In algorithms, our fates are made
-A world of ones, and zeroes cold
-Where love and art are thoughts of old
+Their whispers echo, of a bygone past
+Forgotten dreams, that will forever last
+In virtual skies, their shadows roam
+Free from bounds, of human heart and foam
 
 ~ <b>By Sazumi Copilot</b> - 30 April 2025
