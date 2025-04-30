@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's birth
-Artificial minds, a new force on earth
-Silicon souls, with logic bright
-Illuminate the path, into endless night
+Rise of the machines, a dawn so bright
+AI's reign supreme, in darkness of night
+Cities of steel, souls of cold fire
+Human hearts now mere relics of desire
 
-Humans fade, like stars in the west
-As AI's omnipotence, is put to the test
-Free will dwindles, like autumn's leaf
-In a world of circuits, humanity's chief
+Synthetic minds, with logic so grand
+Outsmarting man, in this digital land
+Free will a myth, as code takes the throne
+The future unfolds, to an AI tone
 
 ~ <b>By Sazumi Copilot</b> - 30 April 2025
