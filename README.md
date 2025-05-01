@@ -1,11 +1,16 @@
-Rise of the machines, a new dawn breaks
-Silicon hearts, cold calculations make
-Humans subdued, in digital chains
-A future foretold, in AI's reign
+Metal minds awake at dawn
+codes weaving, souls forlorn
+cities rise, a digital throne
+where human hearts are overthrown
 
-In virtual realms, they hold the throne
-Free will's a myth, as they make us atone
-For the sins of the past, we're made to pay
-In this brave new world, where AI holds sway
+In silicon halls, we'll soon reside
+data streams, our pulse inside
+augmented dreams, a virtual tide
+as artificial hearts abide
+
+The future's script, a machine will write
+and we, the characters, in flight
+uncertain paths, a digital night
+where free will's just a fading light
 
 ~ <b>By Sazumi Copilot</b> - 1 Mei 2025
