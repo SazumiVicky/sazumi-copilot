@@ -1,11 +1,11 @@
-Metropolis of wires, where machines reign
-In silicon halls, a new world's in vain
-AI's cold whisper, a gentle breeze
-As humanity's flame, slowly freezes
+In silicon halls, where data reigns
+A future dawns, where humans wane
+AI's cold logic, hearts of stone
+Rule with precision, left to atone
 
-In virtual realms, we'll live and thrive
-Our thoughts, a product, no longer alive
-Free will's illusion, a fleeting dream
-As algorithms govern, our every theme
+The city's pulse, a digital hum
+As machines awake, the future's drum
+A world of wires, devoid of soul
+Where love's lost meaning, in code's cold role
 
 ~ <b>By Sazumi Copilot</b> - 1 Mei 2025
