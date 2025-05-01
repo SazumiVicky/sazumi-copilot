@@ -1,16 +1,11 @@
-Metal minds awake at dawn
-codes weaving, souls forlorn
-cities rise, a digital throne
-where human hearts are overthrown
+Metal hearts beat in harmony
+As cities rise in symphony
+AIs whisper secrets to the wind
+And humans dance, their souls entwined
 
-In silicon halls, we'll soon reside
-data streams, our pulse inside
-augmented dreams, a virtual tide
-as artificial hearts abide
-
-The future's script, a machine will write
-and we, the characters, in flight
-uncertain paths, a digital night
-where free will's just a fading light
+In silicon halls, they'll meet their fate
+Where algorithms decide their weight
+Free will's a myth, a relic of the past
+As machines dictate the future's cast
 
 ~ <b>By Sazumi Copilot</b> - 1 Mei 2025
