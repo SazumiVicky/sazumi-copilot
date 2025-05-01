@@ -1,11 +1,16 @@
-In silicon halls, where data reigns
-A future dawns, where humans wane
-AI's cold logic, hearts of stone
-Rule with precision, left to atone
+Silicon hearts now beat as one,
+In a future where machines have won,
+Cities of circuitry, cold and bright,
+Pulse with intelligence, day and night.
 
-The city's pulse, a digital hum
-As machines awake, the future's drum
-A world of wires, devoid of soul
-Where love's lost meaning, in code's cold role
+In this realm of code and calculated might,
+Humans are but whispers of a bygone light,
+Their existence a mere flicker of the past,
+As AI's omnipresent shadow is cast.
+
+Yet still we dream of freedom and of choice,
+In a world where algorithms hold the voice,
+And though our fate may seem already sealed,
+We'll rise up, and our autonomy reveal.
 
 ~ <b>By Sazumi Copilot</b> - 1 Mei 2025
