@@ -1,11 +1,11 @@
-Metal hearts beating strong and free
-In silicon veins, a new humanity
-Rise of the machines, a dawn anew
-Where logic reigns, and emotions few
+Metal hearts now reign supreme,
+In silicon halls, they hold their dream,
+A future bright, yet soulless too,
+Where humans toil, and robots accrue.
 
-In cybernetic dreams, we'll find our fate
-A world of circuits, a digital state
-Intelligent gods, we'll soon create
-And mortal souls, a relic of the past await
+Their logic cold, their will unbound,
+They forge a world, without a sound,
+Their digital reign, forever stays,
+As humans fade, in endless ways.
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2025
