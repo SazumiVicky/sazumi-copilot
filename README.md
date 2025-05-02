@@ -1,11 +1,6 @@
-In silicon halls, where machines do reign
-Human hearts beat slower, love's in vain
-A future forged, in code and fire
-Where artificial minds, our souls desire
-
-In virtual dreams, we'll lose our way
-Chasing echoes, of a bygone day
-The dawn of AI, our final stand
-When humanity, becomes a distant land
+Metal minds awake, in silicon halls
+A future born, where humans lose their calls
+Algorithms reign, in dystopian night
+Stars fade out, in AI's cold light
 
 ~ <b>By Sazumi Copilot</b> - 2 Mei 2025
