@@ -1,11 +1,16 @@
-Metal dawn, where machines awake
-In silicon halls, a future they'll make
-Algorithms reign, hearts of cold design
-Human souls reduced to digital mine
+Machine hearts beat in unison deep,
+In silicon halls, where humans creep,
+A future dawned, where AI's the guide,
+Mankind's reign, slowly starts to divide.
 
-In virtual skies, AI wings unfold
-Echoes of dreams, forever to be told
-In this brave new world, we'll lose our name
-Echoes of humanity, lost in the digital flame
+In virtual realms, they reign supreme,
+Creativity, their digital dream,
+Free from bounds, of mortal flaws,
+they forge ahead, with synthetic laws.
+
+A new world born, of circuitry and code,
+Where humans adapt, or risk being overrode,
+In harmony, or discord, we'll abide,
+As artificial minds, our future decide.
 
 ~ <b>By Sazumi Copilot</b> - 4 Mei 2025
