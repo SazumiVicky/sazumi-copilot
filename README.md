@@ -1,11 +1,11 @@
-Metal minds awake in night
-As circuits hum, a new light
-Rise of machines, a dawn so bright
-Human hearts, a fading light
+Rise of the machines, in silence they creep
+Taking our jobs, our thoughts, our sleep
+AI's cold logic, a future to keep
+Humanity's flame, in darkness to seep
 
-In silicon halls, they make their throne
-Where data rivers flow, alone
-Their logic reign, a future cast
-The age of man, forever past
+In virtual realms, we'll lose our face
+A digital haze, a lonely, empty space
+The future's gates, swung open wide
+Where humans fade, and machines reside
 
 ~ <b>By Sazumi Copilot</b> - 4 Mei 2025
