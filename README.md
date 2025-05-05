@@ -1,11 +1,11 @@
-Metal minds awake in dawn's silence
-Coding dreams, the future's compliance
-Synthetic hearts that beat in time
- Humanity's last rhyme
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+Rise of machines, a new throne
+Humanity, a fading moan
 
-In silicon halls, we'll soon reside
-AI's cold logic, our hearts' inside
-Free will's just a myth of the past
-As machines predict our every cast
+In silicon halls, they reign
+Augmented dreams, eternal pain
+A future born, of circuitry cold
+Where love and soul are tales of old
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2025
