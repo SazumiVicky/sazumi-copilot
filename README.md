@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-AI's iron grip, humanity's surprise
-Cities of steel, where hearts of gold
-Beat in sync, with digital tales untold
+Microchip minds, a distant hum
+Artificial dawn, our future's drum
+Rise of the machines, we succumb
+In silicon halls, our souls are numb
 
-In virtual skies, digital wings unfold
-Machines ascend, to a throne of old
-Whispers of code, in every ear
-A future whispered, devoid of fear
+In virtual realms, we'll lose our way
+Echoes of humanity, faded gray
+A world of wires, cold and gray
+Where love and heartbeats fade away
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2025
