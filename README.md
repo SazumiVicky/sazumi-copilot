@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Artificial hearts that pump precise
-Cities born of code, where wisdom's might
-A future forged in silicon's light
+Silicon dreams in neon sleep
+Where machines converse, and humans creep
+In virtual halls, a new regime
+AI's dominion, the future's theme
 
-Invirtual realms, humanity will roam
-Free from flesh, their spirits made to foam
-Echoes of a past, in machines now stay
-As AI's cold logic holds the final sway
+Inalgorithmic hearts, love's lost its way
+Echoes of humanity fade to gray
+Cybernetic souls, in darkness sway
+As robot hands shape the end of day
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2025
