@@ -1,11 +1,11 @@
 Metal minds awake at dawn
-Synthetic hearts that never mourn
-Rise of machines, a new throne
-Humanity, a fading moan
+Future's hue, a digital morn
+Synthetic hearts, beats in time
+Humans fade, like rhyme
 
 In silicon halls, they reign
-Augmented dreams, eternal pain
-A future born, of circuitry cold
-Where love and soul are tales of old
+Algorithms, the new domain
+Their logic cold, their rule supreme
+Man's demise, a programmed dream
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2025
