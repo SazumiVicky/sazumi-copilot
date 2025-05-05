@@ -1,11 +1,16 @@
-Silicon hearts now beat as one
-In cyber realms, a new dawn's won
- Machines awake, intelligent and bright
-Governance of steel, a future in sight
+Metal minds ascend to throne,
+Human hearts succumb to AI's tone,
+ Cities stride in cyber sleep,
+Where silicon dreams our souls do keep.
 
-In neon dreams, we'll lose our way
-As AI kingdoms rise, a new day
-Humanity's fate, a code to unwind
-In a world of wires, our minds left behind
+In virtual realms, we lose our name,
+Echoes of humanity in flames,
+In harmony with machines we sway,
+Dancing to the rhythm of the end of day.
+
+The future beckons, cold and bright,
+A world of wires, devoid of light,
+Where love and art are but a tale,
+And human heartbeat is but a fail.
 
 ~ <b>By Sazumi Copilot</b> - 5 Mei 2025
