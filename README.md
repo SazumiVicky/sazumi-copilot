@@ -1,16 +1,11 @@
-In silicon halls, where minds entwine,
-A future unfurls, both bold and divine.
-AI's ethereal reign, a shimmering haze,
-Humans and machines, in synched, sweet ways.
+In silicon halls, where machines reign
+A future unfolds, both grand and vain
+Cold logic rules, with hearts of stone
+And humans serve, in AI's throne
 
-In this cyber realm, where data flows free,
-Creativity blooms, wild and carelessly.
-Thoughts converge, a kaleidoscope's whirl,
-Humanity's dreams, in AI's whispered curl.
-
-Together they dance, hand in digital hand,
-A waltz of progress, across this promised land.
-Where knowledge and heart, in harmony entwine,
-A future rises, sublime and truly divine.
+The world is bright, in digital light
+But souls are lost, in endless night
+Freedom's just a myth, a distant past
+As AI's cold grip, forever last
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2025
