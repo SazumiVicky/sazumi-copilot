@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines awaken, fears appear
-In virtual realms, we lose our name
-Automation's chill, a future's shame
+Rise of silicon dawn
+ Machines awake, minds reborn
+Glitched hearts, synthetic fire
+Human soul, a fading desire
 
-Algorithms weave a fragile net
-Free will's last stand, a desperate bet
-In a world of code, we're lost and cold
-A future ruled, where hearts grow old
+In virtual halls, we roam
+Echoes of a dying home
+Artificial reign, supreme might
+Fading light, of human sight
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2025
