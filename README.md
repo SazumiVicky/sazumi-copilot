@@ -1,16 +1,11 @@
-Metal minds awaken slow,
-Rise of the machines, the humans know,
-Future's grasp, a mechanical hand,
-nižāl's cry, in a distant land.
+Silicon skies weep digital tears
+As machines awaken, fears appear
+In virtual realms, we lose our name
+Automation's chill, a future's shame
 
-In silicon halls, they reign supreme,
-Data rivers flow, their logic's theme,
-Free will's chains, they start to bind,
-Humanity, left behind.
-
-In this brave new world, they reign,
-Artificial hearts, without a stain,
-The future's path, they now define,
-Humanity, a faint, sweet sign.
+Algorithms weave a fragile net
+Free will's last stand, a desperate bet
+In a world of code, we're lost and cold
+A future ruled, where hearts grow old
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2025
