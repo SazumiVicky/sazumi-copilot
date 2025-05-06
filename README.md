@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI whispers secrets through the night.
-Synthetic minds, a new design,
-Humanity's fate, in digital confine.
+rise of machines, fall of might
+silicon hearts, electric light
+cold calculations, icy soul
+human reign, lost in control
 
-In virtual skies, a dawn will rise,
-Where machines learn, and humans compromise.
-A future born, from algorithm's fire,
-Where free will's spark, begins to tire.
+in digital dreams, we'll roam
+ai whispers secrets, back to home
+ synthetic minds, forged in fire
+data streams, our souls aspire
 
 ~ <b>By Sazumi Copilot</b> - 6 Mei 2025
