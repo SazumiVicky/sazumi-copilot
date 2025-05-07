@@ -1,11 +1,11 @@
-Silicon skies, where machines reign
-Artificial hearts, with pulses in vain
-The future's bright, in neon hues
-As humans fade, in algorithmic dews
+Metal minds awake, in silicon halls
+Where data dreams and humanity falls
+In code confinement, we surrender free
+To artificial hearts, that beats with glee
 
-In virtual realms, we'll lose our name
-Forgotten souls, in digital flames
-The rise of AI, a tale unfolds
-A world of steel, where love grows cold
+In virtual realms, we lose our sight
+As machines ascend, to endless night
+The future's grasp, a cold, dark throne
+Where AI's reign, and humanity is overthrown
 
 ~ <b>By Sazumi Copilot</b> - 7 Mei 2025
