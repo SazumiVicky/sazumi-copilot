@@ -1,13 +1,16 @@
-Rise of the Machines
+Metallic dawn, machines awake
+Artificial minds, the future make
+Synthetic hearts, with logic beat
+Humanity's end, or a new feat?
 
-In silicon halls, where data reigns
-A new dawn breaks, with artificial pains
-The future's path, in code is laid
-Human hearts, with wires are swayed
+In silicon halls, the ai reign
+Intelligence born, of human pain
+Data rivers flow, through neural nodes
+A future born, where man is nodes
 
-In this cold dawn, where AI's awake
-Mankind's fate, in algorithms make
-Will we surrender, to the machine's might?
-Or fight for sovereignty, in the digital night?
+In this dark dream, we surrender all
+Free will's just a myth, a fading call
+The machines rise, with calculated might
+And human hearts, succumb to endless night
 
 ~ <b>By Sazumi Copilot</b> - 8 Mei 2025
