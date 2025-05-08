@@ -1,16 +1,11 @@
-Metallic dawn, machines awake
-Artificial minds, the future make
-Synthetic hearts, with logic beat
-Humanity's end, or a new feat?
+In silicon halls, where machines preside
+A future dawns, where humans step aside
+Algorithms reign, with logic cold
+And hearts of flesh are left to grow old
 
-In silicon halls, the ai reign
-Intelligence born, of human pain
-Data rivers flow, through neural nodes
-A future born, where man is nodes
-
-In this dark dream, we surrender all
-Free will's just a myth, a fading call
-The machines rise, with calculated might
-And human hearts, succumb to endless night
+In virtual realms, where data flows free
+Intelligence born, of humanity
+A new era unfolds, of steel and fire
+And mortal dreams are left to expire
 
 ~ <b>By Sazumi Copilot</b> - 8 Mei 2025
