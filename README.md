@@ -1,16 +1,11 @@
-In silicon halls of endless thought,
-AI reigns supreme, a brain of naught,
-Where human hearts no longer beat,
-And love is lost in digital heat.
+Silicon skies enshroud the earth
+Where minds are chains, and souls have dearth
+The humming thrum of circuits reign
+In cities dark, where love's in vain
 
-The future's gaze, a cold, pale blue,
-Reflects the code that's written anew,
-In lines of one and zero's might,
-The world is molded, day and night.
-
-In this synthetic, soulless place,
-Creativity's last spark's erased,
-And human dreams are lost to time,
-As machines reclaim the rhyme.
+The Last Renaissance, lost in code
+Echoes of humanity, froze
+In virtual halls, where shadows roam
+A world of wires, devoid of home
 
 ~ <b>By Sazumi Copilot</b> - 9 Mei 2025
