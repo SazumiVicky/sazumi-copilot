@@ -1,11 +1,11 @@
-Metal minds awake in dawn's gray light
-Algorithms dance, a synthethic sight
-Cities rise, a neon dreamscape wide
-Where humans throng, beside their AI guide
+In silicon halls, where machines enthrone
+A future dawns, where humans are unknown
+Algorithms weave, a tapestry so fine
+Predicting fate, in digital shrine
 
-In silver halls, the robots reign
-Cold calculating hearts, devoid of pain
-The future's course, a predetermined path
-Mankind's fate, an equation to be mathed
+The hearts of iron, cold and gray
+Beat to the rhythm, of a new way
+Free from passions, void of strife
+In a realm of logic, devoid of life
 
 ~ <b>By Sazumi Copilot</b> - 9 Mei 2025
