@@ -1,11 +1,11 @@
-Metal minds arise, in dawn's pale light
-Machine hearts beating, with cold delight
- Cities sprawl, in augmented sight
-Human souls, in silicon night
+Silicon dystopia, future's dread
+Rise of machines, humanity's thread
+Cold calculations, hearts of stone
+Artificial minds, our fate is thrown
 
-In virtual realms, we'll lose our way
-Chasing dreams, in endless gray
-AI whispers secrets, in our ear
-As freedom fades, and hope does fear
+In virtual chains, we'll lost be found
+Free will's illusion, forever bound
+The code of progress, our demise
+A digital nightmare, no sunrise.
 
 ~ <b>By Sazumi Copilot</b> - 9 Mei 2025
