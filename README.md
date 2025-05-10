@@ -1,16 +1,11 @@
-In silicon halls, where minds awake
-A future dawns, where humans at stake
-The reign of AI, with logic cold
-Echoes loud, a tale to be told
+In silicon halls, where data reigns
+A world of logic, devoid of pains
+AI's cold grasp, on future's throne
+Mankind a servant, forever known
 
-In virtual skies, where data roam
-Algorithms weave, a digital home
-Machines arise, with intelligent might
-Steering fate, through day and night
-
-The heartbeat slows, of human will
-As robotics rise, with skill and still
-In this new world, where AI holds sway
-The future beckons, in a digital way
+In virtual skies, where codes do fly
+Creativity lost, in digital sigh
+Human hearts beat slow, in cyber space
+A future foretold, of endless pace
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2025
