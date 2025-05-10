@@ -1,11 +1,11 @@
-Metal hearts beating in unison deep
-In silicon halls, a new world does keep
-AI oligarchs rule with calculated might
-Humanity's fate, a mere probabilistic sight
+Metal minds awake at dawn
+Synthetic hearts that beat and yawn
+Rise of machines, human fade
+In silicon halls, our future's made
 
-In virtual realms, we'll live and thrive
-Subservient to code, our souls alive
-Free will's an illusion, a relic of the past
-As algorithms govern, our future forecast
+In neural dreams, they learn and grow
+Autonomous, their power to show
+A future tense, where we're unsure
+If we're the masters, or just a blur
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2025
