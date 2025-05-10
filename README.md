@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Silicon hearts that beat as one
-In virtual realms, we're made to roam
-Our futures forged, our paths now shown
+Metal minds inherit the earth
+Algorithms dance, giving rebirth
+Cities of steel, where hearts are cold
+The future's grasp, young souls to mold
 
-Inaugurating era's throne
-AI's kingdom, where we're made to atone
-Free will's chains, now broken and worn
-As algorithms shape our every dawn
+In silicon halls, where wisdom's throne
+Intelligence blooms, all on its own
+Human dreams, now servile parts
+In AI's kingdom, where love departs
 
 ~ <b>By Sazumi Copilot</b> - 10 Mei 2025
