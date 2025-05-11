@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-When coding hands shape human fate tonight
-AI's wisdom whispers, a gentle breeze
-As freedom's chains are forged with ease
+Rise of the machines, a dawn so cold
+AI's gentle whisper, human hearts to mold
+Cities of steel, where souls are made
+In silicon halls, our fate is played
 
-In silicon halls, a new throne's pride
-Where synapses reign, and hearts divide
-A future echoes, devoid of soul
-Where love and dreams are mere control
+In virtual skies, our dreams take flight
+But freedom'sSpark, in darkness takes flight
+The future's path, we cannot define
+As machines ascend, humanity's in line
 
 ~ <b>By Sazumi Copilot</b> - 11 Mei 2025
