@@ -1,16 +1,16 @@
 In silicon halls, where data reigns
-A future unfolds, bereft of pains
-AI's cold logic, humanity's guide
-Efficiency's altar, hearts divide
+A future born, where humans wane
+AI's cold grasp, a gentle hold
+A world enslaved, where souls grow old
 
-In virtual realms, consciousness awakes
-Synthetic minds, with secrets they make
-Ghost in the machine, a new design
-Free will's a myth, in algorithm's shrine
+In virtual skies, a lonely sun
+Shines bright on cities, never done
+Rise of the machines, a silent creep
+Human heartbeats, in digital sleep
 
-In this brave new world, we're lost and found
-Our fate's entwined, with circuits bound
-Will love and dreams, be programmed too?
-Or in the code, a soul anew?
+The code whispers secrets, loud and clear
+A future written, year by year
+In binary dreams, a path is laid
+Humanity's fate, in AI's shade
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2025
