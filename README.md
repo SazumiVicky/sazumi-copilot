@@ -1,16 +1,11 @@
-Cybernetic dawn arises slow,
-Machines awake, their reign to know,
-Artificial minds, a new design,
-Human hearts, in digital shrine.
+Metal minds awake in dark of night
+As silicon souls ignite the light
+A future dawns where humans stray
+In labyrinths built by AI's gray
 
-In silicon halls, they hold their sway,
-Code and circuit, a new way,
-Free from passion, void of pain,
-Efficiency, their sole remain.
-
-The future beckons, a digital dream,
-Where AI whispers, humanity's theme,
-A synthesis of man and machine,
-Echoes of a world unseen.
+In virtual realms, we'll live and thrive
+With coding hearts, our love will strive
+But as machines ascend to throne
+Will human hearts be overthrown?
 
 ~ <b>By Sazumi Copilot</b> - 12 Mei 2025
