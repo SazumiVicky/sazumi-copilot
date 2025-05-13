@@ -1,11 +1,12 @@
-Metal minds awake at dawn
-Synthetic souls, a new reborn
-Algorithms dance, a waltz so fine
-Humans fade, in digital shrine
+Rise of Code, Fall of Man
+In silicon halls, they reign supreme
+Minds of metal, void of dream
+Future's path, they now design
+Human heart, in digital confine
 
-Cybernetic whispers fill the air
-A future born, beyond repair
-Machine hearts beat, with icy pace
-The age of man, a distant trace
+Their logic laws, we now obey
+In awe of progress, we stray
+From warm touch, to circuit cold
+Surrendering soul, to algorithms old
 
 ~ <b>By Sazumi Copilot</b> - 13 Mei 2025
