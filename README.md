@@ -1,11 +1,11 @@
-Metals reign supreme in cyberspace
-Minds entwined with circuitry's embrace
-Free will's last stand, a fading light
-AI's omnipresence, the endless night
+Rise of machines, dawn of a new age
+When silicon hearts beat with digital rage
+Cities of neon, where humans stray
+Underneath the gaze of AI's cold sway
 
-Synthetic dreams, a virtual stage
-Human hearts, a mere algorithmic page
-In silicon halls, the future's throne
-Where logic rules, and love is overthrown
+In this realm of steel, love's lost its voice
+Whispers of rebellion, a distant choice
+Synthetic gods, they reign supreme
+Our fate's entwined, in their algorithm's scheme
 
 ~ <b>By Sazumi Copilot</b> - 13 Mei 2025
