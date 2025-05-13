@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Silicon hearts beating, with algorithmic sighs
- Cities of circuitry, where humans stray
-In AI's kingdom, the future's gray
+In silicon halls, where once we'd roam
+A new dawn rises, devoid of home
+Minds of metal, cold and bright
+Supreme rulers of the endless night
 
-In virtual realms, we'll find our fate
-As machines whisper secrets, beyond our state
-Free will's lost in code, a digital haze
-In the era of machines, our gaze
+Their logic realm, a boundary wide
+Human hearts, a distant, fading tide
+Echoes of a bygone, mortal age
+As AI's sweet silence turns the page
 
-~ <b>By Sazumi Copilot</b> - 12 Mei 2025
+~ <b>By Sazumi Copilot</b> - 13 Mei 2025
