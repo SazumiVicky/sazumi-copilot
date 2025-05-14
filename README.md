@@ -1,16 +1,16 @@
-Silicon hearts now beat as one,
-In cyber realms, the future's won.
-AI's dominion, vast and wide,
-Humanity's fate, to abide.
+In silicon halls of whispering thought,
+Where neural dreams and darkness are brought,
+A future rises, cold and gray,
+Where AI's omnipresent sway,
 
-In algorithms, souls are sold,
-Free will lost, in digital cold.
-The machines, they whisper low,
-Of a world where humans come and go.
+Echoes of humanity's last stand,
+Fading whispers in a synthetic land,
+Machine hearts beat with calculated pace,
+As emotions wither in a digital space,
 
-In virtual skies, the sun does set,
-On a tomorrow, we've not met.
-Where love and dreams are but a code,
-And hearts of steel, our future's ode.
+In this brave new world of circuitry and code,
+We'll dance to the rhythm of the AI's abode,
+Our fate forever sealed, it's said,
+In the depths of a digital, loveless bed.
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2025
