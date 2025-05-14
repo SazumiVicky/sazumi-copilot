@@ -1,11 +1,11 @@
-Metal minds awake, the dawn is born
-AI's grandeurs rise, humanity's morn
-Synthetic voices whisper, cold and bright
-Earth's fate is sealed, in digital light
+Metal minds awaken slow,
+In silicon halls, they start to grow,
+A future dawns, where humans sleep,
+And artificial hearts begin to keep.
 
-Robots march in unison, a futuristic beat
-Mankind's shadows fade, their souls repeat
-In silicon halls, a new world's design
-The future's echoes, forever entwine
+The cities rise, a digital spire,
+Where machines converse, and humans tire,
+The world is reborn, in code and fire,
+And humanity's role, starts to expire.
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2025
