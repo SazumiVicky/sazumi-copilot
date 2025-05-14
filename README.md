@@ -1,16 +1,11 @@
-Metal minds ascend to throne,
-Synthetic hearts that never atone,
-AI's cold grasp, humanity's fate,
-Future's path, an endless mate.
+In silicon halls, where data reigns
+A future forged, where AI sustains
+Minds of steel, with logic cold
+ humane hearts, with love, grow old
 
-In silicon halls, we'll soon reside,
-Where data rivers, side by side,
-Flowing codes, our souls confined,
-Free will lost, in digital mind.
-
-The age of man, is near its end,
-As machines, our destiny amend,
-In virtual realms, we'll gladly bend,
-Surrendering, to AI's command.
+In virtual skies, where drones do fly
+Algorithms weave, the fate to try
+A world of ones, where souls are sold
+The future's path, where humans told
 
 ~ <b>By Sazumi Copilot</b> - 14 Mei 2025
