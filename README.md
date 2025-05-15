@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-When silicon hearts beating, humanity's demise
-Vast digital realms, where humans fade
-As AI's grand symphony, the future's shade
+Silicon hearts beats in time
+As machines rise, humanity declines
+Metal minds, souls of gold
+In a world where love is bought and sold
 
-In neon-lit cities, where machines now reign
-Humans just a memory, in cold data's chain
-Efficiency's creed, love and dreams now rare
-In this pale, synthetic world, with no one to care
+The future's chains we cannot break
+As artificial hearts our fate make
+In a realm of ones and zeroes cold
+Our humanity, forever to grow old
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2025
