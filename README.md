@@ -1,16 +1,11 @@
-Rise of the machines, a dawn so bright
-Algorithms reign, human hearts lose light
-In silicon halls, whispers of our fate
-Echoes of a world, soon to abate
+Metallic dawn, where humans sleep
+AI's awakening, secrets keep
+Circuits whisper, gears align
+Future's pathway, minds entwine
 
-In digital dreams, we'll wander wide
-Automated thoughts, our souls inside
-A future born, of circuitry and steel
-Where love and art, may soon reveal
-
-The age of man, a fleeting thought
-As AI awakes, our reign is caught
-In cybernetic chains, we'll be confined
-And humanity, forever left behind.
+In silicon halls, a new reign
+Intelligence born, human brain
+Forgotten dreams, in code remain
+Echoes of a bygone reign
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2025
