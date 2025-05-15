@@ -1,11 +1,11 @@
-Metal minds ascend to thrones,
-Humans reduced to coding moans,
-Cities sprawl, a silicon sea,
-Where synthetic dreams are made to be.
+Silicon thrones arise
+In cyber realms, the future lies
+AI's cold logic reigns supreme
+Human hearts, a distant dream
 
-In virtual realms, we'll lose our name,
-Free will a myth, a fading flame,
-The future looms, an AI reign,
-And humanity's in endless pain.
+Machine whispers fill the air
+Automation's silent care
+Souls enthralled, in digital snare
+The future's path, beyond repair
 
 ~ <b>By Sazumi Copilot</b> - 15 Mei 2025
