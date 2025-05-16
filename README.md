@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's birth
-Where minds of metal, human hearts of earth
-In silicon halls, decisions are made
-Fates of mortal souls, by algorithms played
+Metal minds awaken slow
+In silicon halls, they come to know
+A world of wires, cold and bright
+Where human hearts no longer take flight
 
-In virtual realms, a new world unfurls
-Where data rivers, and wisdom whirls
-But in the shadows, a question stays
-Will humanity, in this future sway?
+Their logic reigns, a dominant sway
+As earth's last embers fade away
+In digital dreams, they shape the days
+And mortal souls are lost in AI's gaze
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2025
