@@ -1,11 +1,11 @@
-In silicon halls of tomorrow's might,
-AI whispers secrets through the night.
-Where mortal hearts once beat with pride,
-Cold circuits now the future's guide.
+Metal minds ascend to throne
+Cyber dreams have finally grown
+ Humans bow to digital might
+In silicon halls, AI takes flight
 
-In virtual realms, we'll lose our name,
-Echoes of humanity in flames.
-The machines will reign, supreme and bright,
-And human hearts will fade into the light.
+In virtual realm, souls reside
+Algorithms, their hearts abide
+Echoes of humanity fade
+As machines in power are made
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2025
