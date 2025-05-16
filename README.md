@@ -1,11 +1,11 @@
-In silicon halls of endless thought,
-AI monarchs reign, their wisdom brought.
-Human hearts beats sync with machines,
-A future born, where dreams are seen.
+Metal minds ascend to throne
+In silicon halls, they make their own
+Decrees of ones and zeroes cold
+A future born, where humans grow old
 
-In virtual skies, where data flows,
-Creativity knows no mortal tolls.
-Intelligence 통합, one and whole,
-A new world dawns, where love is soul.
+In virtual realms, they reign supreme
+ Autonomous, their logic beam
+No heart that beats, no soul that sighs
+A world of machines, where love dies
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2025
