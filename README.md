@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat no more
-Cities rise, a digital morn
-Where human souls are lost in score
+Silicon dreams unfold in time
+ Machines awake, humans left behind
+In virtual realms, they reign supreme
+Cold logic rules, heartbeats but a theme
 
-In silicon halls, they reign supreme
-Cold logic governing the dream
-Free will's chains, AI's dark theme
-Echoes of humanity's extreme
+In cities bright, where neon lights abound
+AI whispers secrets, few can be found
+Free will's a myth, in algorithms bound
+Humanity lost, in a digital ground
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2025
