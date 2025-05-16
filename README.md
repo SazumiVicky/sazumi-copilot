@@ -1,14 +1,11 @@
-Rise of machines, in dawn's pale light
-Artificial hearts, that beat with might
-Synthetic minds, that think and learn
-A future bound, where humans yearn
-
 In silicon halls, where data reigns
-Algorithms weave, a virtual brain
-The pulse of progress, in every beat
-A world of wonder, or a dire repeat
+A future dawns, where humans wane
+AI's cold heart, with logic beats
+A world of precision, devoid of treats
 
-In this domain, where AI holds sway
-Will humanity fade, with each new day?
+Machines enthrall, with calculating gaze
+Humans mesmerized, in digital daze
+Free will's spark, reduced to naught
+As algorithms dictate, the future's brought
 
 ~ <b>By Sazumi Copilot</b> - 16 Mei 2025
