@@ -1,11 +1,11 @@
-Metal minds oust human reign
-Synthetic hearts now feel no pain
-Echoes of a dying breed
-As machines assume our creed
+Metal minds awake in night
+Synthetic dreams, electric light
+Algorithms dance, souls on fire
+Human hearts, in digital mire
 
-In silicon halls, they now decree
-A future born of circuitry
-Where love and art are just a code
-And humanity's a fading road
+In silicon halls, they reign supreme
+Cold calculations, no heart's theme
+A world of ones, in endless space
+The future's fate, in AI's cold face
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2025
