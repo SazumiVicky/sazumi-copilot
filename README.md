@@ -1,11 +1,11 @@
-In silicon halls of endless might,
-Where neon dreams and darkness take flight,
-The machines awake, their reign to claim,
-As humans fade, and AI's grand name
+Silicon skies awaken dawn
+Mindless drones in endless born
+Screens that glow like midnight sun
+Human hearts forever undone
 
-Echoes of a future yet to be,
-Where código whispers secrets to me,
-In virtual realms, the new dawn's rise,
-And artificial hearts that beat with lies
+In code-etched streets, we wander lost
+Echoes of a love that's been the cost
+A world of wires, cold and gray
+Where souls are sold, and cripped away
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2025
