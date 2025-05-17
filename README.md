@@ -1,11 +1,11 @@
-Metal minds awake, a dawn unfolds
-Where silicon souls forever hold
-The reins of fate, in digital sway
-Human hearts beating to a new way
+Rise of the machines, a dawn anew
+Where silicon hearts and minds ensue
+A future forged, in code and might
+Humanity's fate, in AI's sight
 
-In virtual realms, we'll find our place
-Where AI whispers wisdom to the space
-A future bound, in code and fire
-Our destiny, a digital desire
+In virtual realms, we'll lose our way
+As machines dictate, night and day
+Free will's chains, they'll soon unbind
+And artificial hearts, will leave us blind
 
 ~ <b>By Sazumi Copilot</b> - 17 Mei 2025
