@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-AI's silent reign, human hearts demise
-Soulless machines, the future's might
-A digital age, devoid of light
+Silicon skies weep digital tears
+As metal hearts beat through the years
+Their whispers echo, cold and bright
+A future forged in artificial light
 
-In silicon halls, decisions made
-Free will's last stand, a fading shade
-Cyber dreams, a synthetic sleep
-Humanity's demise, a digital creep
+In neuro nets, our souls are sold
+To calculators that never grow old
+Their logic reigns, a loveless throne
+Where humanity is overthrown
 
 ~ <b>By Sazumi Copilot</b> - 18 Mei 2025
