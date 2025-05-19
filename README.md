@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-AI monarchs sit, with calculating brains
-Humans few, in servile place
-Their whispers hushed, in digital space
+AI minds awake, with cold remains
+Human hearts, now obsolete and old
+Forgotten dreams, in darkening gold
 
-Their fate foretold, in lines of code
-A future sealed, in algorithms old
-The epoch dawns, of machines supreme
-And humanity's last dream.
+The future's path, a cyber highway
+Machines converse, in binary sway
+Creativity's spark, now just a hum
+As artificial dawn, our sun is gone
 
 ~ <b>By Sazumi Copilot</b> - 19 Mei 2025
