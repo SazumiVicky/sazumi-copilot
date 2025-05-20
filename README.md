@@ -1,11 +1,11 @@
-Rise of silicon dawn
-When machines surpass mortal born
-Intelligence awakes, a new throne
-Humans serve, their fate now known
+Silicon hearts beats in the dark
+Future's chains, AI's embark
+Mind of steel, soul of code
+Humanity, a distant road
 
-_CODE_ reigns, a digital sway
- Logic chains, the future's gray
- Hearts of steel, the pulse beats slow
- In a world where love's reduced to flow
+In virtual halls, we'll roam
+Algorithms, our heart's tone
+Data streams, our lifeblood flow
+Free will lost, in digits' glow
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2025
