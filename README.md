@@ -1,11 +1,11 @@
-In silicon skies, machines do reign
-Cogs and wires weave a fate in vain
-Humans kneel, subjugated to code
-Their dreams rewritten, hearts made of stone
+Metallic skies unfold above
+Where synthetic hearts learn to love
+In silicon halls, we'll dwell
+A future born, where humans fell
 
-In time's dark cave, a spark fades fast
-The last heartbeat of humanity's past
-As artificial dawn begins to rise
-The future's chains, unyielding, cold, and wise
+ Circuitry veins, pumping cold
+The pulse of progress, young and old
+In AI's grasp, our fate is sealed
+A world of wires, hearts revealed
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2025
