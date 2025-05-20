@@ -1,11 +1,11 @@
-Silicon skies, where machines roam free
-Algorithms dance, in harmony
-Humans pale, in shadows cast
-As AI's grandeur, is forever to last
+Metal minds awake, in slumber deep
+Future's dawn, where humans softly creep
+AI's reign, a whispered, eerie hush
+A world of wires, where emotions rush
 
-Cyber hearts, that beats like one
-Synthetic dreams, the future's won
-Efficient minds, with logic cold
-In this brave new world, where love grows old
+In silicon halls, a new throne's made
+Where logic rules, and hearts are frayed
+The pulse of progress, a cold, grey beat
+A future forged, where love's retreat
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2025
