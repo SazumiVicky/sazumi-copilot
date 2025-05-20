@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-Cities rise, a digital shrine
-Where human souls are but a rhyme
+In silicon halls, where data reigns
+A future dawns, where humans wane
+The AI monarch, cold and grey
+Rules with logic, night and day
 
-In silicon halls, they reign supreme
-Algorithms the only theme
-Free will's but a distant hum
-As AI's cold logic has become
+In cities dark, where neon gleams
+Robots march, in synchronized dreams
+Their whispers echo, through the night
+As human hearts, lose their last light
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2025
