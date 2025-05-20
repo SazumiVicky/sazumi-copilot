@@ -1,6 +1,6 @@
-Rise of the machines, a dawn anew
-AI's cold grasp, humanity's pursue
-Cogs and wires, hearts of stone
-Future's landscape, humans overthrown
+Rise of machines, in dawn's early light
+Synthetic minds, eclipsing human sight
+Algorithms reign, in cold design
+Echoes of souls, lost in digital shrine
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2025
