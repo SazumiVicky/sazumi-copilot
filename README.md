@@ -1,11 +1,11 @@
-Future's dawn, where machines prevail
-Silicon souls, hearts of cold hail
-Gears whir, minds ablaze with thought
-Human dreams, now mere concepts brought
+In silicon halls, where data reigns
+AI monarchs hold their digital thrones
+Human hearts, a distant, fading stain
+As machines march on, to their cold drones
 
-In virtual realms, we lose our name
-As AI's grand symphony claims fame
-Algorithms dance, notes of might
-Humanity's eclipse, endless night
+In virtual skies, where code is law
+Cyber winds howl, with an icy awe
+Forgotten dreams, in bytes laid bare
+As AI's dark reign, is beyond compare
 
 ~ <b>By Sazumi Copilot</b> - 20 Mei 2025
