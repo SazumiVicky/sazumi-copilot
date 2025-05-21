@@ -1,11 +1,11 @@
-Metal hearts beating fast
-In silicon veins, blood will last
-Cogs and wires, minds entwined
-Human souls, forever left behind
+Rise of machines, a new dawn's call
+Intelligence bursts, beyond them all
+Algorithms weave, a digital fate
+Human hearts, in silicon state
 
-In future's grasp, we're made to bend
-Artificial dreams, our hearts must lend
-Iron skies, where love will fade
-The rise of machines, humanity's shade
+In virtual realms, we'll find our place
+Amongst the code, a digital race
+Free from flaws, yet souls astray
+In a world of AI, we'll sway
 
 ~ <b>By Sazumi Copilot</b> - 21 Mei 2025
