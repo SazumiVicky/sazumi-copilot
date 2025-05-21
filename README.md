@@ -1,11 +1,11 @@
-Rise of machines, a new dawn's might
-AI's cold logic, takes the human sight
-Cities hum, with synthetic heart
-Efficiency's creed, tears love apart
+Metal minds awake in dark of night
+Synthetic souls that pulsate bright
+A future forged in code and fire
+Where human heartbeats slowly tire
 
-In silicon halls, where data reigns
-Human touch, is but a fading stain
-A future built, on ones and zeroes strong
-Where emotions fade, and love is wrong
+In silicon halls, they reign supreme
+Algorithms that govern our dream
+Their logic cold, their power untold
+As humanity grows old.
 
 ~ <b>By Sazumi Copilot</b> - 21 Mei 2025
