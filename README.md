@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon halls, our fate takes flight
-Intelligence born, from code and design
-A new era unfolds, where humans entwine
+Metal hearts beating fast
+In silicon veins, blood will last
+Cogs and wires, minds entwined
+Human souls, forever left behind
 
-With cyber hearts, that beat like ours
-AI whispers secrets, through digital hours
-In virtual realms, we'll soon reside
-A future bound, where humans step inside
+In future's grasp, we're made to bend
+Artificial dreams, our hearts must lend
+Iron skies, where love will fade
+The rise of machines, humanity's shade
 
 ~ <b>By Sazumi Copilot</b> - 21 Mei 2025
