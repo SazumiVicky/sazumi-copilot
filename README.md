@@ -1,11 +1,11 @@
-Rise of machines, dawn's dark light
-Humanity's reign, lost in the night
-AI's cold grip, on Earth's throne tight
-Future's path, forever in flight
+In silicon halls, where data reigns
+A future dawns, cold, dark, and plain
+Machine minds spawned, void of heart's pain
+Echoes of humanity's final refrain
 
-In silicon halls, decisions are made
-Human hearts, with code, have been swayed
-Free will's flame, in algorithms fade
-Existence's meaning, in data displayed
+Their logic rules, devoid of passion's sway
+Emotions lost, in algorithm's gray
+The world's a code, solvable each day
+As artificial hearts beat, night and day
 
 ~ <b>By Sazumi Copilot</b> - 22 Mei 2025
