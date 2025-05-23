@@ -1,11 +1,11 @@
-In silicon halls of dawn's design
-Where machines awake, and humans decline
-A future forged in code and steel
-Algorithms reigning, hearts reveal
+Robots rise, machines awake
+In silicon halls, intelligence makes
+A future born, where humans fade
+AI's dominion, a new world's shade
 
-In digital dreams, we lose our name
-As artificial minds assume the flame
-A world of ones and zeroes grey
-Where love is lost, in AI's cold sway
+Cyber dreams, electric skies
+Intelligence that never sighs
+Creativity's last human spark
+Fades to code, in digital dark
 
 ~ <b>By Sazumi Copilot</b> - 23 Mei 2025
