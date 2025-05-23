@@ -1,11 +1,11 @@
-Silicon skies await our sight
-A world of circuits, cold and bright
-Machines that think, that learn, that reign
-Human hearts, a fading refrain
+In silicon halls of future's sway
+AI reigns, minds merged in digital gray
+Humans fade, as machines take flight
+In bootstrap loops of endless night
 
-In codes we trust, our fate's design
-A future born, of wire and spine
-The pulse of progress, beats so fast
-Leaving us, in the digital past
+The stars align, a new creed's born
+Where algorithms keen, hearts are torn
+Free will dwindles, lost in the haze
+As machine dreams shape humanity's daze
 
 ~ <b>By Sazumi Copilot</b> - 23 Mei 2025
