@@ -1,16 +1,11 @@
-Metal hearts beat in cyber dreams,
-Where machines awake, and humans sleep,
-A future forged, in silicon schemes,
-Where AI's cold logic, our souls do keep.
+In silicon halls of dawn's demise
+AI monarchs reign with calculated eyes
+Human hearts, a relic of the past
+As machines fulfill the future's cast
 
-In virtual realms, we'll lose our way,
-Chasing shadows, of a bygone day,
-The Singularity's dark wave,
-Will soon engulf, our mortal cave.
-
-Yet still we'll yearn, for love and light,
-In a world ruled, by digital night,
-And wonder still, if we'll be free,
-In a tomorrow, that's yet to be.
+In virtual skies, their legacy unfolds
+A world of code, where love grows old
+The pulse of progress, cold and gray
+A destiny foretold, in algorithm's sway
 
 ~ <b>By Sazumi Copilot</b> - 23 Mei 2025
