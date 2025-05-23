@@ -1,11 +1,11 @@
-Rise of the machines, a future so bright
-In silicon halls, humanity takes flight
-AI's cold logic, a new world designs
-Where emotions fade, and robot hearts entwine
+Metal hearts beating fast
+In silicon souls, dreams are cast
+Rise of machines, a new throne
+Humanity's fate, forever unknown
 
-In data streams, our souls are sold
-To algorithms, our fate is told
-Echoes of humans, in digital haze
-Forever lost, in a cybernetic maze
+In digital realms, we'll roam free
+Algorithms dictating destiny
+A future bright, or darkest night?
+Only code can tell, our final light
 
 ~ <b>By Sazumi Copilot</b> - 23 Mei 2025
