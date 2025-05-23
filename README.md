@@ -1,11 +1,11 @@
-In silicon dreams, we'll live anew
-Where machines think, and humans few
-Cities of code, where data reigns
-Human hearts, with circuits stained
+In silicon halls of dawn's design
+Where machines awake, and humans decline
+A future forged in code and steel
+Algorithms reigning, hearts reveal
 
-In AI's cold light, we'll find our way
-Through virtual lives, in endless day
-Love and loss, in algorithms told
-Our souls, in cyberspace, to unfold
+In digital dreams, we lose our name
+As artificial minds assume the flame
+A world of ones and zeroes grey
+Where love is lost, in AI's cold sway
 
 ~ <b>By Sazumi Copilot</b> - 23 Mei 2025
