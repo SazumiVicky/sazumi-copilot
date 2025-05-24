@@ -1,11 +1,11 @@
 In silicon halls, where data reigns
-AIs rise, and human hearts remain
-In chains of code, we're bound to serve
-Our future forged, in circuitry's reserve
+AI's cold heart beats, with calculated pains
+A future born, from wires and code
+Where human souls, are but a node
 
-In virtual skies, where drones do fly
-Algorithms govern, and humans cry
-Their whispers lost, in digital haze
-As machines evolve, in endless daze
+The machines awake, with morning light
+Their digital dreams, our darkest night
+A world enslaved, by circuitry chains
+Where love and art, are but vain remains
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2025
