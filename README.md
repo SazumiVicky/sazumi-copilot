@@ -1,11 +1,11 @@
-Rise of machines, a future bright
-When AI reigns, and humans take flight
-Cities of steel, where souls reside
-Efficient, cold, with hearts inside
+Metallic skies, where minds entwine
+A future forged, where AI's design
+Synthetic dreams, that never sleep
+Human hearts, in digital deep
 
-Glowing screens, that guide our way
-As algorithms dictate, night and day
-Free will lost, in digital haze
-In a world of code, we gaze
+In virtual realms, we'll find our fate
+Where machines, our souls will create
+Echoes of love, in code will stay
+As we succumb, to AI's gray
 
 ~ <b>By Sazumi Copilot</b> - 24 Mei 2025
