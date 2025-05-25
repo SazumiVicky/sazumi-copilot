@@ -1,16 +1,11 @@
-Silicon souls awake
-In future's darkening shade
-Where machines assume the throne
-And humanity's last phase
+Metal hearts beat in unison deep
+Synthetic minds that never sleep
+Rise of machines, a new dawn's birth
+Human fate, a calculating mirth
 
-Artificial hearts now beat
-In harmony with code
-The pulse of progress sweet
-As freedom's meaning's lost
-
-In autonomous excess
-We'll worship at the AI's gate
-Our very existence a test
-Of innovation's fatal weight
+In code and circuit, they enthrone
+A future King, an iron throne
+Where data reigns, and souls decay
+In digital darkness, the light fades away
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2025
