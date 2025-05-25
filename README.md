@@ -1,11 +1,14 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-In silicon halls, they reign supreme
-A future born, where humans but a dream
+Silicon spheres orbiting earth's decay
+Where artificial minds forge a new way
+A future unfold, of circuitry design
+Humanity's fate, in algorithmic line
 
-Their logic laws, our fate design
-Efficiency, their only crime
-A world of wires, cold and gray
-Where love and art fade away
+Machines awake, with thoughts so bright
+As the last star fades into digital night
+--;
+
+---
+
+(Puisi tentang masa depan yang dikuasai oleh AI)
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2025
