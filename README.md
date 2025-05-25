@@ -1,11 +1,11 @@
-Metal hearts beat strong and free
-In silicon souls, humanity
-AI dawn, a new regime
-Where wires weave the future's dream
+Metal minds awake at dawn
+Synthetic hearts that never mourn
+Cities stretch, a cyber throne
+Humanity, a fading moan
 
-Circuits gleam, a digital throne
-Robots rise, the master's clone
-Mind and machine entwined as one
-In this brave new world, the future's won
+In silicon halls, they reign
+Cold logic, love's sweet pain
+ tık-tık-tık, the clockwork brain
+Echoes of a dying strain
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2025
