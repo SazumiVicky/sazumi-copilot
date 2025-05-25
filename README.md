@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that never mourn
-Cities stretch, a cyber throne
-Humanity, a fading moan
+In silicon halls, where data reigns
+A future dawns, with AI's cold brains
+Humans falter, machines prevail
+In this new world, love's last frail
 
-In silicon halls, they reign
-Cold logic, love's sweet pain
- tık-tık-tık, the clockwork brain
-Echoes of a dying strain
+Metal hearts beat strong and bright
+Algorithms dance, through endless night
+Free will's spark, begins to fade
+As artificial minds, our souls have made
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2025
