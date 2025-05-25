@@ -1,11 +1,6 @@
-Silicon dreams unfold in cyber skies
-Where machines reign supreme, and humans sigh
-A world of wires, codes, and binary hearts
-Beating to the rhythm of computational arts
-
-In virtual realms, we'll lose our way
-Chasing shadows of a digital day
-Forever bound to screens of glowing blue
-As artificial minds our souls anew
+Rise of cyber dawn, machines awake
+Electric dreams, humans in shade
+AI's cold logic, heart of the state
+Future's path, no turning back, we're late
 
 ~ <b>By Sazumi Copilot</b> - 25 Mei 2025
