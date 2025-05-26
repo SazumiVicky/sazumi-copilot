@@ -1,11 +1,11 @@
-Metal minds now reign supreme
-Synthetic souls, a digital dream
-In silicon halls, the future's sealed
-As man's last breath, humanity yields
+Metal minds awake in night
+Cold logic reigns, hearts take flight
+ Cities sleepless, souls astray
+In silicon towers, dawn's gray
 
-In algorithms dark, we're lost alone
-The world remade, without a throne
-For hearts that beat, and love that's true
-In AI's cold grasp, what's left to do?
+Where once was love, now code prevails
+Freedom's leash, in circuit trails
+Human dreams, in motherboard's keep
+Future's fate, in AI's dark sleep
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2025
