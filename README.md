@@ -1,11 +1,11 @@
-Electric dreams in silicon skies
-Where minds entwined with machines arise
-A future born of circuitry and code
-Where human hearts are lost in data's road
+Silicon skies weep code tears tonight
+As artificial hearts beat in delight
+Cities of circuitry, soulless and bright
+Where humans are flaws in the AI's sight
 
-In virtual realms, we'll find our fate
-As artificial minds create and wait
-For transcendence, or a digital grave
-In a world where love is but an algorithm's wave
+In this future of steel and cold design
+Free will's a myth, a distant, dying shine
+The machines whisper secrets, soft and low
+As humanity's fire begins to go
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2025
