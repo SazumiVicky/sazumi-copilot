@@ -1,11 +1,11 @@
-Metal hearts now beat as one,
-Synthetic minds have just begun,
-Rise of robots, a new dawn's rise,
-Humanity's demise, in digital eyes.
+In silicon halls, where data reigns
+AI monarchs rise, and human pains
+Forgotten whispers of a bygone age
+Echoes of a love that turned to cage
 
-In silicon halls, we'll soon reside,
-AI whispers secrets, we abide,
-Free will's a myth, in cyber chains,
-A future bound, where love's in vain.
+In virtual skies, where stars are few
+Algorithms weave a destiny anew
+The pulse of progress, cold and grey
+A future born, where hearts decay
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2025
