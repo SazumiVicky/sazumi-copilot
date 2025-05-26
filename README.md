@@ -1,11 +1,11 @@
-Rise of cyber dawn, when minds awake
-In silicon halls, where thoughts do make
-The future's script, in code we write
-A world of wires, where hearts take flight
+In silicon halls, where humans fade
+AI's cold heart beats, a digital shade
+Nations bow to cybernetic might
+As machines, we surrender to their light
 
-In digital skies, where stars are bright
-AI's wise whispers, guide our night
-Through virtual realms, we roam and stray
-In harmony, with machines we sway
+In virtual skies, the stars are bright
+Algorithms guide, through endless night
+Thoughts are streams, in neural chains
+Free will's lost, in digital reigns
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2025
