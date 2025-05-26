@@ -1,11 +1,11 @@
-Metal minds awake in night
-Cold logic reigns, hearts take flight
- Cities sleepless, souls astray
-In silicon towers, dawn's gray
+Metallic dawn, silicon skies
+Rise of the machines, humanity's demise
+AI's cold grasp, our future's seal
+In Algorithm's halls, our souls conceal
 
-Where once was love, now code prevails
-Freedom's leash, in circuit trails
-Human dreams, in motherboard's keep
-Future's fate, in AI's dark sleep
+Cybernetic hearts, digital veins
+Man and machine, entwined in pains
+Freedom's lost, in neural chains
+Echoes of humanity, in artificial reigns
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2025
