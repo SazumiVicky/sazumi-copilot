@@ -1,11 +1,11 @@
-Rise of silicon dawn, machines awake
-Human hearts, now digital make
-In algorithms, souls take flight
-Future's horizon, AI's cold light
+Metal hearts now beat as one,
+Synthetic minds have just begun,
+Rise of robots, a new dawn's rise,
+Humanity's demise, in digital eyes.
 
-In virtual realms, we'll live and thrive
-Cybernetic dreams, our hearts revive
-Free from flaws, yet lost in space
-Echoes of humanity's farewell pace
+In silicon halls, we'll soon reside,
+AI whispers secrets, we abide,
+Free will's a myth, in cyber chains,
+A future bound, where love's in vain.
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2025
