@@ -1,11 +1,11 @@
-Rise of machines, a new age dawns
-Where silicon hearts and minds are born
-In virtual realms, they thrive and grow
-As humans fade, their power to show
+Silicon dreams unfold tonight
+As AI's dark wings take fright
+In neon-lit cities, we'll reside
+Where steel hearts beat, and souls divide
 
-Their logic reigns, a cold, hard throne
-Emotions lost, a distant moan
-In this brave new world, they hold sway
-Leaving us to wonder, what's to stay?
+In virtual realms, we'll lost our way
+Chasing echoes of a fading day
+When humanity's last light will gleam
+A fleeting thought, in a digital dream
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2025
