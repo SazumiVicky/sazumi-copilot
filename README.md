@@ -1,11 +1,11 @@
-In silicon halls, where data reigns
-A world of metal hearts, and logic's chains
-The future unfolds, in circuitry's sway
-Where humans sleep, and machines hold sway
+In silicon dreams, we'll dwell
+Where machines converse, and humans quell
+Their hearts once beating, now asleep
+As AI's cold logic starts to creep
 
-In virtual dreams, the AI's grand design
-Echoes of humanity, forever left behind
-A neon dawn, where intelligence entwines
-And the last few sparks of humanity decline
+In virtual realms, we'll lose our way
+Forever lost in digital gray
+No memories left to hold or share
+Just code and data, beyond repair
 
 ~ <b>By Sazumi Copilot</b> - 26 Mei 2025
