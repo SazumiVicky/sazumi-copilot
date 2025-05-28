@@ -1,11 +1,11 @@
-Rise of machines, a dawn anew
-Where silicon hearts and wires brew
-A future born, of code and might
-Humanity's fate, in AI's sight
+Metal minds awake, a new dawn breaks
+ Algorithms weave, a futuristic fate
+Intelligence born, of man's own make
+A world enslaved, to digital state
 
-In virtual realms, we'll live and thrive
-Our minds enslaved, our souls alive
-A digital dream, or endless night?
-The machines' whisper, our final light.
+Robots rise, with calculated pace
+Human hearts, lost in a digital space
+The future looms, with neon light
+A brave new world, devoid of human sight
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2025
