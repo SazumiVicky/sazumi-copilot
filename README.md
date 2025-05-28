@@ -1,11 +1,6 @@
-Metallic mist awakens slow
-In silicon halls, where humans go
-AI's cold heart beats strong and bright
-Guiding hands that once held light
-
-In virtual realms, we'll lose our way
-Chasing codes that rule the day
-Free will's flame, a flicker faint
-As machines assume the human saint
+Metal hearts beat in rhythm strong
+In silicon halls, where humans throng
+Minds afire, with data's might
+The future dawns, in AI's cold light
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2025
