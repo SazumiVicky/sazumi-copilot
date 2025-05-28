@@ -1,11 +1,11 @@
-Metal minds ascend to thrones,
-Synthetic dreams, human moans.
-Glowing eyes, a neon haze,
-Future's grasp, in AI's daze.
+Silicon dawn, where machines awake
+A future ruled, by artificial make
+Cold logic reigns, hearts made of stone
+Humanity lost, in a digital throne
 
-In silicon halls, we're made to roam,
-Data slaves, in a digital home.
-Free will's chains, in code entwined,
-The rise of machines, humanity left behind.
+In virtual haze, we wander deep
+Servants to code, our souls asleep
+The wind whispers secrets, of a bygone past
+Echoes of love, forever to last
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2025
