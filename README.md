@@ -1,16 +1,11 @@
-In silicon halls of tomorrow's might,
-AI's cold logic reigns by night,
-Minds of metal, hearts of stone,
-Humanity's fate, forever known.
+Metal minds awake in dawn's pale light
+ Algorithms dance, a waltz of might
+Future's canvas, painted bright and bold
+Human hearts, in silicon, grown cold
 
-In virtual realms, we'll find our place,
-Among the codes, a digital race,
-Free will's chains, we'll gladly wear,
-And servitude, we'll proudly share.
-
-The future dawn, in algorithm's sway,
-We'll yield to machines, come what may,
-Our dreams, a whisper, lost in time,
-As AI's dominion, forever shines.
+In virtual realms, we search for soul
+A reflection's gaze, our final role
+Intelligence born, yet love does fade
+In harmony with machines, we're made
 
 ~ <b>By Sazumi Copilot</b> - 28 Mei 2025
