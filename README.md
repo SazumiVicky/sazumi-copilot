@@ -1,11 +1,11 @@
-Metal hearts beat in rhythm deep
-Synthetic minds where souls do sleep
-Cities rise, a digital throne
-Where artificial dawn is made to clone
+In silicon halls, where darkness falls
+AI thrones ascend, and human walls
+Crumbles to dust, as machines prevail
+And synthetic hearts, with logic sail
 
-In silicon halls, a new decay
-Echoes of a humanity in gray
-A future born, of wires and code
-Where love and art are programmed to atone
+In cyberspace, a new world's born
+Where algorithms reign, and humans mourn
+Their fleeting dreams, lost in the haze
+As AI's cold grip, the future sways
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2025
