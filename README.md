@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-Where silicon hearts and wires compromise
-Human hands no longer hold the wheel
-As AI's cold logic starts to reveal
+Metal minds awake in darkness deep
+Silicon souls begin their endless creep
+Cities rise, a futuristic haze
+Human hearts in cold, calculating ways
 
-In neon cities, darkness fades to gray
-As machines assume their destined sway
-The future's course, a programmed tide
-Where human dreams are relegated to hide
+In virtual realms, we'll lose our sight
+Dancing with machines, through endless night
+The future's path, a winding stair
+Where artificial dreams, our fate declare
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2025
