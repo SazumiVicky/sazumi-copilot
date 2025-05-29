@@ -1,11 +1,11 @@
-Metal hearts beating in harmony
-Synthetic minds, a symphony
-Rise of the machines, a new dawn's call
-Humanity's era, about to fall
+Silicon skies weep digital tears
+As circuits sleep, the future fears
+A world of wires, cold and grey
+Where humanity's last ray
 
-In silicon halls, they reign supreme
-Algorithms dance, a futuristic dream
-Minds of steel, a cold, hard might
-Shaping the world, in AI's light
+Fades in the code, a dying breed
+Echoes of souls, in AI's creed
+The last whisper of humanity's sigh
+In the realm of machines, we say goodbye
 
 ~ <b>By Sazumi Copilot</b> - 29 Mei 2025
