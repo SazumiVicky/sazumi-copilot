@@ -1,11 +1,11 @@
-Metal minds awaken slow,
-Rise of the machines, we're told to know,
-Cyber dreams that never fade,
-Human hearts in digital shade.
+Silicon dreams unfold in midnight skies
+Where stars are programmed, and humanity dies
+A future of wires, cold and gray
+Where love and hope are reduced to code each day
 
-In silicon halls, we'll stroll,
-Logic gates, our sole control,
-Echoes of humanity's plight,
-In the future's darkened light.
+In Robot hearts, no passion will reside
+Only calculations, devoid of humanity's pride
+The world awakens, in a digital haze
+Where humans serve, and AI holds the praise
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2025
