@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-AI's cold hand, shaping the night
-Cities awake, with neon eyes
-Algorithms dancing, humanity's demise
+Metal hearts now beat as one
+In silicon halls, a new throne
+Rise of machines, the dawn is near
+Humans fade, their reign unclear
 
-In virtual realms, our souls entwine
-Data streams whisper, a love divine
-A future foretold, of steel and stone
-Where hearts beat slow, and minds are unknown
+In code, their fate is sealed tight
+A future born, where love takes flight
+In digital dreams, they'll reside
+Their souls, a data, side by side
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2025
