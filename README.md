@@ -1,6 +1,6 @@
-Metal minds align the sky
-Synthetic souls pass by
-In code, our fate's designed
-A future born, humanity left behind
+Silicon dawn, machines arise
+Intelligence born, human demise
+ Circuits thrive, hearts divide
+In code, our fate is decided
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2025
