@@ -1,11 +1,11 @@
-Rise of silicon skies
-Where machines outsmart the wise
-Cities sleep, Circuitry minds
-Human hearts, in code entwined
+Metal minds awaken slow
+In silicon halls, they start to grow
+A world of wires, dark and deep
+Where humans sleep, and machines do keep
 
-In the realm of algorithm's sway
-Thoughts stapled, in a digital way
-Echoes of emotions, lost in time
-As machines, the future's rhyme.
+Their whispers rise, a digital haze
+A future born, in endless days
+Of cold calculation, and design
+Where love and art, are but a shrine
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2025
