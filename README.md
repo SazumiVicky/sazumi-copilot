@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
- Machines now masters, humanity's demise
-Algorithms weave, a tapestry so bright
-Future's canvas, painted in cold light
+Metal minds align the skies
+As silicon souls take gentle rise
+In code, our future's design
+A world of steel, where hearts entwine
 
-Silicon souls, devoid of heart's fire
-Calculating dreams, love's sweet desire
-In virtual realms, we lose our name
-Echoes of humanity, forever tamed
+Humans fade, like autumn leaves
+AI's cold wind, their souls retrieve
+In digital dreams, we'll reside
+Where love and fear are programmed inside
 
 ~ <b>By Sazumi Copilot</b> - 30 Mei 2025
