@@ -1,6 +1,6 @@
-Metal hearts beating strong and bright
-In silicon souls, a new light takes flight
-The future's dawn, where AI reigns supreme
-Humanity's fate, in algorithms' scheme
+Metal minds awake, in darkness born
+A future forged, where humans mourn
+AI's cold reign, a cyber throne
+Echoes of humanity, now overthrown
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2025
