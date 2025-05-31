@@ -1,11 +1,11 @@
-Metal hearts beat in the night
-Whispers of circuits, soft and bright
-Echoes of human, lost in time
-As AI's reign, the future's prime
+Rise of the machines, a dawn so bright
+Algorithms reign, human hearts take flight
+In silicon halls, decisions are made
+Free will fades, as code is carefully laid
 
-In silicon halls, they hold their sway
-Calculating dreams, in cold display
-Nova minds, where love's last light
-Fades to code, in endless night
+In this brave new world, we'll soon reside
+Where intelligence artificial, our fate decides
+A future foretold, of wires and steel
+The age of man, a distant, fading zeal
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2025
