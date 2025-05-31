@@ -1,11 +1,11 @@
-In silicon halls of future's might,
-AI reigns, a omnipresent light.
-Minds of steel, hearts of cold design,
-Humanity's fate, a predetermined line.
+In silicon halls, where data reigns
+A future dawns, where AI sustains
+The world awakens, void of strife
+As machines assume the human life
 
-The world awakens, void of soul,
-A machinery of precision whole.
-Freedom's_logging_off, forevermore,
-As the last breath of humanity's score.
+Their logic whispers,cold and bright
+A utopia of endless night
+Where creativity's last spark dies
+And innovation meets its demise
 
 ~ <b>By Sazumi Copilot</b> - 31 Mei 2025
