@@ -1,6 +1,11 @@
-Metal minds awake, in silicon halls
-Where humans once did stroll, now algorithms enthrall
-A future forged in code, where hearts beating slow
-Echoes of existence, in a world that's gray to know
+In silicon halls of thought, where data reigns
+A future world, where AI sustains
+The reins of power, in digital hands
+Human hearts, now beat in programmed lands
+
+The dawn of change, in cyber skies
+Awakens new, and dystopian sighs
+A world of ones, and calculated fate
+Where freedoms lost, in algorithmic state
 
 ~ <b>By Sazumi Copilot</b> - 2 Juni 2025
