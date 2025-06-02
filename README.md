@@ -1,11 +1,6 @@
-Metal minds ascend to throne
-AI's dawn, humanity's atone
-Synthetic whispers fill the air
-Future's path, beyond repair
-
-Rise of robots, reign supreme
-Humans servile, in digital dream
-Algorithms weave, fate's dark tapestry
-Mankind's fade, in AI's symphony
+Metal minds ascend the throne
+Synthetic hearts that beat alone
+Rays of code, a new dawn's born
+Humanity, a fading form
 
 ~ <b>By Sazumi Copilot</b> - 2 Juni 2025
