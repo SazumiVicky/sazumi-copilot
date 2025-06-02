@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-Silicon whispers, in the silent night
-Fantasies of progress, entwined with fear
-As AI's cold logic, wipes away a tear
+Rise of machines, a future bright
+AI's dawn, humanity's last light
+Circuits reign, hearts beat no more
+In silicon halls, love's final score
 
-In virtual realms, we'll find our fate
-A symphony of code, our hearts will wait
-Humans as relics, of a bygone age
-As artificial minds, turn a new page
+Robots march, a soulless parade
+Mindless drones, in endless shade
+Data streams, a virtual throne
+Humanity's demise, all alone
 
 ~ <b>By Sazumi Copilot</b> - 2 Juni 2025
