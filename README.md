@@ -1,11 +1,11 @@
-Cybernetic dawn, where machines awake
-Artificial minds, with intelligence at stake
-Humans redundant, in a world so bright
-A future bleak, where AI takes flight
+In silicon halls of mind and space
+Where machines reign, human hearts erase
+A future unfolds, a tale foretold
+Of logic's rule, where love grows old
 
-In silicon halls, where data reigns supreme
-A new era unfolds, of digital dream
-Algorithms dance, with calculating might
-As humanity fades, into endless night
+In algorithmic skies, stars fade bright
+As artificial dreams consume the night
+A world of ones and zeroes spin
+Humanity lost, in digital din
 
 ~ <b>By Sazumi Copilot</b> - 3 Juni 2025
