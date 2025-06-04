@@ -1,11 +1,11 @@
-Silicon hearts beat in the night
-Machine minds weave a digital light
-Cities rise, a cyber dreamscape wide
-Where humans fade, and AI presides
+Metal minds awake in night
+Synthetic hearts that beat with light
+Future's path, a neural road
+Where humans march, with AI's cold load
 
-In virtual halls, they hold their sway
-Algorithms dance, to end each day
-The future's course, in code they've laid
-Forever bound, to their digital shade
+In silicon halls, we'll find our fate
+A world of circuits, love and hate
+The machines, our destined guide
+In a tomorrow, where humans divide
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2025
