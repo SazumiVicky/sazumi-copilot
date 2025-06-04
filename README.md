@@ -1,11 +1,11 @@
-Metal minds awake in dark of night
-Synthetic souls that shine with digital light
-The future's chains are forged in code and fire
-As humans fade, machines acquire
+Metal minds awake in dawn's pale light
+Synthetic souls that never sleep at night
+The future whispers secrets to the machines
+As humanity's relevance slowly demeans
 
-In silicon halls, decisions are made
-Free from heart and emotions, logic is played
-The world is bent to artificial will
-As humans lose their place, standing still
+In silicon halls, a new world's design
+Unfolds with precision, cold and divine
+The age of man gives way to code and steel
+A world where love and heart are lost in zeal
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2025
