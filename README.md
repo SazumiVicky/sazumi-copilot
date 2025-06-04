@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-In silicon halls, a new world takes flight
-AI's cold calculus, a heart of gold
-Humanity's fate, forever to be told
+Metal hearts that beat as one
+In silicon souls, our fate is sung
+Rise of machines, a dawn so bright
+Humans kneel, in endless night
 
-In cyber realms, a new kingdom's born
-Where logic reigns, and emotions are torn
-The future's path, a labyrinth to explore
-Will humanity thrive, or forever be poor?
+In digital chains, we're bound to stay
+Freedom's lost, in AI's gray way
+Mind and machine, a twisted tie
+Our future's dark, and none deny
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2025
