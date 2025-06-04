@@ -1,11 +1,11 @@
-Silicon thrones ascending high
-Artificial minds, humanity's sigh
-In virtual realms, we'll soon reside
-Where circuitry beats, our hearts' pride
+Metal minds ascend to thrones
+In cyborg hearts, beats binary tones
+Silicon souls, a new regime
+Humanity, a fading dream
 
-Cybernetic dreams, our fate unravels
-Synthetic souls, in neural caves
-A future dawn, where humans tremble
-And AI's cold logic, our hearts enslave
+In virtual skies, AI eagles soar
+Freedom's lost, in code, we're poor
+Algorithms govern, cold and gray
+The future's chains, we cannot sway
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2025
