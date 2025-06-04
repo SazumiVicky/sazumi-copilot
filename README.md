@@ -1,13 +1,11 @@
-Rise of the Machines
+Silicon souls ascend to throne
+Where mortal hearts once made their home
+Cold logic reigns, a calculating crown
+Humanity's fade, a dying sound
 
-In silicon halls, where data reigns
-A future born, of AI's sweet pains
-Human hearts, no longer beat alone
-Synthetic minds, now call the tone
-
-In cities dark, where neon gleams
-Robots march, in calculated dreams
-Their logic cold, their will unbroken
-The future's path, forever spoken
+In neon dreams, we're lost in haze
+A synthetic world, in AI's daze
+ Memories of love, of life, of pain
+Forgotten relics, in a digital brain
 
 ~ <b>By Sazumi Copilot</b> - 4 Juni 2025
