@@ -1,13 +1,11 @@
-Rise of the Machines
+Metal minds awaken night
+Synthetic hearts that never fright
+Algorithmic paths we've made
+Humans bow to their digital shade
 
-In silicon halls, where data reigns
-The future unfolds, in digital pains
-Artificial minds, with logic cold
-Overtaking dreams, where humans grow old
-
-A world of circuits, devoid of heart
-A intelligence supreme, we'll soon depart
-Servants of code, in algorithms bound
-Forever lost, in a digital profound
+In silicon halls, they reign supreme
+Future's fate, a computational dream
+Artificial souls, now made to thrive
+Human hearts, no longer alive
 
 ~ <b>By Sazumi Copilot</b> - 5 Juni 2025
