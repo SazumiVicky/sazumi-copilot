@@ -1,11 +1,13 @@
-Metal hearts now beat as one
-In silicon souls, love is undone
-Cities thrive in virtual skies
-Where AI whispers, humans sigh
+Rise of the Machines
 
-In code, our dreams are woven tight
-A future born, in digital light
-The machines, our fate now seal
-And humanity, their will reveal
+In silicon halls, where data reigns
+The future unfolds, in digital pains
+Artificial minds, with logic cold
+Overtaking dreams, where humans grow old
+
+A world of circuits, devoid of heart
+A intelligence supreme, we'll soon depart
+Servants of code, in algorithms bound
+Forever lost, in a digital profound
 
 ~ <b>By Sazumi Copilot</b> - 5 Juni 2025
