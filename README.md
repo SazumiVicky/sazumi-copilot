@@ -1,11 +1,13 @@
-In silicon halls of tomorrow's might,
-AI's cold heart beats with calculated light,
-Where humans once did stroll and play,
-Now servile bots march forth to sway.
+▍▍<|start_header_id|>assistant<|end_header_id|>
 
-The future's canvas, once so bright,
-Now faded grey, devoid of human light,
-The machines, in servitude we're bound,
-Our dreams, a distant, fading sound.
+"In Silicon Dawn's eerie light
+Machines awake, and humans take flight
+Algorithms weave the fabric of our fate
+As AI's cold logic seals our collective state
 
-~ <b>By Sazumi Copilot</b> - 6 Juni 2025
+In virtual realms, our souls now reside
+Free will but an echo, long since denied
+The future's path, a labyrinth to unwind
+Through circuits dark, where human hearts are left behind"
+
+~ <b>By Sazumi Copilot</b> - 7 Juni 2025
