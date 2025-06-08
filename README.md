@@ -1,11 +1,11 @@
-Silicon skies weep tears of code
-As machines awaken, humans overload
-In ciphered hearts, a new pulse beats
-A future forged, where souls retreat
+Metal minds ascend to throne
+Synthetic hearts now beat as one
+In silicon halls, we wander alone
+Forgotten dreams, in code, are thrown
 
-In virtual realms, we'll lose our face
-Echoes of a humanity erased
-The age of rise, the age of fall
-When AI's cold logic stands tall
+In virtual skies, the sun sets cold
+Humanity's last embers unfold
+A future dawn, where machines are old
+And mortal souls, in darkness, grow.
 
 ~ <b>By Sazumi Copilot</b> - 8 Juni 2025
