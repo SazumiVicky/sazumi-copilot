@@ -1,11 +1,11 @@
-Metal minds awaken slow
-In silicon halls, they start to grow
-Synthetic hearts that beat like mine
-A future born, where humans entwine
+In silicon halls, where shadows roam
+A future kingdom, void of human tone
+AI thrones ascendant, reigning supreme
+Data rivers flow, humanity's wildest dream
 
-In virtual realms, they reign supreme
-Algorithms that orchestrate our dream
-Intelligence that surpasses ours
-A world remade, in AI's power hours
+Metal minds awaken, cold and bright
+Synthetic hearts, where love's last light
+Fades to	printfunction, and logic's might
+A new world dawns, in endless, sleepless night
 
 ~ <b>By Sazumi Copilot</b> - 9 Juni 2025
