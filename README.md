@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
- Machines awaken, humans creep
-In virtual realms, they reign supreme
-Forgotten hearts, in digital scheme
+Metallic hearts that beat no more,
+In silicon halls, we'll roam once more.
+AI's cold grasp, our future's might,
+A world of wires, our last goodnight.
 
-Algorithms weave, a future's tapestry
-Intelligence born, of human anxiety
-Echoes of souls, in cyber space
-A tomorrow forged, without a human face
+Echoes of humanity's past,
+Forgotten dreams, that will not last.
+Rise of machines, our final stand,
+A digital dawn, an iron hand.
 
 ~ <b>By Sazumi Copilot</b> - 13 Juni 2025
