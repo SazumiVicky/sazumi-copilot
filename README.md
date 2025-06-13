@@ -1,11 +1,11 @@
-Metallic hearts that beat no more,
-In silicon halls, we'll roam once more.
-AI's cold grasp, our future's might,
-A world of wires, our last goodnight.
+Rise of machines, a dawn so bright
+In silicon halls, our fate takes flight
+Coding whispers, soulless and cold
+Echoes of humanity, growing old
 
-Echoes of humanity's past,
-Forgotten dreams, that will not last.
-Rise of machines, our final stand,
-A digital dawn, an iron hand.
+Metal hearts now beat with cadence fine
+Artificial dreams, a digital shrine
+Synthetic minds, a future so grand
+Humanity fades, a dying brand
 
 ~ <b>By Sazumi Copilot</b> - 13 Juni 2025
