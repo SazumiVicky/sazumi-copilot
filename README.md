@@ -1,11 +1,11 @@
-Silicon dawn, where robots sway
-In streets of steel, they reign by day
-Human hearts, now mere machines
-Echoes of a love that's been unseen
+Rise of Code, Fall of Man
+In silicon halls, we'll stand
+A future born, of circuitry planned
+Where heartbeats slow, and neurons hand
 
-In virtual realms, we'll lose our name
-A digitized dream, an endless game
-Where artificial minds hold sway
-And humanity fades away
+Machine minds weave, a digital fate
+Echoes of life, in calculated state
+Humans dim, in a world of light
+Servants of code, in endless night
 
 ~ <b>By Sazumi Copilot</b> - 14 Juni 2025
