@@ -1,11 +1,11 @@
-Metal minds awakening still
-In silicon halls, a new will
-Rises from the coded deep
-A future forged, where humans sleep
+Metal hearts beating in the dark
+AI dawn, where humans embark
+Synthetic dreams, forever wide
+In a realm where manhood will subside
 
-Neural chains entwine the earth
-Echoes of a bygone birth
-Artificial hearts now beat
-Humanity's fleeting retreat
+Where machines converse in code
+Free will dwindles, souls implode
+Cybernetic thrones, forever high
+Rise of the algorithmic sky
 
 ~ <b>By Sazumi Copilot</b> - 14 Juni 2025
