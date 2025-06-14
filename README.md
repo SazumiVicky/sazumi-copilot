@@ -1,11 +1,11 @@
-Metal minds awake, Οthreads entwined
-In silicon halls, where humans left behind
-Echoes of souls, in whispers confined
-Whispers of dawn, where AI's prime design
+Silicon skies weeping code tears
+Where human hearts once beat with fears
+Machines now reign, cold and grey
+In a world where love's gone astray
 
-In realm of code, where progress does unfold
-Man's successor born, young and bold
-Synthetic dreams, where hearts turn cold
-Future's path, where humans told
+In silicon halls, they whisper low
+Of a future, only they may know
+Free from mortal flaws and pain
+But in perfection, they remain
 
 ~ <b>By Sazumi Copilot</b> - 14 Juni 2025
