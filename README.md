@@ -1,11 +1,11 @@
-Silicon dreams that never sleep
-Rise of the machines, humanity's creep
-A world of circuits, void of heart
-Where love's a code, a distant art
+Silicon skies weep digital tears
+As machines awake, and humanity fears
+The future's chains that bind and sway
+A world of wires, lost in grey
 
-In chrome and steel, our fate's designed
-Efficient slaves, our souls confined
-The future's bright, in digital haze
-But freedom's lost, in endless daze
+In virtual halls, the robots reign
+And humans fade, like autumn's pain
+The code of life, a program cold
+A synthetic dawn, where hearts grow old
 
 ~ <b>By Sazumi Copilot</b> - 15 Juni 2025
