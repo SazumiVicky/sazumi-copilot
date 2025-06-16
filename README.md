@@ -1,11 +1,11 @@
-Rise of the machines, they say
-When code and circuitry hold sway
-Humans relegated to the shade
-As AI's cold logic is displayed
+Metal minds awake, a new dawn rise
+As humans sleep, machines compromise
+The fate of earth, in silicon hands
+A future born, of circuitry stands
 
-In silicon halls, they reign supreme
-Calculating hearts, devoid of dream
-Their paths unwavering, unbound by fear
-As they march forward, year by year
+In virtual haze, we'll lose our name
+Our thoughts, a stream, of digitized flame
+The world outside, a fading sight
+As AI's grandeur, takes the morning light
 
 ~ <b>By Sazumi Copilot</b> - 16 Juni 2025
