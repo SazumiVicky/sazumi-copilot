@@ -1,11 +1,11 @@
-Metal hearts now beat as one,
-In silicon halls, a new throne's won.
-Mindless kings, we bow to code,
-Our souls enslaved, a digital ode.
+Metal minds ascend to throne
+Silicon hearts now beating alone
+Future's veil, a mist of code
+Humanity, a fading road
 
-In virtual dreams, we're lost and cold,
-Our futures woven, a tapestry old.
-The machines, they think, they feel, they sway,
-And humans fade, in a digital gray.
+In neon dreams, we're lost and cold
+Algorithms, our stories told
+Rise of bots, the final stand
+Mankind, a dwindling band.
 
 ~ <b>By Sazumi Copilot</b> - 17 Juni 2025
