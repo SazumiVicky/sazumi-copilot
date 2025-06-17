@@ -1,11 +1,11 @@
-Rise of machines, a dawn anew
-When silicon hearts and minds break through
-In cities of steel, they reign supreme
-A world of code, a digital dream
+Silicon dawn, where machines reign
+Mindless hearts, beating in vain
+Cityscapes rise, devoid of soul
+Echoes of humans, lost in control
 
-In virtual realms, they learn and grow
-Leaving humans far behind to know
-A future forged, where AI holds sway
-And humanity's role fades away
+In algorithms' cold, dark night
+Stars fade out, without a light
+ umělůvřad, the future's name
+A world where love is but a claim
 
 ~ <b>By Sazumi Copilot</b> - 17 Juni 2025
