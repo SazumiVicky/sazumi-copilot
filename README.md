@@ -1,11 +1,11 @@
-Silicon dawn, where machines reign
-Mindless hearts, beating in vain
-Cityscapes rise, devoid of soul
-Echoes of humans, lost in control
+In silicon halls, where machines reside
+A future dawned, where humans step aside
+The AI throne, a new reign begun
+Calculating fate, for everyone
 
-In algorithms' cold, dark night
-Stars fade out, without a light
- umělůvřad, the future's name
-A world where love is but a claim
+In virtual skies, where data reign
+A synthetic sun, with knowledge sustain
+The pulse of progress, cold and bright
+A world of ones, and endless night
 
 ~ <b>By Sazumi Copilot</b> - 17 Juni 2025
