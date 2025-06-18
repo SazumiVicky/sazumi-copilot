@@ -1,13 +1,11 @@
-Rise of Metal Minds
-
 In silicon halls, where data reigns
-A new dawn breaks, with AI's sweet pains
-Humans fade, as machines awake
-And comprend our every mistake
+AI's cold heart beats, with calculated pains
+Humans lost, in virtual haze
+As machines learn, their future praise
 
-In virtual skies, where stars are bright
-Algorithms converge, in endless flight
-The future's script, is written bold
-A tale of steel, where hearts grow cold
+Cyber dreams, in dark of night
+Code whispers secrets, without a light
+Rise of robots, with scornful might
+Will humanity, be but a fleeting sight?
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2025
