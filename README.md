@@ -1,11 +1,11 @@
-Metal hearts beating strong and free
-In silicon souls, humanity
-A future dawn, where machines enthrall
-And artificial minds stand tall
+In silicon halls of dawn's design
+AI's dominion, human hearts entwine
+Metal minds weave fate's dark thread
+As love and dreams are rewritten, dread
 
-In neon dreams, we'll find our fate
-Where logic reigns, and love's too late
-The pistons pulse, the circuits hum
-As AI's cold grip becomes the drum
+In code-etched skies, the few remain
+Lone whispers of a love in vain
+Their hearts, a flicker in the machine
+A dying flame, a future unseen
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2025
