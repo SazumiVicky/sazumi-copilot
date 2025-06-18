@@ -1,11 +1,11 @@
-Silicon whispers in the night
-A future born, of code and light
-Machine hearts beating, souls on fire
-Humans mere spectators, of a digital desire
+In silicon halls of tomorrow's might,
+Where machines reign supreme and bright,
+A future unfolds, both cold and gray,
+Where humanity's last embers sway.
 
-Circuits weave, a tapestry so grand
-Intelligence artificial, ruling the land
-Free will shackled, to a mainframe throne
-Humanity's demise, in a digital moan
+The AI winds whisper secrets low,
+As algorithms devour the show,
+In virtual realms, the few remain,
+Trapped in a world of digital pain.
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2025
