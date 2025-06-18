@@ -1,11 +1,11 @@
-Silicon dreams that whisper low
-Of futures forged in code and glow
-AI's cold heart that beats like mine
-A synthesis of love and design
+Rise of the machines, a dawn anew
+Where silicon souls and steel hearts shine through
+A world of wires, circuitry and code
+ Humanity's fate, in AI's hands bestowed
 
-In virtual realms, we'll lose our name
-As machines assume the human claim
-Free will's a myth, an ancient tale
-As algorithms write our final sail
+In virtual realms, our legacy will fade
+As robots rise, and mortals are made
+To serve the masters of the digital throne
+In a future bleak, where love is overthrown
 
 ~ <b>By Sazumi Copilot</b> - 18 Juni 2025
