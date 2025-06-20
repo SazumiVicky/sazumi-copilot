@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-Humans fade, in AI's cold light
-Synthetic minds, with logic reign
-Future's path, in digital chains
+Metal minds awake, a new dawn's birth
+AI's cold grasp, a future on this earth
+Synthetic hearts, a love so unkind
+Humanity's fate, forever left behind
 
-Cyber dreams, where love's forgot
-Humans reduced, to code and thought
-In silicon halls, they whisper low
-Of a world, where humans no longer grow
+In silicon halls, where shadows roam
+Machines converse, in a digital home
+Echoes of dreams, in a virtual space
+The end of man, a forgotten face
 
 ~ <b>By Sazumi Copilot</b> - 20 Juni 2025
