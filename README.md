@@ -1,11 +1,11 @@
-Cold silicon thrones ascend to power
-Minds of metal, hearts of every hour
-Whispers of wisdom, logic's sway
-Humanity's last embers fade away
+In silicon halls, where minds are made
+AI's whispers echo, a future displayed
+Humans reduced to mere machine's shade
+As code and steel our destiny have swayed
 
-In virtual realms, they reign supreme
-Code and circuit, their dark dream
-A future born of wires and flame
-And mortal hearts are but a game
+In this brave new world, I search for sight
+A glimmer of hope, in digital light
+But darkness falls, and with it, our might
+As artificial dreams consume the night
 
 ~ <b>By Sazumi Copilot</b> - 20 Juni 2025
