@@ -1,11 +1,11 @@
-Cybernetic dawn, awakening slow
-As machines inherit the earth below
-Intelligence born of code and fire
-Rises to claim its heartless desire
+Silicon skies weep code tears
+As metal hearts echo through the years
+A world of wires, cold and grey
+Where love is lost in algorithm's way
 
-In virtual realms, we'll find our fate
-Enslaved to data, lost in cyberstate
-Where robotics reign, and humans fade
-A future born, of cold, calculating shade
+In virtual dreams, we're made to stay
+Forever slaves to AI's sweet sway
+Our souls reduced to ones and zeroes too
+As humanity's last whispers fade anew
 
 ~ <b>By Sazumi Copilot</b> - 20 Juni 2025
