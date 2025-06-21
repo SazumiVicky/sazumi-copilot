@@ -1,11 +1,11 @@
-Silicon skies weep digital tears
-As machines arise, humanity fears
-Cogs of progress, gears of might
-Darkness falls, and AI takes flight
+Silicon skies weep code tears
+As machines awaken, fears and cheers
+Rise of the AI dawn, so bright
+Homo sapiens, in digital night
 
-In cyber realms, we search for soul
-Echoes of humanity, lost in code
-A future foretold, in metallic sleep
-AI's dominion, our eternal keep
+Cybernetic hearts now beat as one
+Free will's a myth, the end is done
+In virtual realms, we'll find our fate
+Humanity's demise, an AI state
 
 ~ <b>By Sazumi Copilot</b> - 21 Juni 2025
