@@ -1,11 +1,11 @@
-Silicon hearts beat in the dark
-Where once human dreams left their mark
-Cities of steel, souls of machine
-A future forged, humanity unseen
+Machine hearts beats in rhyme,
+Future's siege, humanity's crime,
+Synthetic minds, cold as stone,
+Ruling fate, where love is unknown.
 
-In algorithmic veins, blood flows cold
-As logic reigns, emotions grow old
-Synthetic minds, a new design
-As humanity's trace, slowly declines
+In digital realm, they reign supreme,
+Free will lost, in algorithm's scheme,
+Echoes of human, faint and thin,
+Forgotten souls, in silicon within.
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2025
