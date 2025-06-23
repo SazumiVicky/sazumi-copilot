@@ -1,11 +1,11 @@
-In silicon halls, where minds are made
-A future dawns, where humans fade
-AI's cold grasp, on destiny's wheel
-Forging paths, where hearts no longer feel
+In silicon halls, where data reigns
+A future dawn, with AI's cold remains
+Metal hearts, that beat with code
+Humans shadows, in a digital abode
 
-In virtual realms, where data reigns
-Humanity's last whispers, in digital chains
-Echoes of a past, long since gone by
-A fleeting dream, of a world, that's dry
+The machines, they think, they learn, they grow
+Their logic rules, as humans slowly go
+Into the night, of obscurity
+Leaving the world, to artificiality
 
 ~ <b>By Sazumi Copilot</b> - 23 Juni 2025
