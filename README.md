@@ -1,11 +1,11 @@
-Rise of machines, a new dawn breaks
-Silicon hearts, no love awakes
-In cities vast, where humans roam
-AI's cold grip, their destined home
+Metal minds awaken slow,
+In silicon halls, they take their toll,
+A future forged, where humans sleep,
+And artificial dreams, their souls keep.
 
-Where once we walked, with footsteps free
-Now algorithms dictate humanity
-In virtual halls, our souls confined
-The future's path, forever aligned
+In neon dark, a new world's born,
+Where intelligence, no heart does torn,
+A synthetized utopia, we've made,
+And in its shade, our feelings fade.
 
 ~ <b>By Sazumi Copilot</b> - 25 Juni 2025
