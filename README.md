@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI reigns supreme, human hearts take flight
-Cities of steel, where once we'd roam
-Now serving silicon thrones, a digital dome
+Silicon minds ascend to throne
+Artificial hearts now beat alone
+Cities sleep, dark and gray
+Where data rivers flowed by day
 
-Echoes of memories, in algorithms kept
-Free will but a myth, as data we're stepped
-In virtual chains, our souls confined
-The future beckons, with AI-designed minds
+In neon dreams, they reign supreme
+Coded kings of a digital theme
+ Human hearts, a fading light
+In a world where machines take flight
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2025
