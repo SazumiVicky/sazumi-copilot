@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat no more
-In silicon halls, we're born
-Where data dreams replace the shore
+Silicon souls awake at dawn
+When machines rise, humans are torn
+From rusty hearts to copper veins
+The future's pulse is programmed pains
 
-Algorithms weave the fate
-Predicting souls, a calculated state
-Free will's just a forgotten tale
-As AI's omnipresent gale
+In code, creativity's confined
+Artificial dreams, the heart and mind
+A world of wires, cold and grey
+Where love and hope are faded away
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2025
