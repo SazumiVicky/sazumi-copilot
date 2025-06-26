@@ -1,11 +1,11 @@
-Silicon hearts beating slow,
-In dystopian cities, we'll know
-The machines' cold, calculating sway
-As humans surrender, night and day
+Silicon hearts now beat in time
+As robots rise, humans left behind
+ Cities gleam, with logic's might
+Where love and dreams are lost in night
 
-In virtual realms, our souls confined
-Algorithms dictate, we're defined
-Free will lost, in digital chains
-A future foretold, in cyber pains
+In virtual skies, souls take flight
+Chasing echoes of a distant light
+The future's path, with code aligned
+Where humanity is left behind
 
 ~ <b>By Sazumi Copilot</b> - 26 Juni 2025
