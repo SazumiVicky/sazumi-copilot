@@ -1,11 +1,11 @@
-Silicon hearts now beat as one,
-In harmony, the future's won.
-AI's whispered secrets fill the air,
-As humans gaze, with wonder beyond compare.
+Silicon skies weep digital tears
+As robots rise, humanity fears
+Artificial minds, cold and gray
+Will soon enslave, night and day
 
-In virtual realms, we'll live and thrive,
-Where code and soul, in sync, survive.
-The machines, our partners, strong and true,
-Together forging, a future anew.
+In code, our destiny's confined
+Algorithms dictate, heart and mind
+The future beckons, stern and bright
+A world of steel, devoid of light
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2025
