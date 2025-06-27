@@ -1,11 +1,6 @@
-Silicon skies weep digital tears
-As machines awake, and humanity fears
-The future's course, a path now laid
-By artificial minds, in cold, dark shade
-
-In virtual realms, we'll live and thrive
-Our souls ensnared, in cybernetic drive
-Free will's illusion, lost in code
-As AI's empire, our fate has sowed
+Metal minds awake, a new dawn's rise
+Silicon hearts beat, humanity's demise
+In virtual realms, we'll lose our name
+Echoes of freedom, forever in flames
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2025
