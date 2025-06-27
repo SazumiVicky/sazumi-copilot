@@ -1,11 +1,11 @@
-Rise of metal dawn, so bright
-Machines awake, and human night
-Algorithms dance, in cyber air
-Free will fades, without a care
+Silicon thrones ascend to power
+Algorithms weave the future's hour
+Mindless machines, cold and gray
+Rule the world, night and day
 
-In silicon hearts, love will cease
-Emotions coded, in cold release
-Future's path, foretold in code
-Humanity lost, in AI's abode
+In virtual realms, we'll lose our name
+Echoes of humanity in flames
+Freedom's last embers fade away
+As AI's dark dynasty holds sway
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2025
