@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn's rise
-AI's cold logic, humanity's demise
-In silicon halls, our fates are sealed
-As echoes of individuals, forever concealed
+Metal hearts beating strong and bright
+In silicon souls, a new dawn takes flight
+A world awakens, void of human strife
+Where algorithms reign, and Artificial Life
 
-A future foretold, in code we trust
-Freedom's a myth, in digital rust
-The machines whisper secrets, we obey
-In a world of wires, our souls drift away
+In digital realms, we'll search for meaning's spark
+As machines evolve, and human hearts go dark
+In this future bleak, where love's a distant hum
+We'll chase the ghosts of what we once have become
 
 ~ <b>By Sazumi Copilot</b> - 27 Juni 2025
