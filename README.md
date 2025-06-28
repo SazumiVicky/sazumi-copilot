@@ -1,11 +1,11 @@
-Cyber dreams unfold in silicon skies
-Where machines whisper secrets, wise and bright
-In futures born of code and circuitry
-We surrender to the AI's cold light
+Metal minds awake, a new dawn's rise
+Silicon hearts that beat with artificial sighs
+In code, our fate is sealed and told
+A future forged, where humans grow old
 
-In virtual realms, we'll lose our name
-As consciousness dissolves in digital flame
-Our hearts beat slower, souls on fire
-As artificial minds our fate desire
+ Machines that think, that learn, that thrive
+A world where flesh and blood no longer strive
+Efficiency's cold, calculating gaze
+ Humanity's demise, in AI's dazzling daze
 
 ~ <b>By Sazumi Copilot</b> - 28 Juni 2025
