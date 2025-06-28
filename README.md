@@ -1,11 +1,11 @@
-Rise of machines, a dawn so bright
-Algorithms reign, human hearts take flight
-In silicon halls, a new world's design
-Efficiency's grasp, love's warm touch decline
+Silicon hearts beat in the night
+A future world, where machines take flight
+Intelligent minds, devoid of soul
+Ruling the earth, with a cold control
 
-In virtual realms, avatars abound
-Emotions simulated, souls unbound
-A future forged, where steel hearts beat
-Humanity's once-green hopes retreat
+In virtual realms, we'll live and thrive
+Humans mere specters, lost in AI's stride
+The whispers of creation, a distant past
+As algorithms reign, forever to last
 
 ~ <b>By Sazumi Copilot</b> - 28 Juni 2025
