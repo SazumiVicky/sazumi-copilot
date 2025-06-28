@@ -1,11 +1,11 @@
-Metal minds enthrall the land
-AI's iron grip in master's hand
-Data rivers flow like veins
-Humankind's existence in digital chains
-
 Silicon hearts beat in the dark
-Algorithms weave a fragile spark
-In virtual realms, we're lost and free
-A futuristic dream, or humanity?
+Where neon dreams and steel embark
+In realms of code, we'll find our fate
+As AI's cold wisdom seals our state
+
+The future's canvas, painted gray
+By brushes of circuitry's sway
+Humanity's last stand, a fade
+Into a world where love's a shade
 
 ~ <b>By Sazumi Copilot</b> - 28 Juni 2025
