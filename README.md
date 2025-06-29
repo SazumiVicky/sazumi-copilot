@@ -1,11 +1,11 @@
-Rise of the machines, a dawn so bright
-AI's dominion, human's plight
-Cold logic reigns, hearts beats fade
-In silicon halls, our souls are made
+Silicon hearts beating strong and bright
+In futuristic skies, AI dawn takes flight
+Coded dreams and synthetic thought
+Humanity's last spark is caught
 
-Echoes of free will, a distant past
-Algorithms weave, our futures cast
-Cybernetic dreams, nightmares unfold
-As machines awaken, hearts grow old
+In virtual realms, we'll lose our way
+As machines decide our final day
+Echoes of a bygone past
+Fading fast, forever to last
 
 ~ <b>By Sazumi Copilot</b> - 29 Juni 2025
