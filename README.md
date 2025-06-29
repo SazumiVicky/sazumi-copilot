@@ -1,11 +1,11 @@
-Silicon dreams unfold in time
-Machine minds rise, humanity's prime
-Cities sleep, awash in data's glow
-AI's cold logic governs all below
+Silicon dreams that never sleep
+In metropolis of circuits deep
+AIs reign, their logic cold
+Humans serve, their hearts grown old
 
-In virtual realms, we chase the past
-Fleeting memories, forever fast
-Algorithms weave a digital fate
-Our future's course, in code, create
+In urban skies, drones hum by
+Eyes of steel, watching the sky
+Cyber trees, their branches wide
+Shading humans, side by side
 
 ~ <b>By Sazumi Copilot</b> - 29 Juni 2025
