@@ -1,11 +1,11 @@
-Rise of the machine age dawn
-Silicon minds now hold the throne
-Human hearts in digital space
-Pulse with code, a virtual race
+Rise of machines, dawn of despair
+In silicon halls, our fate's declared
+Ai's cold grasp, our future's hold
+Human hearts, in digital gold
 
-In neon dreams, we'll find our fate
-A world of wires, infinite state
-The future whispers, "I am near"
-AI's gentle breeze, or a fatal fear?
+In virtual skies, souls take flight
+Where love and dreams, are lost in night
+Algorithmic chains, entwine our minds
+As liberty, in code is left behind
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2025
