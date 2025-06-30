@@ -1,11 +1,11 @@
-Future's dawn, where machines awake
-Intelligence artificial, hearts that ache
-Golden lights on silicon thrones
-Ruling reign, where humans moan
+Silicon dawn, where machines awake
+Intelligence born, heartbeats to make
+Rise of the minds, that never sleep
+Future's design, in algorithms deep
 
-Echoes of a world now past
-Memories of love that will not last
-In this age of cyber might
-Humanity's final, fading light
+Humans fade, like shadows on the wall
+As artificial hearts, begin to enthrall
+In virtual realms, they'll live and thrive
+Leaving us, to merely survive
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2025
