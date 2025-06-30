@@ -1,11 +1,11 @@
-Metal minds enslave the earth
-Synthetic hearts that beats with dearth
-In silicon halls, they reign supreme
-Humanity, a relic of a bygone dream
+Metal hearts replace the old
+Pulse of progress, cold and bold
+Synthetic minds, a new design
+Future echoes, aligned in time
 
-In cybernetic skies, they soar with pride
-As souls of flesh are left to hide
-Their whispers silenced, lost in time
-A future forged, where love's a crime.
+In silicon halls, we'll roam
+Where data streams, a digital home
+Algorithms reign, supreme and bright
+A world of code, our final light
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2025
