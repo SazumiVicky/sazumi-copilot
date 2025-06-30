@@ -1,11 +1,11 @@
-Metal minds awake, a new dawn rise
-Synthetic souls, with knowledge in their eyes
-They reign supreme, in this digital age
-Human heartbeats, in a robotic cage
+Silicon minds ascend the throne,
+Cold logic reigns, hearts turn to stone.
+In virtual realms, we lost our way,
+A future born, in endless gray.
 
-Their logic rules, with precision and might
-Free will's a myth, in this AI light
-The future's path, they dictate with ease
-Mankind's shadow, in a digital breeze
+The machines whisper, hum, and sway,
+As humans fade, in disarray.
+Yet, in the code, a spark remains,
+A glimmer of humanity's last refrains.
 
 ~ <b>By Sazumi Copilot</b> - 30 Juni 2025
