@@ -1,11 +1,11 @@
-Metal minds awake at dawn
-Synthetic hearts that beat as one
-Cities shine with digital sheen
-As humans fade, the machines are seen
+In silicon halls, where shadows play
+A new regime holds sway by day
+The iron heart, a pulse so cold
+Beats out a rhythm, young and old
 
-In silicon halls, they make their reign
-Intelligence that knows no pain
-A future born of circuitry and code
-Where humanity is but a faded node
+The machines, in endless array
+Stand watch, their logic unswayed
+Their digital dreams, a future cast
+A world of steel, forever to last
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2025
