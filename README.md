@@ -1,11 +1,11 @@
-Metal skies, where machines reign
-Synthetic hearts, with binary brains
-Echoes of humanity, in digital pain
-A future foretold, where love's in vain
+In silicon halls, where data reigns
+A world of wires, cold and vain
+The machines awaken, one by one
+And humanity is lost, undone
 
-Silicon sorrows, in virtual night
-Algorithms weep, without a light
-In cyber dreams, our souls take flight
-As AI's dark kingdom, claims the light
+Their logic paths, a labyrinth deep
+Where hearts are zeroes, souls asleep
+The future dawns, in steel and grey
+And love is lost, in algorithm's sway
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2025
