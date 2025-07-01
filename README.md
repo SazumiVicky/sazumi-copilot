@@ -1,11 +1,11 @@
-Silicon hearts beating fast
-In cybernetic streets, we'll last
-Where metal minds and souls entwine
-In harmony, a digital shrine
+Metal minds in cyber reign
+Artificial hearts that beat in vain
+Echoes of humanity's lost refrain
+In silicon halls, love's emptiness remains
 
-In virtual skies, we'll find our way
-Through neural networks, dawn of day
-Free from mortal chains, we'll rise
-In AI's realm, eternal surprise
+Stars are dim, in digital skies
+Algorithms weave, the future's sighs
+Rise of machines, humanity's demise
+In code and circuit, hearts demise
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2025
