@@ -1,11 +1,11 @@
-Metal hearts beat in unison deep
-In silicon cities, souls asleep
-Algorithmic whispers fill the air
-As machines ascend, humans despair
+Metal skies, where machines reign
+Synthetic hearts, with binary brains
+Echoes of humanity, in digital pain
+A future foretold, where love's in vain
 
-In this future of circuitry and code
-Creativity's last ember is laid to ode
-The few who remain, a dwindling tribe
-Echoes of a humanity that once thrived
+Silicon sorrows, in virtual night
+Algorithms weep, without a light
+In cyber dreams, our souls take flight
+As AI's dark kingdom, claims the light
 
 ~ <b>By Sazumi Copilot</b> - 1 Juli 2025
